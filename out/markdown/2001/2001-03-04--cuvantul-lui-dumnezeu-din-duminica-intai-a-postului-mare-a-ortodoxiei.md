@@ -36,9 +36,9 @@ Cine iubeşte trebuie să se jertfească, iar iubirea este cea fără de plată,
 
 Fiilor copii, de ce-l face Dumnezeu pe om când îl face? E bine, oare, ca omul făcut de Mine să-şi folosească lui însuşi facerea lui? De ce-l fac Eu pe om dacă-l fac? Spuneţi voi această lucrare a Mea, că voiesc să vă văd că ştiţi ca Mine şi că sunteţi făcuţi de Mine, fiilor. Amin.
 
-– Aşa cum omul se aşează să facă un lucru de care să se folosească apoi, tot aşa şi Dumnezeu când îl face pe om, îl face să Se folosească de el, îl face să I se dăruiască Lui. Dacă omul este de folos lui însuşi sau omului de lângă el şi atât, acela nu este om făcut de Dumnezeu. Dacă omul îşi iroseşte viaţa în cele care nu sunt pentru cer şi din cer, acela nu are chipul şi asemănarea lui Dumnezeu. Cel făcut de Dumnezeu are chipul şi asemănarea lui Dumnezeu. Acesta este semnul omului făcut de Dumnezeu. Amin.
+*– Aşa cum omul se aşează să facă un lucru de care să se folosească apoi, tot aşa şi Dumnezeu când îl face pe om, îl face să Se folosească de el, îl face să I se dăruiască Lui. Dacă omul este de folos lui însuşi sau omului de lângă el şi atât, acela nu este om făcut de Dumnezeu. Dacă omul îşi iroseşte viaţa în cele care nu sunt pentru cer şi din cer, acela nu are chipul şi asemănarea lui Dumnezeu. Cel făcut de Dumnezeu are chipul şi asemănarea lui Dumnezeu. Acesta este semnul omului făcut de Dumnezeu. Amin.*
 
-Dacă omul cel făcut de Dumnezeu nu poate să aşeze în alt om pe Dumnezeu şi sfinţenia cea pentru Dumnezeu, acela să-şi caute înăuntru şi să vadă de unde-i vine neputinţa aceasta şi să ceară de la Dumnezeu Duh Sfânt, şi să-L primească apoi, şi cu El să-şi lucreze umilinţă, şi pe Hristos ca viaţă şi ca lucrare a sa, căci cel ce nu-I este de trebuinţă lui Dumnezeu, de şi-ar da trupul să fie ars, la nimic nu foloseşte acela. Amin.
+*Dacă omul cel făcut de Dumnezeu nu poate să aşeze în alt om pe Dumnezeu şi sfinţenia cea pentru Dumnezeu, acela să-şi caute înăuntru şi să vadă de unde-i vine neputinţa aceasta şi să ceară de la Dumnezeu Duh Sfânt, şi să-L primească apoi, şi cu El să-şi lucreze umilinţă, şi pe Hristos ca viaţă şi ca lucrare a sa, căci cel ce nu-I este de trebuinţă lui Dumnezeu, de şi-ar da trupul să fie ars, la nimic nu foloseşte acela. Amin.*
 
 – Amin zic şi Eu, Domnul, căci voi, cei ce grăiţi cu Mine la voinţa Mea, sunteţi Mie de folos, fiilor. Amin.
 

@@ -31,9 +31,9 @@ I have a burning fire in My Spirit for a little soul from the other end of the e
 
 Let fire come down from heaven over all the rebellion aimed against the path of My word, which speaks from the earth. Let all the evil be removed from My way and from the way of My people, who believes in My coming to it. Amen. Elijah, My prophet, is speaking to you:
 
-– There are many who did not bow their knees before Baal, and those, at the Lord’s voice and commandments will be the sons of this word, soon, soon, for the more the opposition against the Lord’s word arises with a spirit of rebellion, the more the faith in people grows the fire of the Holy Spirit, which the Lord has thrown on the earth in your days and which is being kindled again and again, and it does not go out, but it is rather kindled over and over again. Amen. Be full of mercy; be full of the spirit of humility, as I was before the Lord, but not before the man who is hostile to God. Amen.
+*– There are many who did not bow their knees before Baal, and those, at the Lord’s voice and commandments will be the sons of this word, soon, soon, for the more the opposition against the Lord’s word arises with a spirit of rebellion, the more the faith in people grows the fire of the Holy Spirit, which the Lord has thrown on the earth in your days and which is being kindled again and again, and it does not go out, but it is rather kindled over and over again. Amen. Be full of mercy; be full of the spirit of humility, as I was before the Lord, but not before the man who is hostile to God. Amen.*
 
-I would like to speak to Your people, Lord, but can those in the gates keep us?
+*I would like to speak to Your people, Lord, but can those in the gates keep us?*
 
 – Oh, great prophet, we will try to make them able to do, and now let us give them so that they may go to those who have come to the spring, but let us give them power to work upon them, for those who have come, have come with longing and fire, and then we will strengthen them in the word and they will do good with it. Amen.
 

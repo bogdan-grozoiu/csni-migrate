@@ -16,39 +16,39 @@ Am dus crucea calvarului lumii şi am înviat apoi şi M-am dus la ai Mei şi M-
 
 O, iată, Domnul Iisus Hristos, Care lucrează minuni mai mari ca oricând, vă spune vouă, cu Duhul Sfânt vă spune: Hristos a înviat! Este sărbătoarea cea mai mare a credincioşilor lui Dumnezeu. Hristos a înviat, iubiţii Mei! Am sărbătorit cu voi în toată bucuria şi iubirea cerească. Sunt cu voi, căci am iesle lucrată prin cuvânt la voi. Sunt întru Duhul Sfânt, şi prin cuvânt sunt, dar cei din vremea aceasta sunt orbiţi de vreme, sunt fără de înţelepciune înţelepţii acestei vremi, şi când se va vedea lucrând înţelepciunea lui Dumnezeu, atunci va fi citită şi auzită peste tot Scriptura aceea care spune: *«Unde este înţeleptul şi cărturarul acestei vremi?».* Atunci voi veţi străluci, iubiţii Mei, căci va străluci lumina Duhului Sfânt, şi va străluci văzut, ca să se împlinească toată Scriptura care mai este de văzut. Uitaţi-vă la cei ce dau să înăbuşe lucrul vostru cu Mine, uitaţi-vă cât sunt de neputincioşi aceştia, căci am venit cu vremea Mea şi le-am luat dreptul lor şi stăpânirea lor, care este din lumea aceasta. Dar să-i vedeţi atunci când va străluci lucrul Meu cu voi sub ochii lor, căci Domnul cu ai Săi va birui în vremea aceasta lumea care mai este de biruit, şi nu va mai fi lumea, căci vom birui lumea, cu totul o vom birui, şi vom sufla şi se va face împărăţie dumnezeiască pentru făptura Mea. De aceea v-am spus, şi iarăşi vă spun şi acum: avem lucruri mari de împlinit, iubiţi ai Duhului Sfânt. Staţi cu ochii aţintiţi la Mine şi lucraţi după cuvântul cel din cer, lucraţi cărare dreaptă cuvântului cel din cer, căci voiesc să nu se mai lungească ziua Domnului; aşa voiesc, iubiţii Mei. Eu sunt cu voi, sunt şi lucrez cu voi, ca să lucraţi voi cu Mine. Verginica e şi ea în toată vremea cu voi, şi este de la Mine Verginica şi grăieşte cuvântul ceresc între voi. Amin.
 
-– Hristos a înviat! Cu Domnul vă spun: Hristos a înviat! Pentru voi şi pentru toţi copiii mei cei credincioşi rostesc urarea cea de serbare a învierii Domnului. Hristos a înviat, iubiţii mei, bucuria mea în cer şi pe pământ! Toată oastea cerească serbează şi cântă acum cu voi. Stă cerul atent la voi în vremea aceasta, că vede cerul ce se pregăteşte la voi. Se bucură proorocii, măi mămică. Citiţi Scripturile şi întăriţi-vă şi lucraţi întru lucrul învierii care va să biruiască moartea şi întunericul. Nu mai ieşiţi în afara celor din cer. Lăsaţi pe cei de pe drum să treacă şi să se zbată. Voi staţi cuminţi şi cu inimă trează spre Dumnezeu şi rugaţi-vă aşa cum v-a pus Domnul să vă rugaţi.
+*– Hristos a înviat! Cu Domnul vă spun: Hristos a înviat! Pentru voi şi pentru toţi copiii mei cei credincioşi rostesc urarea cea de serbare a învierii Domnului. Hristos a înviat, iubiţii mei, bucuria mea în cer şi pe pământ! Toată oastea cerească serbează şi cântă acum cu voi. Stă cerul atent la voi în vremea aceasta, că vede cerul ce se pregăteşte la voi. Se bucură proorocii, măi mămică. Citiţi Scripturile şi întăriţi-vă şi lucraţi întru lucrul învierii care va să biruiască moartea şi întunericul. Nu mai ieşiţi în afara celor din cer. Lăsaţi pe cei de pe drum să treacă şi să se zbată. Voi staţi cuminţi şi cu inimă trează spre Dumnezeu şi rugaţi-vă aşa cum v-a pus Domnul să vă rugaţi.*
 
-O, Domnul este fericit întru cei din cer. Măicuţa Domnului cântă de umple cerul, şi cânt şi eu cu ea, şi cântaţi şi voi cu noi, măi copii. [legatura_la_teme id_capitol="4" id_subcapitol="5"]*Se bucură cerul de bucuria celui uns peste România. A venit întru ale sale ca să le vadă şi să plângă şi să se bucure. A venit cel uns de Dumnezeu peste România şi e serbare mare în cer şi pe pământ, şi se va face cale dreaptă, dar să se cânte acum pentru cel uns, să se cânte cântarea cea pentru el, că şi în cer se cântă:*
+*O, Domnul este fericit întru cei din cer. Măicuţa Domnului cântă de umple cerul, şi cânt şi eu cu ea, şi cântaţi şi voi cu noi, măi copii.* [legatura_la_teme id_capitol="4" id_subcapitol="5"]*Se bucură cerul de bucuria celui uns peste România. A venit întru ale sale ca să le vadă şi să plângă şi să se bucure. A venit cel uns de Dumnezeu peste România şi e serbare mare în cer şi pe pământ, şi se va face cale dreaptă, dar să se cânte acum pentru cel uns, să se cânte cântarea cea pentru el, că şi în cer se cântă:*
 
 „O, Doamne Sfinte, ceresc Părinte,
 
 Susţine cu a Ta mână coroana română!”.
 
-Rugaţi-vă şi binecuvântaţi întru numele Domnului intrarea celui uns pe pământul cel sfânt al Domnului. Inima lui şi ochii lui, cei păziţi încă de ochii celor răi, se vor uita acum să-i vadă pe ai mei. Sunt ochi răi pe lângă el şi sunt inimi viclene încă. Mergeţi şi căutaţi şi voi spre el, că şi el caută cu ochii lui să vă vadă. Mergeţi şi duceţi de la Domnul urarea zilei de astăzi. Va fi să-i ieşim înainte prin această lucrătură lucrată de Dumnezeu aici.
+*Rugaţi-vă şi binecuvântaţi întru numele Domnului intrarea celui uns pe pământul cel sfânt al Domnului. Inima lui şi ochii lui, cei păziţi încă de ochii celor răi, se vor uita acum să-i vadă pe ai mei. Sunt ochi răi pe lângă el şi sunt inimi viclene încă. Mergeţi şi căutaţi şi voi spre el, că şi el caută cu ochii lui să vă vadă. Mergeţi şi duceţi de la Domnul urarea zilei de astăzi. Va fi să-i ieşim înainte prin această lucrătură lucrată de Dumnezeu aici.*
 
-Iubiţii mei, va veni bucuria cea adevărată şi nu vor mai fi ochi care încătuşează lucrul Domnului şi bucuriile Domnului. Mama Gigi vă cuprinde. Şi, iarăşi, pentru toţi cei buni ai ei, ea rosteşte iar: Hristos a înviat! Pace vouă!
+*Iubiţii mei, va veni bucuria cea adevărată şi nu vor mai fi ochi care încătuşează lucrul Domnului şi bucuriile Domnului. Mama Gigi vă cuprinde. Şi, iarăşi, pentru toţi cei buni ai ei, ea rosteşte iar: Hristos a înviat! Pace vouă!*
 
-Pace unsului României! Pace inimii lui îndurerate, căci este plină de durere inima lui! [/legatura_la_teme]
+*Pace unsului României! Pace inimii lui îndurerate, căci este plină de durere inima lui!* [/legatura_la_teme]
 
-Pace peste voi toţi, şi peste lucrul Domnului de la voi! Hristos a înviat! Adevărat a înviat! Amin, amin, amin.
+*Pace peste voi toţi, şi peste lucrul Domnului de la voi! Hristos a înviat! Adevărat a înviat! Amin, amin, amin.*
 
 ***
 
 [legatura_la_teme id_capitol="4" id_subcapitol="5"]Se coboară cuvânt din cer şi se scrie pe pământ cuvântul ceresc. Iată zilele cerului, şi cântă cerul în ziua aceasta, cântă peste România, cântă şi se preamăreşte cerul pe pământul României. Stau proorocii şi sfinţii şi îngerii şi cântă suita cerească:
 
-„Mântuieşte, Doamne, pe român, poporul Tău,
+*„Mântuieşte, Doamne, pe român, poporul Tău,*
 
-Şi binecuvintează moştenirea cea nouă a Ta.
+*Şi binecuvintează moştenirea cea nouă a Ta.*
 
-Biruinţă binecredinciosului, al poporului Tău rege, asupra celui potrivnic dăruieşte
+*Biruinţă binecredinciosului, al poporului Tău rege, asupra celui potrivnic dăruieşte*
 
-Şi cu crucea Ta păzeşte poporul şi pe unsul poporului Tău!”.
+*Şi cu crucea Ta păzeşte poporul şi pe unsul poporului Tău!”.*
 
-„O, Doamne Sfinte, ceresc Părinte,
+*„O, Doamne Sfinte, ceresc Părinte,*
 
-Susţine cu a Ta mână coroana română,
+*Susţine cu a Ta mână coroana română,*
 
-Susţine cu a Ta mână ţara regină română!”.
+*Susţine cu a Ta mână ţara regină română!”.*
 
 Hristos a înviat, rege al României! Bun venit, iubitul Meu! Hristos a înviat, Mihail al României Mele! Aşa este numele tău: Mihail al României, iar România este a lui Dumnezeu, dimpreună cu poporul ei cel binecredincios şi cu regele ei cel uns de Dumnezeu.
 

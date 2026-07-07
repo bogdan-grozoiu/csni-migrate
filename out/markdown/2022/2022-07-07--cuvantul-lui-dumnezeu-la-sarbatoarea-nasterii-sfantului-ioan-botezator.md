@@ -32,11 +32,11 @@ O, bucurați-vă voi, cei de pe pământ, care nu puteți de partea sfințeniei,
 
 Și acum Ioan Botezătorul lasă peste fiii cetății cuvântului Meu mângâiere și mărturisește ca și atunci pentru Domnul, spunând și acum:
 
-— Iată Mielul lui Dumnezeu, Care spală păcatele lumii, iată-L cuvântând peste pământ și trâmbițând cu venirea Sa, precum este scris să vină și să trâmbițeze!
+*— Iată Mielul lui Dumnezeu, Care spală păcatele lumii, iată-L cuvântând peste pământ și trâmbițând cu venirea Sa, precum este scris să vină și să trâmbițeze!*
 
-Iar voi, ucenici lucrători cu El, nu vă temeți că sunteți mici, căci cei mari sunt cei mai neputincioși, căci sunt fricoși, se tem unii de alții și se așează la pândă de frică, dar voi rămâneți în paza Domnului, căci El poartă de grijă de popoare și de țara cuvântului Său, de România venirii Domnului, țara întoarcerii Domnului Iisus Hristos cuvânt pe pământ, o, și poartă grijă de voi și de cetatea Sa cu voi și de voi, și mult bine va ieși din lucrarea Lui cu voi și mulți vor înțelege câtă iubire a fost ascunsă spre lucru prin statul Domnului cu voi pe pământ.
+*Iar voi, ucenici lucrători cu El, nu vă temeți că sunteți mici, căci cei mari sunt cei mai neputincioși, căci sunt fricoși, se tem unii de alții și se așează la pândă de frică, dar voi rămâneți în paza Domnului, căci El poartă de grijă de popoare și de țara cuvântului Său, de România venirii Domnului, țara întoarcerii Domnului Iisus Hristos cuvânt pe pământ, o, și poartă grijă de voi și de cetatea Sa cu voi și de voi, și mult bine va ieși din lucrarea Lui cu voi și mulți vor înțelege câtă iubire a fost ascunsă spre lucru prin statul Domnului cu voi pe pământ.*
 
-O, Doamne, fi-va să întărești pacea lor, liniștea care face pace și bine, căci fără Tine nimeni nu poate face nimic, nici măcar cei ce au lucrare de dușmani, și care pot cu răutatea lor numai cât le îngădui Tu, spre încercarea iubirii celor ce iubesc și Te iubesc.
+*O, Doamne, fi-va să întărești pacea lor, liniștea care face pace și bine, căci fără Tine nimeni nu poate face nimic, nici măcar cei ce au lucrare de dușmani, și care pot cu răutatea lor numai cât le îngădui Tu, spre încercarea iubirii celor ce iubesc și Te iubesc.*
 
 — O, ucenicule mare, cuvânt botezător ai așezat peste pământ și peste oameni prin glasul tău lăsat în cetatea cuvântului Meu.
 

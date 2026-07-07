@@ -32,13 +32,13 @@ O, așa și tu să faci, fiule creștin, dacă vrei să-ți formezi viață duho
 
 Marele ierarh Vasile are în ziua aceasta serbare între sfinți, ziua din an în care el a intrat în locașurile cerești ale celor ce iubesc cu dor pe pământ după ele, și salută el de lângă Mine pe cei din cetatea cuvântului Meu și intră acum în cartea Mea el.
 
-— Ca focul a ars în inima mea dorul de Tine și de cele din cer, Doamne, o, și ce dor Îți este de oameni aprinși de dor după Tine, Bunule Mântuitor!
+*— Ca focul a ars în inima mea dorul de Tine și de cele din cer, Doamne, o, și ce dor Îți este de oameni aprinși de dor după Tine, Bunule Mântuitor!*
 
-Eu doar aduc salutarea mea acum cetății cuvântului Tău și celor ce străjuiesc în ea venirea Ta cu sfinții, și spun: Foc a voit și voiește Domnul să arunce peste pământ și să ia foc mulți și tot mai mulți, fiilor din cetatea Domnului cu voi. Dorul este focul, și fără acest foc nu-I este Domnului cald în inima omului.
+*Eu doar aduc salutarea mea acum cetății cuvântului Tău și celor ce străjuiesc în ea venirea Ta cu sfinții, și spun: Foc a voit și voiește Domnul să arunce peste pământ și să ia foc mulți și tot mai mulți, fiilor din cetatea Domnului cu voi. Dorul este focul, și fără acest foc nu-I este Domnului cald în inima omului.*
 
-O, păstrați-vă foc, fiilor! Dați din el unul la celălalt ca să fie foc, că fără foc e frig în casă, Îi este Domnului frig în om, în casa inimii lui, și între frați apoi.
+*O, păstrați-vă foc, fiilor! Dați din el unul la celălalt ca să fie foc, că fără foc e frig în casă, Îi este Domnului frig în om, în casa inimii lui, și între frați apoi.*
 
-Vine praznicul Bobotezei și vom fi cu Domnul la masă de praznic cu toții. O, faceți foc, fiilor! Faceți-i pe cei ce vin la praznic să ia foc din foc, și să înțeleagă ei ce faceți voi aici pentru noi și pentru ei, căci voi ostenind lucrați, ca să-i faceți să se aprindă pentru cele de sus cei ce vin la zilele Domnului cu voi, cu masa de cuvânt în sărbători. Așadar, sunteți așezați de Domnul să pregătiți acum praznic mare de Bobotează și să deschideți cerurile deasupra și să curgă harul, fiilor. Fiți plini de dor, fiți plini de curaj, fiți plini de cuvânt, de semne și simboluri, de bucurie împărțită, și fiți copii pentru aceste împliniri, căci numai copiii sunt cei norocoși, căci prin ascultare ei sunt mici și sunt hărăziți pentru cele cerești pe pământ, și în cer apoi, o, fiilor.
+*Vine praznicul Bobotezei și vom fi cu Domnul la masă de praznic cu toții. O, faceți foc, fiilor! Faceți-i pe cei ce vin la praznic să ia foc din foc, și să înțeleagă ei ce faceți voi aici pentru noi și pentru ei, căci voi ostenind lucrați, ca să-i faceți să se aprindă pentru cele de sus cei ce vin la zilele Domnului cu voi, cu masa de cuvânt în sărbători. Așadar, sunteți așezați de Domnul să pregătiți acum praznic mare de Bobotează și să deschideți cerurile deasupra și să curgă harul, fiilor. Fiți plini de dor, fiți plini de curaj, fiți plini de cuvânt, de semne și simboluri, de bucurie împărțită, și fiți copii pentru aceste împliniri, căci numai copiii sunt cei norocoși, căci prin ascultare ei sunt mici și sunt hărăziți pentru cele cerești pe pământ, și în cer apoi, o, fiilor.*
 
 — Mă desfăt cu sfinții Mei la voi în sărbători, dar nu uitați, o, nu uitați de dor, fiilor, de mult dor în voi pentru Noi, și cu el să lucrați și să pregătiți și să așezați sărbătorile cerești aici, ori de câte ori ele sosesc ca să fie așezate cu masa lor și cu oaspeți la masă, oaspeți de sus și de jos, fiilor.
 

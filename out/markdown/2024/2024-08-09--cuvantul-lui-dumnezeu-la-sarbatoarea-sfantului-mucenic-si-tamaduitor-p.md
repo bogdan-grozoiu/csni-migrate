@@ -34,9 +34,9 @@ Iată, dacă nu este dulcele mereu între tine și fratele tău, o, nu este nici
 
 Mucenicul sărbătorit azi are de la Mine grai între voi. Iată-l, ca un ucenic lucrează pentru adevărul Învățătorului său, pentru Hristos.
 
-— O, numai pentru Tine m-am păstrat, Doamne, numai Ție Ți-am dat tot locul din inimioara mea, o, și nu mai eram eu în vremea chinurilor pentru mărturisirea Ta, căci Tu erai cu totul, Tu, Doamne, căci eu aș fi fost slab de tot, slab ca omul, dar iubirea de Tine m-a făcut Dumnezeu, m-a făcut ca Tine, și erai Tu atunci tot ce eram eu.
+*— O, numai pentru Tine m-am păstrat, Doamne, numai Ție Ți-am dat tot locul din inimioara mea, o, și nu mai eram eu în vremea chinurilor pentru mărturisirea Ta, căci Tu erai cu totul, Tu, Doamne, căci eu aș fi fost slab de tot, slab ca omul, dar iubirea de Tine m-a făcut Dumnezeu, m-a făcut ca Tine, și erai Tu atunci tot ce eram eu.*
 
-O, așa vă doresc pe voi lucrători cu Domnul, fii ai cuvântului de azi al lui Hristos. Mai mult, mai mare dar ca și El în voi și peste voi, nu mai încape. Așa vă dau eu să știți voi în ziua mea de serbare între cetele cerești, ziua mea de intrare în cer, iar Tu, Doamne, Tu vei împlini în ei iubirea lor cea pentru Tine, cuvântul puterii Tale împlinit în ei. Amin.
+*O, așa vă doresc pe voi lucrători cu Domnul, fii ai cuvântului de azi al lui Hristos. Mai mult, mai mare dar ca și El în voi și peste voi, nu mai încape. Așa vă dau eu să știți voi în ziua mea de serbare între cetele cerești, ziua mea de intrare în cer, iar Tu, Doamne, Tu vei împlini în ei iubirea lor cea pentru Tine, cuvântul puterii Tale împlinit în ei. Amin.*
 
 — Fiilor, fiilor, la masa Mea cerească aici cu voi şi cu sfinţii Mei, pun iar şi iar peste voi puteri sfinte pentru marea Mea lucrare cu voi, că sunteţi mici, iar lucrul e mult şi greu, că avem să gătim frumos grădina de la Maluri şi cartea cea cu încă zece ani de cuvânt al Meu cu voi, şi apoi vederea în film a venirii Mele cuvânt peste pământ în anul 1955 şi pe mai departe apoi prin trâmbiţa Mea Verginica, o, şi nu vă îndoiţi întru nimic, căci Eu veghez, fiilor. Cerul tot veghează și iar veghează și se va împlini minunat tot ce este de lucrat și de împlinit, numai voi să stați în credință și în umilință, fiilor, căci iubirea poate, ea este cu voi și ea este Dumnezeu.
 

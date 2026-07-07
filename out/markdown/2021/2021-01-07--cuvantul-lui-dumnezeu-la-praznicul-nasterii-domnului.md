@@ -60,13 +60,13 @@ Ziua naşterii Mele a fost taină mare, căci am venit să Mă fac cunoscut și 
 
 O, mama Mea, mamă Fecioară, e praznicul Nostru, mamă. Suntem aici în cetate cu sfinții, suntem cu cerul aici, mama Mea.
 
-— Suntem acasă aici, ca și în cer acasă, că Tu ai casă aici, avem casă aici, Fiule Iisus. E dulce, și e și durerea dulce, e dulce amintirea bucuriei și a durerii mele de acum două mii de ani, când Tatăl Te-a așezat Prunc mic pe pământ, iar eu Te-am primit și Te-am ocrotit și Te-am hrănit ca mama pe fiu.
+*— Suntem acasă aici, ca și în cer acasă, că Tu ai casă aici, avem casă aici, Fiule Iisus. E dulce, și e și durerea dulce, e dulce amintirea bucuriei și a durerii mele de acum două mii de ani, când Tatăl Te-a așezat Prunc mic pe pământ, iar eu Te-am primit și Te-am ocrotit și Te-am hrănit ca mama pe fiu.*
 
-E dulce tot ce este cu Dumnezeu pe pământ! E dulce amintirea nașterii Tale, Fiule scump! Frumoasă a fost toată biruința cea pentru Tine în vremi de prigoană a Noastră, ca și cea de după răstignirea și învierea Ta, când duhul meu și-a căpătat pacea, căci Tu ai fost biruitor.
+*E dulce tot ce este cu Dumnezeu pe pământ! E dulce amintirea nașterii Tale, Fiule scump! Frumoasă a fost toată biruința cea pentru Tine în vremi de prigoană a Noastră, ca și cea de după răstignirea și învierea Ta, când duhul meu și-a căpătat pacea, căci Tu ai fost biruitor.*
 
-Slavă întru cei de sus Tatălui și Fiului și Duhului Sfânt, și pace pe pământ pentru ziua de praznic a nașterii Tale de acum două mii de ani, Fiule Iisus! O, ai grijă de ei, de cei care Ne țin ca să fim pe pământ pentru împlinirea cea mare a înnoirii, Doamne! Ai fost Dumnezeu întreg, și ai fost și copilaș, ca să știm noi, oamenii, să fim copii și să avem parte de împărăția cerurilor, Fiule și Dumnezeule copil.
+*Slavă întru cei de sus Tatălui și Fiului și Duhului Sfânt, și pace pe pământ pentru ziua de praznic a nașterii Tale de acum două mii de ani, Fiule Iisus! O, ai grijă de ei, de cei care Ne țin ca să fim pe pământ pentru împlinirea cea mare a înnoirii, Doamne! Ai fost Dumnezeu întreg, și ai fost și copilaș, ca să știm noi, oamenii, să fim copii și să avem parte de împărăția cerurilor, Fiule și Dumnezeule copil.*
 
-Iubirii Tale se cuvine slavă și închinăciune, iar așteptarea aceasta încă Ne mai doare, încă, Fiule iubit al meu.
+*Iubirii Tale se cuvine slavă și închinăciune, iar așteptarea aceasta încă Ne mai doare, încă, Fiule iubit al meu.*
 
 — O, mamă, e dulce și așteptarea. Cu Dumnezeu totul se poartă mai ușor, mai cu mângâiere, mamă.
 

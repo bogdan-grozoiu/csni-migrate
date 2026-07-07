@@ -43,7 +43,7 @@ You, those who come together near My spring of word, I always come into your way
 
 I have told you these to know them from Me, because I had to tell you and you to know them for the spirit of humility in you, sons, and let he who has ears hear, hear from God. Amen. I will stay with you in the word again, as I have My baptizer, John, with Me at this feast of Epiphany, and he is saying to you this:
 
-*— I baptized the Lord in the Jordan and I heard Him speaking to me to bow and baptize Him with water, and I saw Him and then I heard the Father testifying about Him from the heavens saying:* «This is My beloved Son, with Whom I am well pleased».* **(Matt: 3/17)**. This is My testimony from the river Jordan, and what I saw and heard, this is what I confessed. Amen.*
+*— I baptized the Lord in the Jordan and I heard Him speaking to me to bow and baptize Him with water, and I saw Him and then I heard the Father testifying about Him from the heavens saying:* «This is My beloved Son, with Whom I am well pleased». *(Matt: 3/17). This is My testimony from the river Jordan, and what I saw and heard, this is what I confessed. Amen.*
 
 — Oh, My Baptizer, We have set a table of the Epiphany word on a day of holy feast. We have to work on this day and on the next day, the day for you, for your celebration near Me with the feast of Epiphany, for the confessing angels are singing to us and they are filling the heaven and the earth with God’s glory.
 

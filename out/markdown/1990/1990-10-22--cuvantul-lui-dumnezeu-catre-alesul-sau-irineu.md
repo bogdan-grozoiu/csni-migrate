@@ -8,15 +8,15 @@ audio:
 audio_file: 
 ---
 
-Iată, copiii mei, cuvânt nou, căci începutul de la voi este nou. V-am spus că facem un lucru nou, un popor nou, un popor ceresc, nestricăcios. Iubiţii mei, facem o biserică nouă, o biserică veşnică, un început de biserică veşnică, nestricăcioasă. Amin.
+*Iată, copiii mei, cuvânt nou, căci începutul de la voi este nou. V-am spus că facem un lucru nou, un popor nou, un popor ceresc, nestricăcios. Iubiţii mei, facem o biserică nouă, o biserică veşnică, un început de biserică veşnică, nestricăcioasă. Amin.*
 
-Se coboară cu dragostea cerească cuvânt ceresc şi dulce pentru iubitul cel iubit şi cel aşteptat de tot cerul, pentru cel iubitor de Dumnezeu, pentru cel chemat şi ales şi credincios, căci este credincios. Se coboară către el cuvânt de împodobire şi de viaţă nestricăcioasă, cuvânt de înveşmântare, cuvânt de taină cerească. Domnul Iisus Hristos îmi spune să aduc la voi cuvântul Său către acest iubit al nostru, că e al nostru, măi mămică.
+*Se coboară cu dragostea cerească cuvânt ceresc şi dulce pentru iubitul cel iubit şi cel aşteptat de tot cerul, pentru cel iubitor de Dumnezeu, pentru cel chemat şi ales şi credincios, căci este credincios. Se coboară către el cuvânt de împodobire şi de viaţă nestricăcioasă, cuvânt de înveşmântare, cuvânt de taină cerească. Domnul Iisus Hristos îmi spune să aduc la voi cuvântul Său către acest iubit al nostru, că e al nostru, măi mămică.*
 
-V-am spus că fără voi nu pot aduce nimic de la cer. V-am spus că voi sunteţi mâinile şi picioarele mele, că sunteţi glasul şi răsunetul meu. V-am spus că sunt în voi, şi voi în mine.
+*V-am spus că fără voi nu pot aduce nimic de la cer. V-am spus că voi sunteţi mâinile şi picioarele mele, că sunteţi glasul şi răsunetul meu. V-am spus că sunt în voi, şi voi în mine.*
 
-O, iubitul meu, aceştia sunt copiii mei, sunt rodul lucrării lui Dumnezeu, sunt mădularele mele, că eu i-am născut, şi în dureri i-am născut. Sunt aici la ei, sunt cu ei, sunt în ei, şi ei mă ajută să fiu aici cu cuvântul cel ceresc, că aşa zice Domnul, că al meu este acest popor, şi a venit vremea să mă înfăţişez cu el la Dumnezeu ca să facă din fiii acestui popor unelte de lucru, ca să facă Domnul înviere pe pământ prin acest popor ales şi crescut prin mine cu cuvântul lui Dumnezeu. Amin.
+*O, iubitul meu, aceştia sunt copiii mei, sunt rodul lucrării lui Dumnezeu, sunt mădularele mele, că eu i-am născut, şi în dureri i-am născut. Sunt aici la ei, sunt cu ei, sunt în ei, şi ei mă ajută să fiu aici cu cuvântul cel ceresc, că aşa zice Domnul, că al meu este acest popor, şi a venit vremea să mă înfăţişez cu el la Dumnezeu ca să facă din fiii acestui popor unelte de lucru, ca să facă Domnul înviere pe pământ prin acest popor ales şi crescut prin mine cu cuvântul lui Dumnezeu. Amin.*
 
-Mă trimite Domnul acum la aceşti copii cu cuvântul Său pentru cel iubit al Său, pentru ca să-l îmbrace întru puterea cea de sus, pentru ca să-l facă ceresc. Iată cuvântul Domnului:
+*Mă trimite Domnul acum la aceşti copii cu cuvântul Său pentru cel iubit al Său, pentru ca să-l îmbrace întru puterea cea de sus, pentru ca să-l facă ceresc. Iată cuvântul Domnului:*
 
 – Ia aminte din nou, iubitul Meu, copilul Meu iubit. Se împlinesc cele scrise în carte, cele scrise pentru vremea aceasta. Iată, dă muguri, iată un lucru nou; vin să-l desăvârşesc. Ia aminte, că vom lucra un lucru nou, un Ierusalim nou, o viaţă nouă şi veşnică. Amin.
 

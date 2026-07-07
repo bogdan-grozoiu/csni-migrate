@@ -36,9 +36,9 @@ Pace vouă, popoarelor, și vouă, stăpânitorilor de peste ele, căci biruinț
 
 Acum mucenicul Dimitrie așează lângă cuvântul Meu mărturisirea lui așa:
 
-— O, nu vă ridicați mai sus decât puteți fi, voi, stăpânitori trufași, căci adevărata victorie nu este pământul pentru care luptați, ci este cerul, dar voi luptați fără dragoste de Dumnezeu asupra celor ce au această dragoste.
+*— O, nu vă ridicați mai sus decât puteți fi, voi, stăpânitori trufași, căci adevărata victorie nu este pământul pentru care luptați, ci este cerul, dar voi luptați fără dragoste de Dumnezeu asupra celor ce au această dragoste.*
 
-Iar voi, cei ce vă puneți poporul în primejdie, o, nu vă mai sprijiniți pe prieteni, că prieteni nu sunt, ci numai furi, numai tâlhari sunt, căci dragostea nu caută ale sale, o, nu. De aceea iată ce spune Domnul vouă:
+*Iar voi, cei ce vă puneți poporul în primejdie, o, nu vă mai sprijiniți pe prieteni, că prieteni nu sunt, ci numai furi, numai tâlhari sunt, căci dragostea nu caută ale sale, o, nu. De aceea iată ce spune Domnul vouă:*
 
 — Eu, Domnul, vă dau sfat părintesc: Pace vouă, celor ce nu aveți pace, că iată, e durere în țară la voi, iar dușmanul străin vă minte și se dă prieten! O, fiți liniștiți întru ale voastre și fie-vă milă de poporul care suferă și piere. Războiul de la voi vine din afară, nu de la mijloc, nu din vecini. E dușmanul antichrist sub mască de prieten, dar el e dușmanul care se luptă să aducă păgânia lui peste tot, și iată, și la voi aici, aici, lângă popoare creștin ortodoxe, aici, unde sunt creștini de jur-împrejur, creștini ai lui Hristos, biserica Mielului.
 

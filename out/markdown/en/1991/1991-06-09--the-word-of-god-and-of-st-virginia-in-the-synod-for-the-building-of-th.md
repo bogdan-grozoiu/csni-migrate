@@ -9,11 +9,11 @@ audio:
 audio_file: 
 ---
 
-Peace to you! This is a heavenly synod. Mother Gigi is here with the guests from heaven and is with the Lord, Jesus Christ at the counsel of this synod, and it is a holiday in heaven on this day of a holy synod.
+*Peace to you! This is a heavenly synod. Mother Gigi is here with the guests from heaven and is with the Lord, Jesus Christ at the counsel of this synod, and it is a holiday in heaven on this day of a holy synod.*
 
-Glory to the Saint and to the One of a being and of life of a creation and inseparable Trinity, now and forever! Amen. The hour is coming that the Son of man be glorified, and I do not speak from me, and the One Who sent me commanded me to tell and to speak. You are the body of Jesus Christ, for the Spirit of the Lord works at the building of the body of Jesus Christ, for the perfection of the saints. You are the new beginning because you take, eat and drink the Body and the Blood of the Son of the Holy Trinity, and then you take again after a day and a night.
+*Glory to the Saint and to the One of a being and of life of a creation and inseparable Trinity, now and forever! Amen. The hour is coming that the Son of man be glorified, and I do not speak from me, and the One Who sent me commanded me to tell and to speak. You are the body of Jesus Christ, for the Spirit of the Lord works at the building of the body of Jesus Christ, for the perfection of the saints. You are the new beginning because you take, eat and drink the Body and the Blood of the Son of the Holy Trinity, and then you take again after a day and a night.*
 
-The Lord, Jesus Christ is in the synod with us, my loved children, and the Lord give His blessing upon this synod. Behold, the Lord is speaking on you now:
+*The Lord, Jesus Christ is in the synod with us, my loved children, and the Lord give His blessing upon this synod. Behold, the Lord is speaking on you now:*
 
 — Blessed it is the kingdom of the Holy Trinity, of My Father and of His Son, and of the Holy Spirit, working threefold, now and forever! Amen.
 

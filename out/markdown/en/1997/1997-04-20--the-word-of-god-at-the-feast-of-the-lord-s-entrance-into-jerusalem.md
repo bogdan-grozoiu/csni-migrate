@@ -9,7 +9,7 @@ audio:
 audio_file: 
 ---
 
-I am, and I am called the Word of God, as it is written: *«He comes with the clouds and with the tens of thousands of saints, and His name is called **the Word of God»***. (Rev: 19/13, r.n.) Amen.
+I am, and I am called the Word of God, as it is written: *«He comes with the clouds and with the tens of thousands of saints, and His name is called the Word of God»*. (Rev: 19/13, r.n.) Amen.
 
 I am the One Who is. I come from heaven on earth and I become word and Bridegroom, as the Lamb’s wedding came, and His bride is ready. Blessed are those who are called to the Lamb’s wedding supper.
 
@@ -43,15 +43,15 @@ When Moses asked Me what he was to tell Israel when he went to take the Israelit
 
 [legatura_la_teme id_capitol="4" id_subcapitol="2"]I have come with the clouds and with the saints and I have My bishop with Me, the patriarch Nifon, for everybody. I am in him and he is in Me, and he declares from Me, the word from the word upon you, oh My country:
 
-— Oh, Lord, the God of the living, the God of Abraham, Isaac and Jacob! Oh, Lord, the God of the living of the Romanian people! I am written down in heaven as Romanian, as here I had the last calling, and You called me to become Romanian and to be named holy by the Romanian people and by the whole faithful world.
+*— Oh, Lord, the God of the living, the God of Abraham, Isaac and Jacob! Oh, Lord, the God of the living of the Romanian people! I am written down in heaven as Romanian, as here I had the last calling, and You called me to become Romanian and to be named holy by the Romanian people and by the whole faithful world.*
 
-Oh, Lord, Bishop, Who stands on the right side of the throne of the greatness in heavens! There have passed over Romanian seventy weeks of years until the number of the years was fulfilled, and to the end of these years You had made a people pleased to You in Romania, and You became word upon it.
+*Oh, Lord, Bishop, Who stands on the right side of the throne of the greatness in heavens! There have passed over Romanian seventy weeks of years until the number of the years was fulfilled, and to the end of these years You had made a people pleased to You in Romania, and You became word upon it.*
 
-You came with the feast of the Palm Sunday in the ruling city of Romania, (Târgovişte, r.n.), Lord, and I am also with you among the tens of thousands of saints that You come with. Bless Romania and fulfill with it a new heaven and a new earth and a new word and a new Passover, as you have a people in it. The sons of Your word have prayed to You as the prophet Daniel also prayed for Jerusalem. I also bless the sons of Your word into Your name, so that the Romanian people may know that they are Your messengers for Romania. Help Romania and give her the gift of the holy faith, to be able to do Your will by faith and to fulfill Your last Scriptures, Lord, as You are fulfilled in her with Your coming, as You come coming, and You become word over her and you shine by the word, and she shines under the light of Your word, and those prophesied for her have come upon her.
+*You came with the feast of the Palm Sunday in the ruling city of Romania,* (Târgovişte, r.n.)*, Lord, and I am also with you among the tens of thousands of saints that You come with. Bless Romania and fulfill with it a new heaven and a new earth and a new word and a new Passover, as you have a people in it. The sons of Your word have prayed to You as the prophet Daniel also prayed for Jerusalem. I also bless the sons of Your word into Your name, so that the Romanian people may know that they are Your messengers for Romania. Help Romania and give her the gift of the holy faith, to be able to do Your will by faith and to fulfill Your last Scriptures, Lord, as You are fulfilled in her with Your coming, as You come coming, and You become word over her and you shine by the word, and she shines under the light of Your word, and those prophesied for her have come upon her.*
 
-Oh, country of the Lord, get up and receive the glory of God! I say to you: get up and rise, as I have come with the Lord to you and I touch your head and declare a blessing for you and I remove those that are bound on you to be loosened in heaven as well. The prayer of the sons from the garden of the Lord’s was heard, and I come with the Lord and fulfill the blessing over you.
+*Oh, country of the Lord, get up and receive the glory of God! I say to you: get up and rise, as I have come with the Lord to you and I touch your head and declare a blessing for you and I remove those that are bound on you to be loosened in heaven as well. The prayer of the sons from the garden of the Lord’s was heard, and I come with the Lord and fulfill the blessing over you.*
 
-And You, Lord, glorify Yourself into Your loved people, which You have been pleased with. Amen.[/legatura_la_teme]
+*And You, Lord, glorify Yourself into Your loved people, which You have been pleased with. Amen.*[/legatura_la_teme]
 
 — Oh, bishop, what you bound into My name was bound, and what you absolve into My name, I also absolve and put the blessing and holiness over those that are cleansed by the word. Amen.
 

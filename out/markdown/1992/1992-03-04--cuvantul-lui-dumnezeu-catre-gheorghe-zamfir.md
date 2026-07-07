@@ -36,21 +36,21 @@ Nu vă temeţi! Când veţi vedea toate aceste răutăţi, bucuraţi-vă, că es
 
 Iubiţii Mei, pace vouă! Nu vă smintiţi! Vă voi da să înţelegeţi cereşte cele scrise pe pământ. Voi sunteţi biserica Mea cea vie, cea lucrătoare, cea biruitoare, şi va fi mare turma Domnului. Biserica Mea este iubita Mea. Voi sunteţi biserica Mea, şi aşa vă numesc. Aşa îţi spun Eu ţie, biserica Mea cea încă ascunsă, cea încă nevăzută. Şi iată, iubita Mea, duhovniceşte să înţelegi această vorbire luată de pe pământ, căci Eu o fac cerească în ziua aceasta:
 
-„Iubita Mea, să ne-aruncăm în mare,
+*„Iubita Mea, să ne-aruncăm în mare,*
 
-Împleticiţi în sare şi guvizi,
+*Împleticiţi în sare şi guvizi,*
 
-Să fie marea templul nunţii noastre,
+*Să fie marea templul nunţii noastre,*
 
-Pe urmă, uşa ţărmului s-o-nchizi.
+*Pe urmă, uşa ţărmului s-o-nchizi.*
 
-Iubita Mea, te-ai îmbrăcat în alge
+*Iubita Mea, te-ai îmbrăcat în alge*
 
-Şi te sărut cu univers cu tot,
+*Şi te sărut cu univers cu tot,*
 
-Pe marea sfâşiată de catarge,
+*Pe marea sfâşiată de catarge,*
 
-Plutim râzând şi ne iubim înot“.
+*Plutim râzând şi ne iubim înot“.*
 
 O, aceasta este lucrarea spre care acum ne ridicăm, căci marea lumii va primi pescarii cerului. Aşa am spus Eu celor cu Mine: *«Voi sunteţi sarea pământului».* Aşa spun şi pentru voi, căci voi sunteţi pescarii care veţi fi cu mrejele pline de roade cereşti, şi apoi vom face masă cerească şi va fi unit cerul cu pământul, sărutându-se sub curcubeul biruinţei, deasupra vârfurilor munţilor care străjuiesc marea şi lumea. Eu sunt în voi, şi voi în Mine, şi vom pluti pe deasupra mării şi vom sufla duh de înviere şi vom cânta cântarea cântărilor. Amin.
 

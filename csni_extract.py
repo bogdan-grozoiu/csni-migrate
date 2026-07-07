@@ -189,32 +189,100 @@ def _resolve_anchors(body_html):
     return "".join(out)
 
 
+# A run of whitespace and/or HTML tags anchored at one edge of a string.
+_EDGE = re.compile(r"^(?:\s|<[^>]+>)+|(?:\s|<[^>]+>)+$")
+
+
 def _emphasize(marker):
-    """Wrap inner text in `marker`, keeping any edge whitespace outside it."""
+    """Wrap the visible inner text in `marker`, hoisting edge whitespace out.
+
+    Edge whitespace must sit *outside* the markers or CommonMark won't parse
+    them as emphasis. The inner may also carry HTML tags at its edges — e.g. a
+    color <span> that closes right before </i> (`…omul? </span></i>`). Those
+    tags are stripped later, so leaving them inside the markers would expose a
+    space touching the marker and produce broken emphasis (`*…omul? *`). So we
+    judge edge whitespace from the tag-stripped text and wrap only the core,
+    with any edge whitespace/tags moved outside.
+    """
     def repl(m):
         inner = m.group(1)
-        stripped = inner.strip()
-        if not stripped:
-            return inner
-        lead = " " if inner[:1].isspace() else ""
-        trail = " " if inner[-1:].isspace() else ""
-        return f"{lead}{marker}{stripped}{marker}{trail}"
+        visible = strip_tags(inner)
+        if not visible.strip():
+            return inner  # nothing visible to emphasize
+        core = _EDGE.sub("", inner)
+        lead = " " if visible[:1].isspace() else ""
+        trail = " " if visible[-1:].isspace() else ""
+        return f"{lead}{marker}{core}{marker}{trail}"
     return repl
+
+
+# A <p> boundary: used both to redistribute emphasis across paragraphs and to
+# split the body into paragraphs.
+P_BOUNDARY = re.compile(r"</?p\b[^>]*>")
+
+
+def _redistribute_emphasis(body_html):
+    """Re-emit emphasis inside every paragraph it spans, before splitting.
+
+    The source routinely opens an <i>/<em> (or <b>) at the tail of one <p> and
+    closes it inside a later one, e.g. `...credeţi? <i></p><p>— Da, Doamne! </i>`
+    (cheie=501). A browser keeps the run open across the boundary, so the whole
+    span renders italic — but html_to_md() converts emphasis per paragraph, so a
+    run cut by a </p><p> boundary matches in neither slice and loses its markers.
+    Here, like _resolve_anchors, we work on the whole body first: each emphasis
+    run that crosses a boundary is rewritten into one self-contained <tag>…</tag>
+    per paragraph slice (whitespace-only slices get none), so the per-paragraph
+    pass then converts them faithfully. Runs already within one paragraph are
+    left untouched.
+    """
+    def redistribute(open_tag, close_tag):
+        def repl(m):
+            inner = m.group(1)
+            if not P_BOUNDARY.search(inner):
+                return m.group(0)  # contained in one paragraph — leave as-is
+            pieces = P_BOUNDARY.split(inner)
+            delims = P_BOUNDARY.findall(inner)
+            out = []
+            for i, seg in enumerate(pieces):
+                out.append(f"{open_tag}{seg}{close_tag}" if seg.strip() else seg)
+                if i < len(delims):
+                    out.append(delims[i])
+            return "".join(out)
+        return repl
+
+    for tag in ("i", "em", "b", "strong"):
+        # re.I because the source mixes tag case, e.g. <i>…</I> (cheie=1217):
+        # a case-sensitive match runs past the real close to the next same-case
+        # one, swallowing text and mangling the markers.
+        body_html = re.sub(
+            rf"<{tag}\b[^>]*>(.*?)</{tag}>",
+            redistribute(f"<{tag}>", f"</{tag}>"),
+            body_html,
+            flags=re.S | re.I,
+        )
+    return body_html
 
 
 def html_to_md(body_html):
     # Resolve anchors first, on the whole body: a subcapitole link can span
     # several <p> blocks, so it must be handled before paragraph splitting.
     body_html = _resolve_anchors(body_html)
+    # Emphasis can span <p> boundaries too, so redistribute it before splitting.
+    body_html = _redistribute_emphasis(body_html)
 
     # Split into paragraphs on <p> boundaries.
-    parts = re.split(r"</?p\b[^>]*>", body_html)
+    parts = P_BOUNDARY.split(body_html)
     paras = []
     for part in parts:
         s = part
-        s = re.sub(r"<(?:i|em)\b[^>]*>(.*?)</(?:i|em)>", _emphasize("*"), s, flags=re.S)
         s = re.sub(
-            r"<(?:b|strong)\b[^>]*>(.*?)</(?:b|strong)>", _emphasize("**"), s, flags=re.S
+            r"<(?:i|em)\b[^>]*>(.*?)</(?:i|em)>", _emphasize("*"), s, flags=re.S | re.I
+        )
+        s = re.sub(
+            r"<(?:b|strong)\b[^>]*>(.*?)</(?:b|strong)>",
+            _emphasize("**"),
+            s,
+            flags=re.S | re.I,
         )
         s = re.sub(r"<br\s*/?>", "\n", s)
         s = strip_tags(s)

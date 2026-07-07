@@ -65,7 +65,7 @@ The voice of My angels are calling you to be like them, for the kingdom from abo
 
 The angels are calling you, sons, and they are telling you this:
 
-— Oh, fear God and pay attention to His voice over you, for His kingdom is coming, is coming! Go out to meet it with longing! This exhortation we are bringing to you. Amen.
+*— Oh, fear God and pay attention to His voice over you, for His kingdom is coming, is coming! Go out to meet it with longing! This exhortation we are bringing to you. Amen.*
 
 [legatura_la_teme id_capitol="6" id_subcapitol="2"]— Oh, My people, it is beautiful, it is very beautiful here, and we are gathered under this beauty, in My little house of longing, My story of longing with you.
 

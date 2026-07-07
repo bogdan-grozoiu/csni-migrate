@@ -11,13 +11,13 @@ audio_file: 24.12.14-en.mp3
 
 Andrew, and the day of your entry among the saints, oh, My trumpet. Take the trumpet from the hand of My angel and sound and awaken the Spirit, so that He may awaken the numb ones!
 
-— I am calling, Lord, I am calling! The trumpet is sounding again, Virginia is calling over the people fed from heaven!
+*— I am calling, Lord, I am calling! The trumpet is sounding again, Virginia is calling over the people fed from heaven!*
 
-Oh, be reconciled to God, you who are trying to give in to your walking! You will not be able to hide like Adam, for the Lord is calling you with His tender whisper and urging you to holy work. The books are opened and through them the word of God is confessed, which spoke to you and was written in the book. Seek to be beautiful, oh, because doubt and unbelief are utterly hateful to you, this sin, so grievous upon those who fall punished through it, through unbelief.
+*Oh, be reconciled to God, you who are trying to give in to your walking! You will not be able to hide like Adam, for the Lord is calling you with His tender whisper and urging you to holy work. The books are opened and through them the word of God is confessed, which spoke to you and was written in the book. Seek to be beautiful, oh, because doubt and unbelief are utterly hateful to you, this sin, so grievous upon those who fall punished through it, through unbelief.*
 
-I am calling, Lord, I am calling, for great days and fulfillments are coming, prophesied throughout the time of this work of the word that, they will come and appear with glory in heaven and on earth. You are the seventh angel and you will say: «The mystery of God is finished!», and then all will sit down, on the right and on the left, according to their work.
+*I am calling, Lord, I am calling, for great days and fulfillments are coming, prophesied throughout the time of this work of the word that, they will come and appear with glory in heaven and on earth. You are the seventh angel and you will say:* «The mystery of God is finished!»*, and then all will sit down, on the right and on the left, according to their work.*
 
-Peace upon the people of the word of God! Peace to You, Lord, and to Your great accomplishments in this time, and the retinue of saints and angels accompany You from sunrise to sunset. and proclaim with power the kingdom of God, for the Lord is coming to earth with His kingdom! Amen.
+*Peace upon the people of the word of God! Peace to You, Lord, and to Your great accomplishments in this time, and the retinue of saints and angels accompany You from sunrise to sunset. and proclaim with power the kingdom of God, for the Lord is coming to earth with His kingdom! Amen.*
 
 — I am coming and I keep coming, and the Father is pleased for My victory over the times under heaven, and all the heavenly hosts are preparing My glory, seen from margins to margins, soon, soon.
 

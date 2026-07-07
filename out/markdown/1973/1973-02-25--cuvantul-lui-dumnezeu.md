@@ -14,7 +14,7 @@ audio_file:
 
 — Crezi tu întru Mine?
 
-— Da.
+*— Da.*
 
 — Să fii credincios în Domnul Iisus Hristos, să fii vrednic de darul preoţesc şi ceresc, că mulţi preoţi sunt pe pământ, dar nu mai sunt puternici, pentru că s-au abătut de la calea Mea şi intră în locurile spurcate, intră în locurile nebinecuvântate, şi de aceea când slujesc nu se împlineşte. Fii păstoraşul Meu, căci cu ochiul tău vei vedea faţa Mea, şi cu mâna ta vei lucra în via Mea. Şi de vei avea credinţă cât un bob de muştar, vei zice muntelui să se mute şi se va muta. De vei zice orbului să deschidă ochii săi, se vor deschide. De vei zice slăbănogului să se scoale şi să-şi ia patul, se va scula. De vei lucra cu credinţă în casa Mea, vei fi cel mai fericit fiu, şi nimic rău nu ţi se va întâmpla. Dorinţa ce ai avut să auzi, ţi s-a împlinit. Acum, alege-ţi. În faţa ta şade îngerul Domnului şi scrie această întâlnire.
 

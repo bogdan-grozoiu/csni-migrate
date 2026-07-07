@@ -43,9 +43,9 @@ Oh, combien d’amour doit-on avoir par lui, et combien de vie de l’amour pour
 
 Oh, Ma mère, c’est un jour d’amour et d’enseignement avec amour ton jour de fête. Donnons-leur du pouvoir pour Nous, Ma mère. Allons leur expliquer le travail du service de Dieu, Ma mère.
 
-— Oh, mon Fils Jésus, mon amour, moi c’est pour Toi que j’ai fait ma vie aussi belle et douce, toujours pour Toi, toujours selon Ta volonté, et cela à cause de l’amour dont j’ai été faite par Dieu, et j’ai toujours et partout partagé à beaucoup de gens le parfum de cet amour, et je faisais des épines des roses, et je Te les offrais, mon cher Fils.
+*— Oh, mon Fils Jésus, mon amour, moi c’est pour Toi que j’ai fait ma vie aussi belle et douce, toujours pour Toi, toujours selon Ta volonté, et cela à cause de l’amour dont j’ai été faite par Dieu, et j’ai toujours et partout partagé à beaucoup de gens le parfum de cet amour, et je faisais des épines des roses, et je Te les offrais, mon cher Fils.*
 
-A l’occasion de mon jour de fête, Nous allons engager ceux qui Nous portent et ils vont travailler pour ceux réunis à ma fête, et ensuite Notre parole sera mise devant eux en son entier, avec ce jour d’école sainte pour les fils de Ton peuple. Maintenant Tu es au travail avec Ta parole, et moi aussi. Et Tu vas maintenant affermir la foi en ceux qui restent avec Nous jusqu’à la fin, et Nous allons leur donner toujours de l’énergie, mon cher Fils.
+*A l’occasion de mon jour de fête, Nous allons engager ceux qui Nous portent et ils vont travailler pour ceux réunis à ma fête, et ensuite Notre parole sera mise devant eux en son entier, avec ce jour d’école sainte pour les fils de Ton peuple. Maintenant Tu es au travail avec Ta parole, et moi aussi. Et Tu vas maintenant affermir la foi en ceux qui restent avec Nous jusqu’à la fin, et Nous allons leur donner toujours de l’énergie, mon cher Fils.*
 
 — Voilà, les fils, Ma mère va vous enseigner en ce jour à comprendre le travail du service pour Dieu, car celui qui ne connaît pas bien le Seigneur, celui-là chancèle encore.
 

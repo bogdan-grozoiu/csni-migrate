@@ -32,13 +32,13 @@ O, intră întru odihna Domnului tău, rege al României! Îţi mulţumesc pentr
 
 O, pace ţie între cei din cer, dar şi în inimile care te-au iubit mult, și care au fost și sunt adevăraţii fii ai acestui neam! O, pace ţie, inimioară duioasă şi îndurerată! Intră acum întru mângâierea Domnului tău Iisus Hristos, pe Care L-ai iubit şi L-ai urmat cu lacrimi pe obraz, şi Căruia credinţă I-ai păstrat în viaţa ta durută pe pământ. Amin.
 
-— Iar eu, îngerul Tău, Doamne, îngerul Mihail, însoţesc spre Tine pe unsul Tău, aşa cum în toată vremea lui pe pământ i-am fost alături din partea Ta, iar acum oştiri de îngeri în sărbătoare creştinească şi românească ne însoţesc ca să aşezăm înaintea Ta pe cel ce vine la Tine, Mihail, regele românilor. Amin.
+*— Iar eu, îngerul Tău, Doamne, îngerul Mihail, însoţesc spre Tine pe unsul Tău, aşa cum în toată vremea lui pe pământ i-am fost alături din partea Ta, iar acum oştiri de îngeri în sărbătoare creştinească şi românească ne însoţesc ca să aşezăm înaintea Ta pe cel ce vine la Tine, Mihail, regele românilor. Amin.*
 
 [/legatura_la_teme][legatura_la_teme id_capitol="4" id_subcapitol="4"]
 
-— Împreună cu oştirile îngerilor ridicăm, Doamne, oştirile mucenicilor şi pornim în ajutorul neamului român, noi, cei sărbătoriţi în ziua aceasta în cer şi pe pământ, mucenicul Mercurie şi muceniţa Ecaterina.
+*— Împreună cu oştirile îngerilor ridicăm, Doamne, oştirile mucenicilor şi pornim în ajutorul neamului român, noi, cei sărbătoriţi în ziua aceasta în cer şi pe pământ, mucenicul Mercurie şi muceniţa Ecaterina.*
 
-Binecuvintează, Doamne, ajutorul nostru adus acestui neam, şi sunăm peste el trâmbiță de deșteptare la veghe lângă cei din cer lucrători, căci sunt zile de durere şi de încercare pe vatra poporului român. Tu ai pregătit sfinţi mari şi i-ai îmbrăcat sus cu putere pentru cei de pe pământ. Porunceşte acum oştirilor noastre, căci Tu eşti împăratul împăraţilor, iar noi, Doamne, suntem oştenii Tăi. Amin.
+*Binecuvintează, Doamne, ajutorul nostru adus acestui neam, şi sunăm peste el trâmbiță de deșteptare la veghe lângă cei din cer lucrători, căci sunt zile de durere şi de încercare pe vatra poporului român. Tu ai pregătit sfinţi mari şi i-ai îmbrăcat sus cu putere pentru cei de pe pământ. Porunceşte acum oştirilor noastre, căci Tu eşti împăratul împăraţilor, iar noi, Doamne, suntem oştenii Tăi. Amin.*
 
 — Ridicăm oştire cerească, o, sfinţi iubiţi. Asez puterile cereşti la lucru sfânt pentru ocrotirea pământului şi a neamului român, numai să strige la Domnul şi la sfinţi acest neam binecuvântat. O, de nicăieri nu vine izbăvirea, decât de la Domnul, iar adevărul, el este cel ce va birui pentru cei credincioşi, care se bizuie pe Domnul.
 

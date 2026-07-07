@@ -52,7 +52,7 @@ Mă întorc la tine cu cuvântul Meu, popor al Meu din români. Tu eşti sluga M
 
 Am cu Mine în coborâre în ziua aceasta de serbare pe cei doi mari mucenici serbaţi în sobor de sfinţi: Ecaterina şi Mercurie, mari biruitori prin credinţa lor şi prin cuvântul mărturiei lor peste cei necredincioşi din vremea lor. Ei intră cu cuvântul Meu şi spun aşa:
 
-– Mare, o, mare eşti, Doamne, şi minunate sunt lucrurile Tale, şi nu este cuvânt pe potriva slavei Tale când Tu voieşti cu ea peste pământ! Suntem lucrători cu Tine peste poporul Tău de azi şi peste neamul român şi ridicăm pe cei smeriţi, iar celor mândri le stăm împotrivă, aşa cum şi Tu lucrezi, şi se va vedea şi vor înţelege poporul Tău şi neamul român judecata Ta cea dreaptă pentru cei curaţi cu inima şi pentru cei ce nu sunt tot aşa, căci vai celor ce se învelesc cu minciuna şi îşi fac acoperământ din ea, căci goliciunea lor se va descoperi, şi sfinţii Tăi vor împlini aceasta! Amin.
+*– Mare, o, mare eşti, Doamne, şi minunate sunt lucrurile Tale, şi nu este cuvânt pe potriva slavei Tale când Tu voieşti cu ea peste pământ! Suntem lucrători cu Tine peste poporul Tău de azi şi peste neamul român şi ridicăm pe cei smeriţi, iar celor mândri le stăm împotrivă, aşa cum şi Tu lucrezi, şi se va vedea şi vor înţelege poporul Tău şi neamul român judecata Ta cea dreaptă pentru cei curaţi cu inima şi pentru cei ce nu sunt tot aşa, căci vai celor ce se învelesc cu minciuna şi îşi fac acoperământ din ea, căci goliciunea lor se va descoperi, şi sfinţii Tăi vor împlini aceasta! Amin.*
 
 – O, iată Eu şi sfinţii Mei mărturisitori pe pământ cu oamenii, căci mărturia Mea este duhul proorociei. Eu, Domnul, vin pe pământ cuvânt, şi cu sfinţii vin, şi mărturia Mea este duhul proorociei. Amin.
 

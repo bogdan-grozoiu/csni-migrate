@@ -39,13 +39,13 @@ Therefore, sons, carry Me in your body, in your conduct, in your thought, in you
 
 And behold, the devout Parascheva greets My table of word with you and she exhorts you to the love of God, sons.
 
-— Lord and Teacher, I am reminding them of Your commandment, and to all those on earth, and I am saying: Love God! Love Him with all your being, with all you are and love Him to be with Him from everlasting to everlasting then! Make your life from the love for the Lord, the love of your heart, your work, and especially your conduct for God’s sons. He has always given you His love and you should always, always give yours to Him. Do not forget that happy are and will be those who love the Lord, that these promises are written and they will be shared as no one can understand with his mind.
+*— Lord and Teacher, I am reminding them of Your commandment, and to all those on earth, and I am saying: Love God! Love Him with all your being, with all you are and love Him to be with Him from everlasting to everlasting then! Make your life from the love for the Lord, the love of your heart, your work, and especially your conduct for God’s sons. He has always given you His love and you should always, always give yours to Him. Do not forget that happy are and will be those who love the Lord, that these promises are written and they will be shared as no one can understand with his mind.*
 
-And You, Lord, stay in them with Your love moment by moment so that they may work through You and not by themselves, for those who want to do something by themselves are piti-ful, forgetting how small the man is and how great God is.
+*And You, Lord, stay in them with Your love moment by moment so that they may work through You and not by themselves, for those who want to do something by themselves are piti-ful, forgetting how small the man is and how great God is.*
 
-Oh, glory to You with them, glory to You over them, and make it visible, Lord, and make the nations go to it and prepare the great salvation, oh, Lord!
+*Oh, glory to You with them, glory to You over them, and make it visible, Lord, and make the nations go to it and prepare the great salvation, oh, Lord!*
 
-Oh, glory to You from us, those from above, and from them here, where we bow and kiss when You take us with You, when You come with Your saints!
+*Oh, glory to You from us, those from above, and from them here, where we bow and kiss when You take us with You, when You come with Your saints!*
 
 — Oh sons, My saints wish you as God’s sons and the sons of His glory. I want to set on earth My love as man’s happiness who seeks, but I am the One Who have what man seeks, and he does not find as he seeks. I reveal to you with My love over the earth. My Word is My long cry after man. Like a trumpet let on the earth sound God’s word all over and let it be heard over the nations!
 

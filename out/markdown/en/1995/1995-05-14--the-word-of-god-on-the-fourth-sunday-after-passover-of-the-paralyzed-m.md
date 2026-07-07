@@ -31,9 +31,9 @@ Come to God, My Romania! Come, Romanian and do not stay in unbelief, for you hav
 
 Here is the book of My word, as I have spoken from heaven into your midst, Romanian Israel. I have come by word to advise you to the kingdom of the heavens, to remind you of a warm and fresh advice from heaven. Take My kingdom on you and take My kingdom in you, to know that I come, and you will see that I come. If you do not believe now, I will also tell you that I come again; I will tell you when I come. Oh, I would not like you to be naked when I come. Do not throw aside, son, My advice, as I cross the air with it and I come. For forty years I have been coming with My advice on a hidden way, on a secret little path, so that the enemies of the heaven may not catch those that are nourished from heaven. I have always been coming in a whisper, and I have always been hiding with My word into your midst, but now I am crying out loud. Wake up Christian; wake up Romanian, and pray to the Lord, your God, as you, Romania, has got a blessed crown on your forehead. Kneel down My loved people and pray as My Mother, the Virgin prays. My Mother, the Virgin has been praying for you, Romanian country, from your very beginning and to the end of the wickedness, and she cries aloud:
 
-“Oh, holy Lord, heavenly Father,
+*“Oh, holy Lord, heavenly Father,*
 
-Protect the Romanian crown with your hand!”
+*Protect the Romanian crown with your hand!”*
 
 Romania has a crown from God and she is a queen.
 

@@ -50,13 +50,13 @@ O, fiilor, o, fiilor, să crească nădejdea! Să crească puterea iubirii, să 
 
 O, Verginica Mea, o, trâmbița Mea, câtă mângâiere strângi acum din cuvântul Meu de azi, o, câtă! E ziua ta între sfinți, și trebuie să așezi în carte îndemn și să chemi la viață poporul cel înțepenit pe cale. E zi de amintire dulce și cuprinde în ea trei zile: ziua pecetluirii grădiniței cuvântului Meu, apoi ziua apostolului cel întâi chemat, Andrei, și ziua ta de intrare între sfinți, o, trâmbița Mea. Ia trâmbița din mâna îngerului Meu și sună și trezește Duhul ca să-i trezească El pe cei amorțiți!
 
-— Sun, Doamne, sun! Sună trâmbița iarăși, sună Verginica peste poporul cel hrănit din cer!
+*— Sun, Doamne, sun! Sună trâmbița iarăși, sună Verginica peste poporul cel hrănit din cer!*
 
-O, împăcați-vă cu Dumnezeu, voi, cei care dați să vă opriți din mers! Nu veți putea să vă ascundeți ca Adam, căci Domnul vă strigă cu șoapta Lui duioasă și vă îndeamnă la lucru sfânt. Se deschid cărțile și se mărturisește prin ele cuvântul lui Dumnezeu care a stat de vorbă cu voi și s-a scris în carte. Căutați să fiți frumoși, o, că vă urâțesc de tot îndoiala și necredința apoi, acest păcat așa de greu peste cei care cad pedepsiți prin el, prin necredință.
+*O, împăcați-vă cu Dumnezeu, voi, cei care dați să vă opriți din mers! Nu veți putea să vă ascundeți ca Adam, căci Domnul vă strigă cu șoapta Lui duioasă și vă îndeamnă la lucru sfânt. Se deschid cărțile și se mărturisește prin ele cuvântul lui Dumnezeu care a stat de vorbă cu voi și s-a scris în carte. Căutați să fiți frumoși, o, că vă urâțesc de tot îndoiala și necredința apoi, acest păcat așa de greu peste cei care cad pedepsiți prin el, prin necredință.*
 
-Sun, Doamne, sun, că vin zile și împliniri mărețe, proorocite în toată vremea acestei lucrări de cuvânt că vor veni și se vor arăta cu slavă în cer și pe pământ. Tu ești cel de-al șaptelea înger și vei spune: «Săvârșitu-s-a taina lui Dumnezeu!», și apoi toate se vor așeza la dreapta și la stânga, după lucrarea lor.
+*Sun, Doamne, sun, că vin zile și împliniri mărețe, proorocite în toată vremea acestei lucrări de cuvânt că vor veni și se vor arăta cu slavă în cer și pe pământ. Tu ești cel de-al șaptelea înger și vei spune:* «Săvârșitu-s-a taina lui Dumnezeu!»*, și apoi toate se vor așeza la dreapta și la stânga, după lucrarea lor.*
 
-Pace peste poporul cuvântului lui Dumnezeu! Pace Ție, Doamne, și împlinirilor Tale mărețe din vremea aceasta, iar suitele de sfinți și de îngeri se poartă cu Tine de la răsărit la apus și înapoi și vestesc cu putere împărăția lui Dumnezeu, căci Domnul vine pe pământ cu împărăția Sa! Amin.
+*Pace peste poporul cuvântului lui Dumnezeu! Pace Ție, Doamne, și împlinirilor Tale mărețe din vremea aceasta, iar suitele de sfinți și de îngeri se poartă cu Tine de la răsărit la apus și înapoi și vestesc cu putere împărăția lui Dumnezeu, căci Domnul vine pe pământ cu împărăția Sa! Amin.*
 
 — Vin și tot vin, și este fericit Tatăl pentru biruința Mea peste timpurile de sub cer, și toate oștirile cerești pregătesc slava Mea cea văzută de la margini la margini curând, curând.
 

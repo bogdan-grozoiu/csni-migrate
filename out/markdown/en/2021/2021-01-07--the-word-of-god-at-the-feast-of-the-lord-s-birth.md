@@ -61,13 +61,13 @@ The day of My birth was a great mystery, because I came to become Myself known a
 
 Oh, My mother, My Virgin mother, it is Our feast, mother. We are here in the citadel with the saints, We are with the heaven here, My mother.
 
-â�� We are at home here, and We are at home here as in heaven because You have a house here, We have a house here, Jesus Son. It is sweet, and the pain is sweet, it is sweet the memory of my joy and the pain of two thousand years ago, when the Father brought You as a little Child on earth, and I received You, protected You and fed You as a mother does for her own son.
+*â�� We are at home here, and We are at home here as in heaven because You have a house here, We have a house here, Jesus Son. It is sweet, and the pain is sweet, it is sweet the memory of my joy and the pain of two thousand years ago, when the Father brought You as a little Child on earth, and I received You, protected You and fed You as a mother does for her own son.*
 
-Everything that is with God on earth is sweet! It is sweet the memory of Your birth, dear Son! It was beautiful the victory for You in the times of Our persecution, like that after Your cru-cifixion and resurrection, when my spirit received its peace, for You were victorious.
+*Everything that is with God on earth is sweet! It is sweet the memory of Your birth, dear Son! It was beautiful the victory for You in the times of Our persecution, like that after Your cru-cifixion and resurrection, when my spirit received its peace, for You were victorious.*
 
-Glory to those in the highest to the Father, to the Son and to the Holy Spirit, and peace on earth for the day of the feast of Your birth two thousand years, Jesus, Son! Oh, take care of them; take care of those who keep Us to be on earth for the great fulfillment of the renewal, Lord! You were wholly God, and You were a child at the same time so that, we, the people, may know how to be children and to be part of the kingdom of the heavens, Son and child God.
+*Glory to those in the highest to the Father, to the Son and to the Holy Spirit, and peace on earth for the day of the feast of Your birth two thousand years, Jesus, Son! Oh, take care of them; take care of those who keep Us to be on earth for the great fulfillment of the renewal, Lord! You were wholly God, and You were a child at the same time so that, we, the people, may know how to be children and to be part of the kingdom of the heavens, Son and child God.*
 
-Your love deserves glory and worship, and that expectation still hurts Us, it still does, my beloved Son.
+*Your love deserves glory and worship, and that expectation still hurts Us, it still does, my beloved Son.*
 
 â�� Oh, mother, the waiting is sweet, too. With God everything is easier; everything is more soothing, mother.
 

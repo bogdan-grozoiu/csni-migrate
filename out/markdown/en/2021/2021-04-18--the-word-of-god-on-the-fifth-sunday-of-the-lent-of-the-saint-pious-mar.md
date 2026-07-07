@@ -47,13 +47,13 @@ You ministers for the Christian flock, be humble before the flock, for you live 
 
 Oh, Christian, oh, Christian, stop having fun in a sinful way, and do rejoice in a Christian way so that the Lord may rejoice in the midst of the brotherly fellowship, and let not only the devil rejoice, for the devil is constantly gathering the sins of men to give them the wicked payment, but behold, beside My voice is now speaking this warrior against sin, after she had renounced the poisonous sweetness, for she overcame satan with Me, and here is now her advice:
 
-â�� Oh, Lord, oh, Lord, the bitter taste of sin, the sinful man like me, does not know its bitterness except after he is driven away by Your love, suffering from his black sins, and with which he cannot stay near God with his life.
+*â�� Oh, Lord, oh, Lord, the bitter taste of sin, the sinful man like me, does not know its bitterness except after he is driven away by Your love, suffering from his black sins, and with which he cannot stay near God with his life.*
 
-Oh, Lord, there is no greater bitterness than the expulsion of the sinner from before Your mercy, oh, for the spirit of the man driven from paradise was painful, and he did not want to come to repentance for the pain which he had inflicted on You with his sin, but he rather sided with sin.
+*Oh, Lord, there is no greater bitterness than the expulsion of the sinner from before Your mercy, oh, for the spirit of the man driven from paradise was painful, and he did not want to come to repentance for the pain which he had inflicted on You with his sin, but he rather sided with sin.*
 
-I, Lord, completely repented, I totally dedicated myself to You, oh, because I had sinned too much and too hard, and only a life far from sin and far from people was able to keep the promise I had made, and so that You might not drive me away from Your face because of my heavy sins. Oh, and now I am telling to all the sinners to sweeten themselves with the life of their Christian life, and in such a way that they may not find the bitterness worked through sin and which drives man away from Your face. This is deliverance from satan: non-sinning is, oh, Lord.
+*I, Lord, completely repented, I totally dedicated myself to You, oh, because I had sinned too much and too hard, and only a life far from sin and far from people was able to keep the promise I had made, and so that You might not drive me away from Your face because of my heavy sins. Oh, and now I am telling to all the sinners to sweeten themselves with the life of their Christian life, and in such a way that they may not find the bitterness worked through sin and which drives man away from Your face. This is deliverance from satan: non-sinning is, oh, Lord.*
 
-Oh, the whole of Your word over the earth and over man is waited to be fulfilled, Lord, because righteousness will come, for this is written, but make all those on earth one hour before, doing this, so that You may give them a good reward too, Lord, oh, and that You may have reasons to give them too.[/legatura_la_teme]
+*Oh, the whole of Your word over the earth and over man is waited to be fulfilled, Lord, because righteousness will come, for this is written, but make all those on earth one hour before, doing this, so that You may give them a good reward too, Lord, oh, and that You may have reasons to give them too.*[/legatura_la_teme]
 
 â�� You, dear loved saints, you accompany Me within My coming, and your prayers go before Me, and the love in them works and will leave love in men, love for God in them.
 

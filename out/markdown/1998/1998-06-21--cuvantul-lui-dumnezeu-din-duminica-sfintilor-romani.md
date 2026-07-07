@@ -46,11 +46,11 @@ Iar voi, păstori ai Domnului, cercetaţi povara cea din spatele măgăruşilor,
 
 O, Verginico, am coborât pe calea cărţii tale, căci am învăţat îndeosebi pe Israel cel care ascultă. O, Verginico, e grea povara celor ce au de purtat pe Israel spre cer.
 
-– O, e grea, Doamne, că Israel se lasă povară. Israel vrea să-i fie lui dulce şi bine cu Tine, nu vrea să-Ţi fie Ţie dulce cu el. Trebuie să vedem cine este Israel în Israel, şi cine nu este Israel în Israel. Trebuie să vedem, Doamne, şi vom vedea, căci ochiul cel ceresc este atoatevăzătorul. Amin.
+*– O, e grea, Doamne, că Israel se lasă povară. Israel vrea să-i fie lui dulce şi bine cu Tine, nu vrea să-Ţi fie Ţie dulce cu el. Trebuie să vedem cine este Israel în Israel, şi cine nu este Israel în Israel. Trebuie să vedem, Doamne, şi vom vedea, căci ochiul cel ceresc este atoatevăzătorul. Amin.*
 
-O, Israele care eşti Israel, israeleşte-te desăvârşit, că Domnul Dumnezeul tău este desăvârşit. O, Israele care nu eşti Israel în Israel, înţelepţeşte-te cu cele de la Dumnezeu dacă vrei să găseşti taina lui Dumnezeu în tine, căci Israel este poporul Domnului, şi este taina lui Dumnezeu, şi este semn peste pământ.
+*O, Israele care eşti Israel, israeleşte-te desăvârşit, că Domnul Dumnezeul tău este desăvârşit. O, Israele care nu eşti Israel în Israel, înţelepţeşte-te cu cele de la Dumnezeu dacă vrei să găseşti taina lui Dumnezeu în tine, căci Israel este poporul Domnului, şi este taina lui Dumnezeu, şi este semn peste pământ.*
 
-Fiilor, fiilor ascultători în Israel, fiţi semn spre cer unii pentru alţii şi uitaţi-vă la cel de la cârmă ca să înţelegeţi şi să fiţi semn. Cei înţelepţi se înţeleg şi lucrează aceeaşi lucrare şi sunt toţi una în Hristos. Amin, amin, amin.
+*Fiilor, fiilor ascultători în Israel, fiţi semn spre cer unii pentru alţii şi uitaţi-vă la cel de la cârmă ca să înţelegeţi şi să fiţi semn. Cei înţelepţi se înţeleg şi lucrează aceeaşi lucrare şi sunt toţi una în Hristos. Amin, amin, amin.*
 
 – O, Verginica Mea, ce taină mare ai învăţat tu acum pe Israel! Cei înţelepţi se înţeleg şi lucrează toţi aceeaşi lucrare şi sunt toţi una în Hristos. Cei înţelepţi au acelaşi cuvânt toţi, şi se cunosc că au. Amin.
 

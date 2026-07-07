@@ -40,13 +40,13 @@ O, cum vă este bucuria în ziua aceasta în cer și pe pământ aici cu Mine, f
 
 O, binecuvântată să vă fie grăirea peste țară, oșteni bravi! Eu, Domnul, vă am în cinste mare între sfinți, după cum și voi M-ați purtat la bine și la greu în ființa voastră, iar Eu Mă aplec binecuvântând măreața voastră vitejie prin vremi de răstriște și apărând țara, țara Mea cea de azi, la care Eu vin cu masă de cuvânt pe pământ. Amin.
 
-— O, cine este Dumnezeu mare ca Tine, Doamne Dumnezeul nostru? Harul Tău ne-a înflăcărat și ne-a pus în inimă iubirea de țară și de neam, și suspinăm în cer de lipsa de bărbați tari, care să se scoale și acum să spele țara de cădere și de depărtare de Dumnezeu. Iubire ca focul avem și acum pentru țară, iar dacă Tu ne pui acum înaintea Ta mijlocitori pentru neamul român și ne scoli la veghe, o, Te rugăm, trezește viteji adevărați și ridică-i și scoate țara din clește, Doamne, și ridic-o în cinstea cea de la Tine hărăzită ei.
+*— O, cine este Dumnezeu mare ca Tine, Doamne Dumnezeul nostru? Harul Tău ne-a înflăcărat și ne-a pus în inimă iubirea de țară și de neam, și suspinăm în cer de lipsa de bărbați tari, care să se scoale și acum să spele țara de cădere și de depărtare de Dumnezeu. Iubire ca focul avem și acum pentru țară, iar dacă Tu ne pui acum înaintea Ta mijlocitori pentru neamul român și ne scoli la veghe, o, Te rugăm, trezește viteji adevărați și ridică-i și scoate țara din clește, Doamne, și ridic-o în cinstea cea de la Tine hărăzită ei.*
 
-O, câtă bucurie pe noi în ziua aceasta de slavă! O, ce frumos e cu Tine aici, Doamne! Iată țara noastră! Îi simțeam menirea și ne aprindeam de drag și luptam cu Tine în față și numai biruințe ne-ai dat.
+*O, câtă bucurie pe noi în ziua aceasta de slavă! O, ce frumos e cu Tine aici, Doamne! Iată țara noastră! Îi simțeam menirea și ne aprindeam de drag și luptam cu Tine în față și numai biruințe ne-ai dat.*
 
-O, ridicați-vă, români, la cinstea pe care o are de la Domnul a noastră țară!
+*O, ridicați-vă, români, la cinstea pe care o are de la Domnul a noastră țară!*
 
-O, dă-le, Doamne, de la Duhul Sfânt Mângâietorul, Care ne mângâie pe noi între sfinții Tăi, precum și noi L-am mângâiat, fiindu-I credincioși! O, așează, Doamne, toată slava Ta cea mare pe pământul nostru român! Amin.
+*O, dă-le, Doamne, de la Duhul Sfânt Mângâietorul, Care ne mângâie pe noi între sfinții Tăi, precum și noi L-am mângâiat, fiindu-I credincioși! O, așează, Doamne, toată slava Ta cea mare pe pământul nostru român! Amin.*
 
 — Vă dau vouă acum împodobire și mai mare între cei din cer, că ați fost voievozi cu iubire de țară și cu durere în inimi pentru neam, iar Eu, Domnul, vă așez în rangul pe care voi l-ați dobândit, căci v-ați pus nădejdea în Mine, nu în oameni, nu în căpetenii, și de aceea ați fost biruitori, iar acum, iată sărbătoare românească, și petrecerea este dulce. Slava Mea cuprinde cetatea și umple de slavă de cuvânt pe cei ce s-au adunat la sărbătoare.
 

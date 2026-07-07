@@ -30,9 +30,9 @@ Am foc aprins în Duhul Meu pentru un sufleţel de la celălalt capăt al pămâ
 
 Să se coboare foc din cer peste toată răzvrătirea cea îndreptată asupra cărării cuvântului Meu, care grăieşte pe pământ. Să se mistuie tot răul din calea Mea şi a poporului Meu, care crede în venirea Mea la el. Amin. Ilie, proorocul Meu, vă spune vouă:
 
-– Sunt mulţi care nu şi-au plecat genunchii înaintea lui Baal, şi aceia la glasul şi porunca Domnului vor fi fii ai acestui cuvânt curând, curând, căci cu cât împotrivirea spre cuvântul Domnului se scoală cu duh de răzvrătire, cu atât mai mult creşte credinţa în oameni, creşte focul Duhului Sfânt, pe care Domnul l-a aruncat pe pământ în zilele voastre şi care se tot aprinde, se tot aprinde şi nu se stinge, ci se aprinde. Amin. Fiţi plini de milă, fiţi plini de duhul umilinţei aşa cum am fost eu înaintea Domnului, dar nu înaintea omului vrăjmaş lui Dumnezeu. Amin.
+*– Sunt mulţi care nu şi-au plecat genunchii înaintea lui Baal, şi aceia la glasul şi porunca Domnului vor fi fii ai acestui cuvânt curând, curând, căci cu cât împotrivirea spre cuvântul Domnului se scoală cu duh de răzvrătire, cu atât mai mult creşte credinţa în oameni, creşte focul Duhului Sfânt, pe care Domnul l-a aruncat pe pământ în zilele voastre şi care se tot aprinde, se tot aprinde şi nu se stinge, ci se aprinde. Amin. Fiţi plini de milă, fiţi plini de duhul umilinţei aşa cum am fost eu înaintea Domnului, dar nu înaintea omului vrăjmaş lui Dumnezeu. Amin.*
 
-Aş voi să grăiesc poporului Tău, Doamne, dar pot cei din porţi să ne ţină?
+*Aş voi să grăiesc poporului Tău, Doamne, dar pot cei din porţi să ne ţină?*
 
 – O, proorocule mare, vom căuta să poată ei, şi acum să le dăm să meargă la cei veniţi la izvor, dar să le dăm putere să lucreze peste ei, căci vin cu dor şi cu foc cei ce vin, şi apoi îi vom întări în cuvânt şi vor face bine cu el. Amin.
 

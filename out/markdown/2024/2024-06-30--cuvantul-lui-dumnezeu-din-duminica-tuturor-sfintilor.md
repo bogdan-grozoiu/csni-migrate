@@ -34,12 +34,12 @@ Vă vom da din cer deslușirea a toate, căci Eu, Domnul, lucrez, Eu, fiilor, Eu
 
 [/legatura_la_teme][legatura_la_teme id_capitol="4" id_subcapitol="2"]Și dă-le acum și tu, Verginico, dă-le lor îndemn sfânt pentru lucrările Noastre cu ei, și trebuie din cer să vină tot lucrul pe care-l avem de lucrat cu ei, căci vin zile mari, vin zile de biruință pentru Noi în țara Mea cea de azi, pământul neamului român.
 
-— O, cum să nu vă dăm, fiilor, cum să nu vină din cer peste voi sprijinul tot, când sunt atâtea de lucrat și de așezat spre mărturisirea lucrării cuvântului, vreme de șaptezeci de ani pe pământul român, țara aleasă la sfârșit de timp pentru slava Domnului?
+*— O, cum să nu vă dăm, fiilor, cum să nu vină din cer peste voi sprijinul tot, când sunt atâtea de lucrat și de așezat spre mărturisirea lucrării cuvântului, vreme de șaptezeci de ani pe pământul român, țara aleasă la sfârșit de timp pentru slava Domnului?*
 
-Vă țin mereu sub grija cea de sus, și multă duioșie am pentru voi, pentru lucrul cel greu de peste voi. E slava cerească toată lângă voi. Tatăl stă tot timpul de veghe pentru voi, pentru Fiul Său Hristos, Care Se așează pe pământ prin voi cu lucrarea slavei Sale, fiilor.
+*Vă țin mereu sub grija cea de sus, și multă duioșie am pentru voi, pentru lucrul cel greu de peste voi. E slava cerească toată lângă voi. Tatăl stă tot timpul de veghe pentru voi, pentru Fiul Său Hristos, Care Se așează pe pământ prin voi cu lucrarea slavei Sale, fiilor.*
 
-S-a spus demult prin acest izvor de cuvânt că vine o păsărică din cer ca să stea împărat peste pământ. O, iată vremea! Domnul cârmuiește tainic, fiilor, numai să dați voi ființă cuvântului Său, care ca o păsărică ciripește și se împarte peste tot. Iar voi stați în dragostea cea cu putere în ea și în credința care împlinește și veți fi bucuria Domnului și mângâierea Lui, și iată, multă binecuvântare lasă Domnul peste voi pentru lucrările Sale cu voi, o, fiilor.
+*S-a spus demult prin acest izvor de cuvânt că vine o păsărică din cer ca să stea împărat peste pământ. O, iată vremea! Domnul cârmuiește tainic, fiilor, numai să dați voi ființă cuvântului Său, care ca o păsărică ciripește și se împarte peste tot. Iar voi stați în dragostea cea cu putere în ea și în credința care împlinește și veți fi bucuria Domnului și mângâierea Lui, și iată, multă binecuvântare lasă Domnul peste voi pentru lucrările Sale cu voi, o, fiilor.*
 
-— O, Verginico, Eu sunt mereu cu binecuvântarea Mea peste ei.
+*— O, Verginico, Eu sunt mereu cu binecuvântarea Mea peste ei.*
 
 Eu sunt mereu cu voi, fiilor, căci împlinirile așteaptă la hotar, că are cerul de așezat pe pământul român taina și slava Noului Ierusalim și nunta veșniciei, și toate făgăduințele scrise în Scripturi vin să se așeze cu lucrare de rai înnoit peste țara venirii Mele de azi, țara română, aleasa Mea la sfârșit de timp, și din care Eu voi împărți peste pământ împărăția Mea cea dulce, cerul cel nou şi pământul cel nou, taina și priveliștea Noului Ierusalim așezat pe pământ, o, fiilor. Amin, amin, amin. [/legatura_la_teme]

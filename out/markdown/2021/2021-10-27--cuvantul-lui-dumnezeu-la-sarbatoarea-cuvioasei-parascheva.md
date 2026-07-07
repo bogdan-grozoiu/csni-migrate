@@ -38,13 +38,13 @@ Așadar, fiilor, purtați-Mă în trupul vostru, în purtarea voastră, în gân
 
 Și iată, cuvioasa Parascheva salută masa Mea de cuvânt cu voi și vă dă îndemnul ei: iubirea de Dumnezeu, fiilor.
 
-— Porunca Ta, Doamne Învățător, le-o aduc eu aminte lor, și la toți cei de pe pământ, și spun: Iubiți-L pe Dumnezeu! Iubiți-L din toată ființa voastră, din tot ce sunteți voi iubiți-L pe El, ca să fiți cu El apoi pe veci de veci! Faceți din iubirea cea pentru Domnul viața voastră, dorirea inimii voastre, lucrarea voastră, și mai ales purtarea cea pentru fiii lui Dumnezeu. Iubirea Lui v-o dă El vouă mereu. Mereu, mereu și voi să I-o dați pe a voastră. Nu uitați că fericiți sunt și vor fi cei ce iubesc pe Domnul, iar făgăduințele acestea sunt scrise, și vor fi împărțite cât nimeni nu poate înțelege cu mintea.
+*— Porunca Ta, Doamne Învățător, le-o aduc eu aminte lor, și la toți cei de pe pământ, și spun: Iubiți-L pe Dumnezeu! Iubiți-L din toată ființa voastră, din tot ce sunteți voi iubiți-L pe El, ca să fiți cu El apoi pe veci de veci! Faceți din iubirea cea pentru Domnul viața voastră, dorirea inimii voastre, lucrarea voastră, și mai ales purtarea cea pentru fiii lui Dumnezeu. Iubirea Lui v-o dă El vouă mereu. Mereu, mereu și voi să I-o dați pe a voastră. Nu uitați că fericiți sunt și vor fi cei ce iubesc pe Domnul, iar făgăduințele acestea sunt scrise, și vor fi împărțite cât nimeni nu poate înțelege cu mintea.*
 
-Iar Tu, Doamne, așează-Te clipă de clipă în ei cu iubirea Ta ca să poată ei prin Tine și nu prin ei, căci de plâns sunt cei ce dau să poată prin ei înșiși, uitând ce mic e omul și ce mare este Dumnezeu.
+*Iar Tu, Doamne, așează-Te clipă de clipă în ei cu iubirea Ta ca să poată ei prin Tine și nu prin ei, căci de plâns sunt cei ce dau să poată prin ei înșiși, uitând ce mic e omul și ce mare este Dumnezeu.*
 
-O, slavă Ție cu ei, slavă Ție peste ei, și fă-o văzută, Doamne, și fă să meargă spre ea noroadele și să pregătești tuturor mântuirea cea mare, o, Doamne!
+*O, slavă Ție cu ei, slavă Ție peste ei, și fă-o văzută, Doamne, și fă să meargă spre ea noroadele și să pregătești tuturor mântuirea cea mare, o, Doamne!*
 
-O, slavă Ție de la noi, cei de sus, și de la ei de aici, unde noi ne aplecăm și sărutăm când Tu ne iei cu Tine, când vii cu sfinții Tăi!
+*O, slavă Ție de la noi, cei de sus, și de la ei de aici, unde noi ne aplecăm și sărutăm când Tu ne iei cu Tine, când vii cu sfinții Tăi!*
 
 — O, fiilor, sfinții Mei vă urează ca fii ai lui Dumnezeu și ai slavei Lui. Iubirea Mea voiesc s-o așez pe pământ ca fericire a omului care caută, dar Eu sunt Cel ce am ceea ce omul caută, și nu găsește așa cum caută el. Mă descopăr la voi cu iubirea Mea peste pământ. Cuvântul Meu este strigătul Meu prelung după om. Să trâmbițeze peste tot pământul cuvântul lui Dumnezeu și să se audă peste noroade!
 

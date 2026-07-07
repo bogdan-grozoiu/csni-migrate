@@ -9,9 +9,9 @@ audio:
 audio_file: 
 ---
 
-... Behold, my children, a new word, as the beginning from you is new. I told you that we make a new thing, a new people, a heavenly and an imperishable people. My loved ones, we make a new church, an everlasting church, a beginning of everlasting and imperishable church. Amen.
+*... Behold, my children, a new word, as the beginning from you is new. I told you that we make a new thing, a new people, a heavenly and an imperishable people. My loved ones, we make a new church, an everlasting church, a beginning of everlasting and imperishable church. Amen.*
 
-A heavenly and sweet word is coming down with the heavenly love for the loved one that is loved and waited by the entire heaven, for the one that loves God, for the one, who is called and chosen and faithful, for he is faithful. A word of adornment and incorruptible life comes down; a clothing, a word of heavenly mystery. The Lord, Jesus Christ, tells me to bring His word to you, to this loved of ours, for he is ours, sons.
+*A heavenly and sweet word is coming down with the heavenly love for the loved one that is loved and waited by the entire heaven, for the one that loves God, for the one, who is called and chosen and faithful, for he is faithful. A word of adornment and incorruptible life comes down; a clothing, a word of heavenly mystery. The Lord, Jesus Christ, tells me to bring His word to you, to this loved of ours, for he is ours, sons.*
 
 — Be careful again, My loved one, My loved child. Those that are written in the book are being fulfilled, those written for this time. Behold, it buds; behold a new thing; I come to fulfill it. Be careful, for we will work a new thing, a New Jerusalem, a new and eternal life. Amen.
 

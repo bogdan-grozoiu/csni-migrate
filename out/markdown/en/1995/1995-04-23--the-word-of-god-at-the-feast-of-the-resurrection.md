@@ -71,13 +71,13 @@ The heaven waits to come with glory upon the earth. Jerusalem, My people of Roma
 
 Oh My Father, it is My Passover with My people that You gave Me out of the Romanian body. Bless the gift from You, and let the power of the blessing remain upon the people of the New Jerusalem, which arises and which will grow and be holy. My Father, bless My joy and My Passover with the people that are My bride.
 
-— Dear and loved Son, I gave You all the power in heaven and on earth, and I made You a beginning and I started a planting from You, and behold, the field from the end will be green, dear Son. We will work a new man out of man.
+*— Dear and loved Son, I gave You all the power in heaven and on earth, and I made You a beginning and I started a planting from You, and behold, the field from the end will be green, dear Son. We will work a new man out of man.*
 
-We will increase the light, which is called the book of the Word, and the book will speak, and the man will rise to life after the path that leads into heaven, and We will give the heaven back to the man and will establish the new heaven and the new earth upon the man. Oh, Son, let Our joy seize the small people that We remained at the table of My word with.
+*We will increase the light, which is called the book of the Word, and the book will speak, and the man will rise to life after the path that leads into heaven, and We will give the heaven back to the man and will establish the new heaven and the new earth upon the man. Oh, Son, let Our joy seize the small people that We remained at the table of My word with.*
 
-People of My Son, may My Son bless you into His Father; I in Him and He in Me before you, people, My light on the earth! And I will give you light as a food and you will give forth light day by day, and the Sun will lose its brightness more and more at the sight of My glory with you, and the man will look for you to put his steps on the path, as there are no other paths. It is only a path and something else is a road to death.
+*People of My Son, may My Son bless you into His Father; I in Him and He in Me before you, people, My light on the earth! And I will give you light as a food and you will give forth light day by day, and the Sun will lose its brightness more and more at the sight of My glory with you, and the man will look for you to put his steps on the path, as there are no other paths. It is only a path and something else is a road to death.*
 
-Man, receive your life back! I did not declare death upon you, but I speak now to the death to give you back to God. I am the Father, the Son and the Holy Spirit and I do the work of incorruptibility in the man. Amen.
+*Man, receive your life back! I did not declare death upon you, but I speak now to the death to give you back to God. I am the Father, the Son and the Holy Spirit and I do the work of incorruptibility in the man. Amen.*
 
 — Oh, My Father, I let Your joy and Mine upon the people, blessed by the word. I let an eternal Passover and a new and holy supper by holiness of the body and soul, as this kind of worshippers I need.
 

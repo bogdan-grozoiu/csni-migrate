@@ -35,12 +35,12 @@ We will give you from heaven the explanation of everything, for I, the Lord, wor
 
 [/legatura_la_teme][legatura_la_teme id_capitol="4" id_subcapitol="2"]And now you too, Virginia, give them holy encouragement for Our works with them, and may all the work We have to do with them come from heaven, for great days are coming, days of victory are coming for Us in My country today, the land of the Romanian nation.
 
-— Oh, how can we not give you, my sons, how can we not receive from heaven all the support you need, when there is so much to work and to be placed in witnessing to the work of the word, for seventy years on Romanian soil, the country chosen at the end of time for the glory of the Lord?
+*— Oh, how can we not give you, my sons, how can we not receive from heaven all the support you need, when there is so much to work and to be placed in witnessing to the work of the word, for seventy years on Romanian soil, the country chosen at the end of time for the glory of the Lord?*
 
-I always keep you under the care of the Lord, and I have much tenderness for you, for the heavy work upon you. The whole heavenly glory is near you. The Father is always watching over you, for His Son Christ, Who settles on earth through you with the work of His glory, the sons.
+*I always keep you under the care of the Lord, and I have much tenderness for you, for the heavy work upon you. The whole heavenly glory is near you. The Father is always watching over you, for His Son Christ, Who settles on earth through you with the work of His glory, the sons.*
 
-It was said long ago through this spring of word that a bird from heaven would come to sit as king over the earth. Oh, here is the time! The Lord rules secretly, sons, only you may give life to His word, which like a bird chirps and spreads everywhere. And you are to stand in the love that is strong in it and in the faith that fulfills and you will be the joy of the Lord and His comfort, and behold, the Lord leaves much blessing upon you for His works with you, oh sons.
+*It was said long ago through this spring of word that a bird from heaven would come to sit as king over the earth. Oh, here is the time! The Lord rules secretly, sons, only you may give life to His word, which like a bird chirps and spreads everywhere. And you are to stand in the love that is strong in it and in the faith that fulfills and you will be the joy of the Lord and His comfort, and behold, the Lord leaves much blessing upon you for His works with you, oh sons.*
 
-— Oh, Virginia, I am always with My blessing upon them.
+*— Oh, Virginia, I am always with My blessing upon them.*
 
 I am always with you, sons, for the fulfillments await at the border, for heaven has to establish on the Romanian earth the mystery, glory of the New Jerusalem and the wedding of eternity, and all the promises written in the Scriptures are coming to be established with the work of a renewed paradise over the land of My coming today, the Romanian land, My chosen one at the end of time, and from which, I will divide over the earth My sweet kingdom, the new heaven and the new earth, the mystery and the sight of the New Jerusalem established on earth, oh, sons. Amen, amen, amen.[/legatura_la_teme]

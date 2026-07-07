@@ -33,11 +33,11 @@ Oh, réjouissez vous, ceux de la terre, qui ne pouvez pas agir du côté de la s
 
 Et maintenant Jean le Baptiste laisse de la consolation sur les fils de la cité de Ma parole, et il témoigne comme alors pour le Seigneur, en disant maintenant aussi:
 
-— Voici l’Agneau de Dieu, qui ôte le péché du monde, Le voilà en parlant au-dessus de la terre et en claironnant avec Sa venue, tel qu’il est écrit qu’Il vienne et qu’Il claironne!
+*— Voici l’Agneau de Dieu, qui ôte le péché du monde, Le voilà en parlant au-dessus de la terre et en claironnant avec Sa venue, tel qu’il est écrit qu’Il vienne et qu’Il claironne!*
 
-Et vous, disciples travailleurs avec Lui, n’ayez pas peur d’être petits, puisque les grands sont plus impuissants car ils sont pleins de peur, ils ont peur les uns les autres, et ils se mettent à guetter par peur, mais vous restez sous la garde du Seigneur, car Il se soucie des peuples et du pays de Sa parole, de la Roumanie, le pays de la venue du Seigneur, le Pays du retour du Seigneur Jésus-Christ en parole sur la terre, oh, et Il prend soin de vous et de Sa cité avec vous , et beaucoup de bien naîtra de Son œuvre avec vous, et il y aura beaucoup à comprendre combien d’amour a été caché par le travail, par le séjour du Seigneur avec vous sur la terre.
+*Et vous, disciples travailleurs avec Lui, n’ayez pas peur d’être petits, puisque les grands sont plus impuissants car ils sont pleins de peur, ils ont peur les uns les autres, et ils se mettent à guetter par peur, mais vous restez sous la garde du Seigneur, car Il se soucie des peuples et du pays de Sa parole, de la Roumanie, le pays de la venue du Seigneur, le Pays du retour du Seigneur Jésus-Christ en parole sur la terre, oh, et Il prend soin de vous et de Sa cité avec vous , et beaucoup de bien naîtra de Son œuvre avec vous, et il y aura beaucoup à comprendre combien d’amour a été caché par le travail, par le séjour du Seigneur avec vous sur la terre.*
 
-Oh, Seigneur, il arrivera que Tu affermisses leur paix, la quiétude qui fait de la paix et du bien, car sans Toi, personne ne peut rien faire, pas même ceux qui ont œuvre d’ennemis, et qui peuvent avec leur méchanceté seulement autant que Tu leur permets, pour mettre à l’épreuve l’amour de ceux qui aiment et qui T’aiment.
+*Oh, Seigneur, il arrivera que Tu affermisses leur paix, la quiétude qui fait de la paix et du bien, car sans Toi, personne ne peut rien faire, pas même ceux qui ont œuvre d’ennemis, et qui peuvent avec leur méchanceté seulement autant que Tu leur permets, pour mettre à l’épreuve l’amour de ceux qui aiment et qui T’aiment.*
 
 — Oh, grand disciple, c’est parole de baptême que tu as mis au-dessus de la terre et des hommes par ta voix laissée dans la cité de Ma parole.
 

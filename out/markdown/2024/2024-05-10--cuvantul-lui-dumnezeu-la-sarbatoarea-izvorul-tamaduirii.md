@@ -36,10 +36,10 @@ O, fiilor, așa am spus acum două mii de ani ucenicilor Mei: *«Eu în voi, și
 
 Mama Mea Fecioara și sărbătoarea ei de azi, ucenicii și ucenițele Mele de acum două mii de ani, toți salută cu duh de înviere strângerea voastră lângă cuvântul Meu și vă spun ei acum:
 
-— Hristos a înviat! Așa le spunem lor cu duh de tămăduire, Doamne înviat! Toți le dorim statul Tău în ei, și al lor în Tine, o, Doamne. Toți așteptăm această mângâiere și împlinire a Ta în ei spre slava Ta cea văzută, așa încât să-L vadă oricine pe Dumnezeu strălucind și mărturisind din ei Ființa Ta în mijlocul oamenilor pe pământ în vremea aceasta.
+*— Hristos a înviat! Așa le spunem lor cu duh de tămăduire, Doamne înviat! Toți le dorim statul Tău în ei, și al lor în Tine, o, Doamne. Toți așteptăm această mângâiere și împlinire a Ta în ei spre slava Ta cea văzută, așa încât să-L vadă oricine pe Dumnezeu strălucind și mărturisind din ei Ființa Ta în mijlocul oamenilor pe pământ în vremea aceasta.*
 
-O, e dulce cuvântul Tău de peste ei. Suntem în Tine, iar Tu în noi aici, o, și ce mare este taina Ta, numai s-o deslușească ei prin dor de Tine și de credință pentru Tine cu ei mereu, o, Doamne înviat.
+*O, e dulce cuvântul Tău de peste ei. Suntem în Tine, iar Tu în noi aici, o, și ce mare este taina Ta, numai s-o deslușească ei prin dor de Tine și de credință pentru Tine cu ei mereu, o, Doamne înviat.*
 
-Pace vouă, copii de la sfârșit de timp purtători de Dumnezeu și de taine mari, pe care mintea omului nu le poate rumega, dar Domnul este cu voi ca în ziua învierii, o, fiilor! O, fiți și voi cu El și fiți în El, așa cum Domnul în voi voiește să fie. Amin.
+*Pace vouă, copii de la sfârșit de timp purtători de Dumnezeu și de taine mari, pe care mintea omului nu le poate rumega, dar Domnul este cu voi ca în ziua învierii, o, fiilor! O, fiți și voi cu El și fiți în El, așa cum Domnul în voi voiește să fie. Amin.*
 
 — Da, fiilor, Eu, Domnul stau cu cei din cer între voi și vă hrănesc cu cele de sus ca să le așez pe pământ, căci cerul și pământul se fac noi precum este scris. Cuvântul Meu împlinește această profeție, iar voi fiți sprijinul Meu și vestirea Mea pe pământ cu tot graiul gurii Mele, căci la început a fost Cuvântul, și Cuvântul era la Dumnezeu, și Dumnezeu era Cuvântul, o, și tot așa și la sfârșit, căci sfârșitul merge spre început, merge spre rai, merge Domnul, merge mereu, mereu, și merge cu voi, o, fiilor. Amin, amin, amin.

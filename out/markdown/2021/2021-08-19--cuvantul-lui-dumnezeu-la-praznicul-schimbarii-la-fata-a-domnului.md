@@ -30,15 +30,15 @@ Așadar, voiesc să fiți copii înaintea Mea, fiilor, ca să-Mi pot purta cu vo
 
 Acum toți cei de pe munte din ziua aceea suntem în cer, suntem sus și lucrăm peste pământ, lucrăm pe pământ cu voi, fiilor, iar martorii acelei zile iată ce spun ei vouă:
 
-— O, fii ai lui Hristos Cuvântul, păstrați-vă în fericirea adusă vouă de Domnul! Cea mai mare lucrare pe care o aveți de lucrat este mântuirea, grija cea de căpătâi a fiilor lui Dumnezeu, și de care oamenii pe pământ s-au depărtat pentru grijile lor trupești și pământești, care îi iau din fața Domnului spre lucrul cel care nu dăinuiește.
+*— O, fii ai lui Hristos Cuvântul, păstrați-vă în fericirea adusă vouă de Domnul! Cea mai mare lucrare pe care o aveți de lucrat este mântuirea, grija cea de căpătâi a fiilor lui Dumnezeu, și de care oamenii pe pământ s-au depărtat pentru grijile lor trupești și pământești, care îi iau din fața Domnului spre lucrul cel care nu dăinuiește.*
 
-Cad ca merele din pom cei nesănătoși cu credința și cu faptele credinței, și de aceea fiți destoinici cu duhul și stați alipiți de cei ce vă poartă spre Tatăl și spre voia Sa, căci voi știți că sluga care știe și nu face voia Stăpânului va fi bătută mult, nu ca lumea care nu știe, ci ca cel ce știe și nu ascultă de voia Stăpânului său.
+*Cad ca merele din pom cei nesănătoși cu credința și cu faptele credinței, și de aceea fiți destoinici cu duhul și stați alipiți de cei ce vă poartă spre Tatăl și spre voia Sa, căci voi știți că sluga care știe și nu face voia Stăpânului va fi bătută mult, nu ca lumea care nu știe, ci ca cel ce știe și nu ascultă de voia Stăpânului său.*
 
-Suntem însoțitorii Domnului pe calea venirii Lui cuvânt pe pământ, căci Domnul merge cu martori. Așa să lucrați și voi pe cale cu Domnul, cu inimă curată în voi, și martori ai Lui să fiți, că mult Îl aveți pe Domnul cu voi, mult învățându-vă El pe voi, iar voi să spuneți mereu: „Noi nu mai trăim, căci Domnul trăiește în noi, și prin El suntem”.
+*Suntem însoțitorii Domnului pe calea venirii Lui cuvânt pe pământ, căci Domnul merge cu martori. Așa să lucrați și voi pe cale cu Domnul, cu inimă curată în voi, și martori ai Lui să fiți, că mult Îl aveți pe Domnul cu voi, mult învățându-vă El pe voi, iar voi să spuneți mereu:* „Noi nu mai trăim, căci Domnul trăiește în noi, și prin El suntem”.
 
-O, dă-le, Doamne, credință tare și râvnă pentru credință, și apoi statornicie pe vecii, o, că mulți au fost nestatornici și au căzut ca merele din pom, iar statornicia se dovedește prin credință și prin ascultare, și acestea îi statornicesc pe cei statornici, iar altfel duhul lui satana împrăștie farmece și vrăji înaintea și în urma celor ce se abat spre duh de neascultare și de lume și cu lumea, căci cele de la diavol nu au drum spre creștinul nestatornic decât prin neascultare și prin credință înjumătățită, o, și nu poate Domnul întru cei nestatornici, fiindcă poate satana asupra lor.
+*O, dă-le, Doamne, credință tare și râvnă pentru credință, și apoi statornicie pe vecii, o, că mulți au fost nestatornici și au căzut ca merele din pom, iar statornicia se dovedește prin credință și prin ascultare, și acestea îi statornicesc pe cei statornici, iar altfel duhul lui satana împrăștie farmece și vrăji înaintea și în urma celor ce se abat spre duh de neascultare și de lume și cu lumea, căci cele de la diavol nu au drum spre creștinul nestatornic decât prin neascultare și prin credință înjumătățită, o, și nu poate Domnul întru cei nestatornici, fiindcă poate satana asupra lor.*
 
-O, aveți grijă de credință, voi, cei iubiți de Dumnezeu, și nu uitați de datoria cea mare pentru această iubire a Sa vouă!
+*O, aveți grijă de credință, voi, cei iubiți de Dumnezeu, și nu uitați de datoria cea mare pentru această iubire a Sa vouă!*
 
 — Acum, Eu, Domnul, așez îngerii în ajutorul vostru și veți lucra cu îngerii ca să fie gătită ziua de serbare pentru mama Mea Fecioara, zi de slavă cerească, fiilor, căci slava cerească este s-o așezăm peste pământ în chip văzut curând, curând, și toate se așează prin cuvânt, iar voi purtați-Mă cu cuvântul Meu, fiilor.
 

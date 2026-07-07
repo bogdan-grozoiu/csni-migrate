@@ -32,11 +32,11 @@ Iată, M-am pogorât astăzi la acest vas în gara Doiceşti şi am vorbit cu gl
 
 Veţi fi opriţi să mai paşteţi iarba pe care o cunoaşteţi. Înţelegeţi? V-am spus că vă vorbesc în pilde. Vei fi oprit să mai porţi credinţa, să mai te duci la biserică, şi va veni seceta şi foamea în acest an şi va fi numai necaz pentru voi. Va fi rod: poame, grâu, porumb, va fi destul, dar cuvântul Meu nu va mai fi, căci veţi fi opriţi. [legatura_la_teme id_capitol="6" id_subcapitol="1"]Vă mai spun: lăsaţi poftele trupului. Nu este oprită căsătoria, dar cine are dragoste şi hotărâre să ajungă la sfinţi, aceia se opresc. Hotărâţi-vă fără îndoială. Nu mai vorbim de postul Crăciunului, al Paştelui, al sfinţilor apostoli şi al sfintei Mării. Într-un cuvânt, înfrânaţi-vă. [/legatura_la_teme][legatura_la_teme id_capitol="6" id_subcapitol="3"]
 
-— Doamne, cu ce să ne hrănim în zile de post, cu ce bucate?
+*— Doamne, cu ce să ne hrănim în zile de post, cu ce bucate?*
 
 — Fiilor, dacă vreţi şi puteţi, iată hrana voastră: o bucăţică de pâine şi apă, la asfinţitul soarelui. Iată şi în alt fel: veţi mânca bucate fără unsoare, şi toate, pe seară, că ziua este mare; şi voinţa să fie mare.
 
-— Doamne, cu sfânta Împărtăşanie cum să facem?
+*— Doamne, cu sfânta Împărtăşanie cum să facem?*
 
 — Cereţi sfânta Împărătăşanie, să vă dea la trei săptămâni şi la două săptămâni, că mai mult nu vor să vă dea. Eu v-aş da în fiecare zi. Am strigat în biserici către slujitori.[/legatura_la_teme] A sosit vremea să te oprească cu mâna, să te oprească să mai lauzi pe Dumnezeu. Bucuraţi-vă, că s-a apropiat ziua! Te-a oprit să mai lauzi pe Dumnezeu, dar nu te-a oprit să te rogi. Roagă-te, că pe rugăciune nu s-a pus hotar. Roagă-te când mergi la apă, când mergi la lucru, când mergi la câmp, când mergi la pădure. Laudă pe Dumnezeu. Iată, preoţii, în loc să sfârşească slujba la ora douăsprezece, se grăbesc să o termine devreme. Mulţi sar cuvintele slujbei, dar voi nu judecaţi, ci supuneţi-vă. Dacă ei vă dau cu palma peste obrazul drept, întoarceţi şi pe cel stâng.
 

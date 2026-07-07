@@ -26,23 +26,23 @@ O, cine sunteți voi, cei care v-ați așezat sub numele Meu să vă arătați p
 
 O, cine sunt cei ce se fac că nu aud cuvântul Meu, cine sunt aceștia, mama Mea?
 
-— Fiul meu Iisus, o, Fiule dulce al Tatălui și al meu, aceștia sunt preoții și arhiereii vremii de azi, prieteni cu antichrist, vrăjmașul Tău, ca și cei de acum două mii de ani arhierei și preoți care Te-au dat crucii, căci erau ei atâta de greșiți, atâta de pierduți de Dumnezeu ca și cei de azi.
+*— Fiul meu Iisus, o, Fiule dulce al Tatălui și al meu, aceștia sunt preoții și arhiereii vremii de azi, prieteni cu antichrist, vrăjmașul Tău, ca și cei de acum două mii de ani arhierei și preoți care Te-au dat crucii, căci erau ei atâta de greșiți, atâta de pierduți de Dumnezeu ca și cei de azi.*
 
-Te doare, Fiule Iisus, Te doare de la ei, și mă doare de la ei, ca și pe Tine mă doare, și mă doare de mila Ta și de atâta dispreț de la ei, dar Noi suntem aici cu cei mângâiați de venirea Ta, și care au învățat de la Noi mângâierea și Ne sunt mângâietori, și hai să Ne mângâiem cu ei, și ei cu Noi, ca să Ne fie ei copii ascultători, iar Tu să-i păstorești aici, căci ei Ne dau mai departe și celor ce cred și celor ce nu cred cuvântului venirii Tale, Fiule Iisus. [/legatura_la_teme]
+*Te doare, Fiule Iisus, Te doare de la ei, și mă doare de la ei, ca și pe Tine mă doare, și mă doare de mila Ta și de atâta dispreț de la ei, dar Noi suntem aici cu cei mângâiați de venirea Ta, și care au învățat de la Noi mângâierea și Ne sunt mângâietori, și hai să Ne mângâiem cu ei, și ei cu Noi, ca să Ne fie ei copii ascultători, iar Tu să-i păstorești aici, căci ei Ne dau mai departe și celor ce cred și celor ce nu cred cuvântului venirii Tale, Fiule Iisus.* [/legatura_la_teme]
 
 — O, mama Mea, dacă le-ai grăi și tu celor ce nu Mă primesc, mamă!
 
-— Fiule Iisus, nu cred aceștia și nu văd puterea cuvântului Tău care se apleacă și le grăiește. Nu au minte să înțeleagă cu ea și să creadă apoi. O, nu văd oamenii, și sunt atât de cuprinși de grijile vieții lor pământești, Fiul meu Iisus.
+*— Fiule Iisus, nu cred aceștia și nu văd puterea cuvântului Tău care se apleacă și le grăiește. Nu au minte să înțeleagă cu ea și să creadă apoi. O, nu văd oamenii, și sunt atât de cuprinși de grijile vieții lor pământești, Fiul meu Iisus.*
 
-O, omule pribeag, îți trebuie minte ca să pricepi și ca să crezi, ca să-L primești pe Dumnezeu, și apoi să-I dai Lui inima ta ca să ți-o pregătească El și ca să stea în ea și să te poarte pe calea cea cu soare pe ea, cu Dumnezeu pe cale, o, fiule așa de pământesc cum ești, de nu poți să-I dai lui Dumnezeu inima ta!
+*O, omule pribeag, îți trebuie minte ca să pricepi și ca să crezi, ca să-L primești pe Dumnezeu, și apoi să-I dai Lui inima ta ca să ți-o pregătească El și ca să stea în ea și să te poarte pe calea cea cu soare pe ea, cu Dumnezeu pe cale, o, fiule așa de pământesc cum ești, de nu poți să-I dai lui Dumnezeu inima ta!*
 
-Iar voi, fii ai lui Hristos, voi, cei alături de cuvântul Său cu inima din voi, o, stați cu El de-a pururi, fiilor, și stați cu veghe ca să nu vă înșele satana și lumea lui și să vă cadă de la Dumnezeu. O, nu vă pierdeți, nu vă mai pierdeți, nu mai pieriți niciunul, voi, cei rămași până acum lângă izvorul vieții veșnice! Veniți de luați viață de la El! El este aici, și nu mai pleacă. Nici voi să nu plecați din poporul Său, o, că au plecat cei care au plecat dacă au uitat ce sunt cei care au pe Domnul de Păstor.
+*Iar voi, fii ai lui Hristos, voi, cei alături de cuvântul Său cu inima din voi, o, stați cu El de-a pururi, fiilor, și stați cu veghe ca să nu vă înșele satana și lumea lui și să vă cadă de la Dumnezeu. O, nu vă pierdeți, nu vă mai pierdeți, nu mai pieriți niciunul, voi, cei rămași până acum lângă izvorul vieții veșnice! Veniți de luați viață de la El! El este aici, și nu mai pleacă. Nici voi să nu plecați din poporul Său, o, că au plecat cei care au plecat dacă au uitat ce sunt cei care au pe Domnul de Păstor.*
 
-Stați deoparte de duhul lumii! Pe cât puteți de mult ascultați aceasta, căci lumea Îl strică și Îl lovește pe Dumnezeu din voi, și de aceea stați cu El pe pământ, nu fără El, căci fără El nu aveți putere asupra lui satana, care vă îndeamnă de peste tot spre lume, fiilor. Așadar, legați-vă cu legământ veșnic de Hristos și veți fi cu El, și va fi cu voi Domnul, și nu uitați să-I auziți iubirea care învață spunând: „Fiule, dă-Mi inima ta!”
+*Stați deoparte de duhul lumii! Pe cât puteți de mult ascultați aceasta, căci lumea Îl strică și Îl lovește pe Dumnezeu din voi, și de aceea stați cu El pe pământ, nu fără El, căci fără El nu aveți putere asupra lui satana, care vă îndeamnă de peste tot spre lume, fiilor. Așadar, legați-vă cu legământ veșnic de Hristos și veți fi cu El, și va fi cu voi Domnul, și nu uitați să-I auziți iubirea care învață spunând:* „Fiule, dă-Mi inima ta!”
 
-I-am învățat pe ai Tăi, pe cei care stau cu Tine, Iisuse iubit al meu, căci ei Ne primesc. Cei care nu Te primesc nu au minte, ci au inima spre lume, și nimeni nu poate cu Tine dacă iubește lumea și pofta ei.
+*I-am învățat pe ai Tăi, pe cei care stau cu Tine, Iisuse iubit al meu, căci ei Ne primesc. Cei care nu Te primesc nu au minte, ci au inima spre lume, și nimeni nu poate cu Tine dacă iubește lumea și pofta ei.*
 
-Și acum, cuvântul Tău de Păstor dă-le lor din el, dă-le lor din cuvântul Tău cel bun, Fiul meu Iisus!
+*Și acum, cuvântul Tău de Păstor dă-le lor din el, dă-le lor din cuvântul Tău cel bun, Fiul meu Iisus!*
 
 — O, mama Mea, suntem cu ei mereu. O, mama Mea, suntem cu România și lucrăm la dragostea ei, la duhul ei, ca să prindem rod din ea, mamă.
 

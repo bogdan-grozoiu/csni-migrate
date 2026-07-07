@@ -19,17 +19,17 @@ Listen to My voice, Israel; listen to My counsel, Israel, for you are chosen for
 
 Verginica has a voice over you in My day of feast with you. Peace to the voice of your word into Me, Verginica! And, water your flock and give it of the new vine of the wedding, of My new word and yours, so that your people may grow fat and to rejoice, for it is a day of joy; it is a day of resurrection over the sons of resurrection, over the sons of grace. Amen.
 
-— May it be according to Your word, Lord. Amen. Behold the voice of the Lord into my spirit.
+*— May it be according to Your word, Lord. Amen. Behold the voice of the Lord into my spirit.*
 
-I am, sons. The Lord told me to be with you now. The Lord sees the burning of my spirit after you. Christ is risen! Peace on those that are great and on those that are small! Peace to those that are small and great, to those who came with love around the manger of my word in this day of heavenly Passover! It is a day of heavenly and godly Passover over Israel, for you are the Lord’s people. I miss you, and I long to speak my word to those who listen. I also long for the steps of those who do not listen, who, like restless goats, hit with their little horns into the boundary and put it down and then they leave the fold and work out disobedience and do not want to be with those who come. I miss the sheep and I miss the sheep that turned into goats, for I long to give them a new birth and to be sheep again. But most I miss to speak over those who love me; I miss you, children of my garden, and children of the manger of the word. I miss to speak too, for it is a long time since I did not sneak in with my word.
+*I am, sons. The Lord told me to be with you now. The Lord sees the burning of my spirit after you. Christ is risen! Peace on those that are great and on those that are small! Peace to those that are small and great, to those who came with love around the manger of my word in this day of heavenly Passover! It is a day of heavenly and godly Passover over Israel, for you are the Lord’s people. I miss you, and I long to speak my word to those who listen. I also long for the steps of those who do not listen, who, like restless goats, hit with their little horns into the boundary and put it down and then they leave the fold and work out disobedience and do not want to be with those who come. I miss the sheep and I miss the sheep that turned into goats, for I long to give them a new birth and to be sheep again. But most I miss to speak over those who love me; I miss you, children of my garden, and children of the manger of the word. I miss to speak too, for it is a long time since I did not sneak in with my word.*
 
-Christ has risen! over the new manger, over you, who are set to watch at the work of the manger of the heaven, at the mouth of the wellspring of the heavenly word.
+*Christ has risen! over the new manger, over you, who are set to watch at the work of the manger of the heaven, at the mouth of the wellspring of the heavenly word.*
 
-Christ is risen! my loved shepherds, who remained to carry the burden of this people; but it is only a little bit of a burden and then the day of rest is coming when the Lord is visibly coming into the midst of this work.
+*Christ is risen! my loved shepherds, who remained to carry the burden of this people; but it is only a little bit of a burden and then the day of rest is coming when the Lord is visibly coming into the midst of this work.*
 
-… You, who have remained for those the Lord has brought, for those which remain, you, sons, stand and stand again for a great holiness in the body, heart, food, conduct and watchfulness, for the Lord is coming, children. The Lord is coming sons, and all the heavenly host is prepared for the Lord to come down, and for Him to come down visibly, and it will catch under it all unbelief, all disobedience and each and every son of it. Get up and work, you, those who work.
+*… You, who have remained for those the Lord has brought, for those which remain, you, sons, stand and stand again for a great holiness in the body, heart, food, conduct and watchfulness, for the Lord is coming, children. The Lord is coming sons, and all the heavenly host is prepared for the Lord to come down, and for Him to come down visibly, and it will catch under it all unbelief, all disobedience and each and every son of it. Get up and work, you, those who work.*
 
-… Christ is risen! Peace to you, and a work of a New Jerusalem from you over those who will receive the name of the Lord!
+*… Christ is risen! Peace to you, and a work of a New Jerusalem from you over those who will receive the name of the Lord!*
 
 Peace to you, Israel! Peace to you from the Lord, your God! Amen, amen, amen.
 

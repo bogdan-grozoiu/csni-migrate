@@ -8,11 +8,11 @@ audio:
 audio_file: 
 ---
 
-Pace vouă! Acesta este un sobor ceresc. Mama Gigi este aici cu oaspeţi din cer şi este cu Domnul Iisus Hristos în sfatul acestui sobor, şi e sărbătoare în cer în această zi de sobor sfânt.
+*Pace vouă! Acesta este un sobor ceresc. Mama Gigi este aici cu oaspeţi din cer şi este cu Domnul Iisus Hristos în sfatul acestui sobor, şi e sărbătoare în cer în această zi de sobor sfânt.*
 
-Slavă Sfintei şi Celei de o fiinţă şi de viaţă făcătoarei şi nedespărţitei Treimi, de acum şi peste toţi vecii! Amin. Vine ceasul să Se preaslăvească Fiul Omului, iar eu nu vorbesc de la mine, şi Acela Care m-a trimis pe mine mi-a poruncit să spun şi să vorbesc. Voi sunteţi trupul lui Iisus Hristos, căci Duhul Domnului lucrează la zidirea trupului lui Iisus Hristos, spre desăvârşirea sfinţilor. Sunteţi începătura cea nouă, pentru că luaţi şi mâncaţi şi beţi Trupul şi Sângele Fiului Sfintei Treimi, şi iarăşi, după o zi şi o noapte luaţi.
+*Slavă Sfintei şi Celei de o fiinţă şi de viaţă făcătoarei şi nedespărţitei Treimi, de acum şi peste toţi vecii! Amin. Vine ceasul să Se preaslăvească Fiul Omului, iar eu nu vorbesc de la mine, şi Acela Care m-a trimis pe mine mi-a poruncit să spun şi să vorbesc. Voi sunteţi trupul lui Iisus Hristos, căci Duhul Domnului lucrează la zidirea trupului lui Iisus Hristos, spre desăvârşirea sfinţilor. Sunteţi începătura cea nouă, pentru că luaţi şi mâncaţi şi beţi Trupul şi Sângele Fiului Sfintei Treimi, şi iarăşi, după o zi şi o noapte luaţi.*
 
-Domnul Iisus Hristos este în sobor cu noi, iubiţii mei copii, şi Domnul dă binecuvântare peste acest sobor. Iată, Domnul grăieşte acum la voi:
+*Domnul Iisus Hristos este în sobor cu noi, iubiţii mei copii, şi Domnul dă binecuvântare peste acest sobor. Iată, Domnul grăieşte acum la voi:*
 
 – Binecuvântată să fie împărăţia Sfintei Treimi, a Tatălui Meu şi a Fiului Său şi a Duhului Cel Sfânt, întreit lucrător, acum şi peste toţi vecii! Amin.
 

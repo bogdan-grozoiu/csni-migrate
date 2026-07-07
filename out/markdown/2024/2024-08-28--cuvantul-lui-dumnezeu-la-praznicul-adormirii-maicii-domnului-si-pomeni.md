@@ -30,11 +30,11 @@ Eu, Domnul, încă vă mai strig, și îndelung vă strig, ridicați-vă ca Davi
 
 [/legatura_la_teme][legatura_la_teme id_capitol="2" id_subcapitol="6"]O, mama Mea, iar și iar am rostit îndemnul la luptă asupra lui antichrist. O, cât aș vrea să vrea și ei, mamă.
 
-— O, Fiule Iisus, vin semnele cele înfricoșătoare, cărora nimeni nu le poate ține piept, niciun vrăjmaș, Fiule scump. E greu, știm, dar Tu ești Biruitorul Cel îmbrăcat în Tatăl, Care Ți-a dat toată puterea în cer și pe pământ. Vrei însă și creștinii să fie biruitori și de aceea vii și-i îndemni la veghe, la luptă, căci vrăjmașul este fără de milă.
+*— O, Fiule Iisus, vin semnele cele înfricoșătoare, cărora nimeni nu le poate ține piept, niciun vrăjmaș, Fiule scump. E greu, știm, dar Tu ești Biruitorul Cel îmbrăcat în Tatăl, Care Ți-a dat toată puterea în cer și pe pământ. Vrei însă și creștinii să fie biruitori și de aceea vii și-i îndemni la veghe, la luptă, căci vrăjmașul este fără de milă.*
 
-Voi, copii ai credinței, bizuiți-vă pe Domnul și îndrăzniți împotriva necredinței cu Hristos în față! Hai la lupta cea mare! Treziți-vă, creștini români, ca să vedeți norul și să biruiți cu post și rugăciune, precum este scris, iar voi să fiți biruitori. Așa vă hărăzesc eu vouă în ziua mea de praznic sfânt.
+*Voi, copii ai credinței, bizuiți-vă pe Domnul și îndrăzniți împotriva necredinței cu Hristos în față! Hai la lupta cea mare! Treziți-vă, creștini români, ca să vedeți norul și să biruiți cu post și rugăciune, precum este scris, iar voi să fiți biruitori. Așa vă hărăzesc eu vouă în ziua mea de praznic sfânt.*
 
-Așa, Iisuse, Doamne, așa să se împlinească biruința cea de partea creștinilor adevărați de pe pământ. Amin.
+*Așa, Iisuse, Doamne, așa să se împlinească biruința cea de partea creștinilor adevărați de pe pământ. Amin.*
 
 [/legatura_la_teme][legatura_la_teme id_capitol="6" id_subcapitol="3"]— O, mama Mea, Eu asta doresc și aștept: să fie adevărat creștinul, că numele de creștin nu are putere ca viața de creștin. Iată, am spus poporului cuvântului Meu să nu stea fără veșmânt de creștin, fără chipul cel dat de Dumnezeu. Omul creștin trebuie să se uite la Mine, nu la lumea cea păcătoasă. Creștinul trebuie să poarte barbă și port de creștin, nu de lume, și hrană ca în rai, nu ca lumea mâncătoare de carne și de toate cele de pe pământ, care nu sunt pentru creștinii lui Hristos, și trebuie rânduiala cea de post și de rugăciune, așa încât în vremea cea grea să Mă aibă de partea sa creștinul și să-l cunosc și să-l ocrotesc ca pe copilul Meu, că dacă-l găsesc în lume sau asemănându-se cu lumea îl las în bătaia urgiilor care vin pentru necredință, că nu e niciun păcat mai greu ca necredința, ca lepădarea de credință, mama Mea.
 

@@ -28,7 +28,7 @@ Pace şi binecuvântare peste cina cuvântului Meu în mijlocul poporului Meu! P
 
 Verginica este venită cu Mine, Domnul, în mijlocul poporului ei:
 
-– Pace vouă, măi copii! Luaţi îndemnul Domnului, fiţi cu duhul atent. E greu, fiilor, fiindcă n-aţi stat bine cu Domnul până acum, şi e greu să înţelegeţi acum cele cereşti. Fiţi, dar, cu duhul atent. Aduceţi-vă aminte de Domnul, Care a spus ispititorilor de atunci care nu înţelegeau nimic din cer şi cărora aşa le-a spus lor: «Dacă nu înţelegeţi cele pământeşti, cum veţi înţelege dacă vă voi spune cele cereşti?».
+*– Pace vouă, măi copii! Luaţi îndemnul Domnului, fiţi cu duhul atent. E greu, fiilor, fiindcă n-aţi stat bine cu Domnul până acum, şi e greu să înţelegeţi acum cele cereşti. Fiţi, dar, cu duhul atent. Aduceţi-vă aminte de Domnul, Care a spus ispititorilor de atunci care nu înţelegeau nimic din cer şi cărora aşa le-a spus lor:* «Dacă nu înţelegeţi cele pământeşti, cum veţi înţelege dacă vă voi spune cele cereşti?».
 
 Iată, Domnul vorbeşte astăzi cu voi cele cereşti, cele ce au fost întru început. Fiţi cu duhul atent. Primiţi cuvântul Domnului şi faceţi să-i fie cald cuvântului în voi. Sunt cereşti şi nu sunt pământeşti cele ce vă aduce Domnul vouă. Domnul vorbeşte ca în cer, nu ca pe pământ; nu ca până acum este această vorbire.
 

@@ -24,7 +24,7 @@ O, ai fost sluga Mea pe pământ, mare peste turma bisericii Mele, mare cu harul
 
 Te-am luat lângă Mine acum, la masa cuvântului Meu de azi martor din cer, și iată, lucrăm.
 
-— O, Doamne Păstor, mare este minunea cuvântului Tău pe vatra neamului român, în acest orășel binecuvântat, și în această cetate a Ta! Stau lângă Tine martor, și stau cu duhul sfios, că Tu ești mare, Doamne, iar puterea Ta e cât cerul și pământul, o, Făcătorule al lumii! O, slavă Ție, slavă Ție în cer și pe pământ, Doamne Păstor, iar rodul Tău să se arate, și să facă minuni dreapta Ta. Amin.
+*— O, Doamne Păstor, mare este minunea cuvântului Tău pe vatra neamului român, în acest orășel binecuvântat, și în această cetate a Ta! Stau lângă Tine martor, și stau cu duhul sfios, că Tu ești mare, Doamne, iar puterea Ta e cât cerul și pământul, o, Făcătorule al lumii! O, slavă Ție, slavă Ție în cer și pe pământ, Doamne Păstor, iar rodul Tău să se arate, și să facă minuni dreapta Ta. Amin.*
 
 [legatura_la_teme id_capitol="3" id_subcapitol="4"]
 

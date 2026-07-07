@@ -40,23 +40,23 @@ O, omule, ferește-te de păcat, nu de suferința cea pentru păcat! Îți trebu
 
 O, Îmi aude cuvântul omul cel zidit la început, și plânge. Îl aud cum plânge. O, cum să nu plângă? De durerea Mea plânge. Să se audă pe pământ plânsul lui, că de durerea Mea de la el plânge el!
 
-— Pentru Tine plâng. Pentru durerea Ta cea de la mine, Doamne, pentru ea plâng.
+*— Pentru Tine plâng. Pentru durerea Ta cea de la mine, Doamne, pentru ea plâng.*
 
-Eu am căzut din fericirea raiului că mi-am ales fericirea cea vinovată a păcatului, care m-a despărțit de Tine, Doamne, și apoi am suferit nouă sute de ani pe pământ, și apoi am dezbrăcat trupul și am suferit cu duhul până acum două mii de ani, până la venirea Ta cu crucea, pe care Ți-a zidit-o păcatul meu, iar suferința Ta de pe cruce și-a făcut milă cu mine, și apoi cu mulți drepți ai Tăi, care Te așteptau să vii pe pământ și să le dai învierea, Doamne. Tu însă m-ai miluit pe mine mai întâi, căci eu am fost cel ieșit din rai și s-a închis raiul în urma mea, dar ai venit Tu cu cheia, cu crucea, Doamne, o, ai venit ca să le deschizi celor drepți ai Tăi ca să intre cu Tine și să-și ia partea pentru care au trudit cu Tine, și au așteptat apoi să vii să le deschizi și să le dai mângâierea, Doamne.
+*Eu am căzut din fericirea raiului că mi-am ales fericirea cea vinovată a păcatului, care m-a despărțit de Tine, Doamne, și apoi am suferit nouă sute de ani pe pământ, și apoi am dezbrăcat trupul și am suferit cu duhul până acum două mii de ani, până la venirea Ta cu crucea, pe care Ți-a zidit-o păcatul meu, iar suferința Ta de pe cruce și-a făcut milă cu mine, și apoi cu mulți drepți ai Tăi, care Te așteptau să vii pe pământ și să le dai învierea, Doamne. Tu însă m-ai miluit pe mine mai întâi, căci eu am fost cel ieșit din rai și s-a închis raiul în urma mea, dar ai venit Tu cu cheia, cu crucea, Doamne, o, ai venit ca să le deschizi celor drepți ai Tăi ca să intre cu Tine și să-și ia partea pentru care au trudit cu Tine, și au așteptat apoi să vii să le deschizi și să le dai mângâierea, Doamne.*
 
-O, iartă-i, iartă-i pe toți oamenii care au păcătuit, și care păcătuiesc din lipsa temerii de Dumnezeu, așa cum eu am păcătuit în rai, Doamne!
+*O, iartă-i, iartă-i pe toți oamenii care au păcătuit, și care păcătuiesc din lipsa temerii de Dumnezeu, așa cum eu am păcătuit în rai, Doamne!*
 
-Și le spun lor, celor ce tot păcătuiesc: O, temeți-vă de Dumnezeu în toată clipa, că nu puteți altfel să dați la moarte păcatul din voi ca să scăpați voi de sub el și de sub osânda lui!
+*Și le spun lor, celor ce tot păcătuiesc: O, temeți-vă de Dumnezeu în toată clipa, că nu puteți altfel să dați la moarte păcatul din voi ca să scăpați voi de sub el și de sub osânda lui!*
 
-Mă pomenesc sfinții Domnului în ziua aceasta ca să priviți voi pe omul cel zidit de Dumnezeu și păcatul despărțirii lui de Dumnezeu pentru păcat.
+*Mă pomenesc sfinții Domnului în ziua aceasta ca să priviți voi pe omul cel zidit de Dumnezeu și păcatul despărțirii lui de Dumnezeu pentru păcat.*
 
-O, întoarceți-vă de la păcat! Întoarceți-vă la Domnul și la sfințirea voastră prin Iisus Hristos, căci Domnul este sfânt, iar cine stă lângă Domnul trebuie să-I fie asemenea!
+*O, întoarceți-vă de la păcat! Întoarceți-vă la Domnul și la sfințirea voastră prin Iisus Hristos, căci Domnul este sfânt, iar cine stă lângă Domnul trebuie să-I fie asemenea!*
 
-O, ștergeți lacrima mea! Întoarceți-vă la Cel ce m-a miluit pe mine, pe cel despărțit de El pentru păcat! Plângeți cu mine, plângeți pentru mine și pentru voi!
+*O, ștergeți lacrima mea! Întoarceți-vă la Cel ce m-a miluit pe mine, pe cel despărțit de El pentru păcat! Plângeți cu mine, plângeți pentru mine și pentru voi!*
 
-Îl ustură pe Domnul păcatul omului. E la hotar ziua slavei Lui, venirea Lui văzută. Vine Domnul cu sfinții Lui! Treceți din trup în duh și faceți-I cărare Domnului să poată pentru voi, să vă dea El iertarea!
+*Îl ustură pe Domnul păcatul omului. E la hotar ziua slavei Lui, venirea Lui văzută. Vine Domnul cu sfinții Lui! Treceți din trup în duh și faceți-I cărare Domnului să poată pentru voi, să vă dea El iertarea!*
 
-Atât e acum plânsul cuvântului meu, Doamne, în ziua mea de pomenire, a căderii mele din rai, o, și mă uit la clipa aceea și la cât Te-a durut pentru mine și pentru Tine, și mă uit cât a fost să aștepți, și-Ți mulțumesc pentru iertare, pentru iubire, pentru răbdare, pentru mila Ta de mine, Îți mulțumesc cu umilința durerii, o, că n-a mai fost altul care să-Ți facă o durere mai mare, ci eu sunt, numai eu, numai eu, o, Doamne, și Îți mulțumesc!
+*Atât e acum plânsul cuvântului meu, Doamne, în ziua mea de pomenire, a căderii mele din rai, o, și mă uit la clipa aceea și la cât Te-a durut pentru mine și pentru Tine, și mă uit cât a fost să aștepți, și-Ți mulțumesc pentru iertare, pentru iubire, pentru răbdare, pentru mila Ta de mine, Îți mulțumesc cu umilința durerii, o, că n-a mai fost altul care să-Ți facă o durere mai mare, ci eu sunt, numai eu, numai eu, o, Doamne, și Îți mulțumesc!*
 
 — O, dar și Eu, Domnul, și Eu sunt Cel ce vindec durerile cele mai mari, cele fără de asemănare de mari, căci iubirea Mea este ființa Mea, care poate vindeca făptura Sa, care pune pe ranele mari vin și untdelemn, și satana este biruit de iubirea Mea cea pentru omul cel vindecat de Dumnezeu.
 

@@ -35,9 +35,9 @@ Behold, I am with you! Blessed be your love, faith, watchfulness and the celebra
 
 Verginica is with the host of the saints and angels and is working above Romania and sings together with the heavenly Mother and the song for Romania will not cease:
 
-„Oh, holy Lord, heavenly Father,
+*„Oh, holy Lord, heavenly Father,*
 
-Keep the Romanian crown with Your hand!”.
+*Keep the Romanian crown with Your hand!”.*
 
 The heaven is singing at you and in you. Do not wither under the blows thrown at you.
 

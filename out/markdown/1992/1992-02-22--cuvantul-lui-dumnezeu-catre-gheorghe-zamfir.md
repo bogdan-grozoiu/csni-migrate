@@ -18,9 +18,9 @@ O, fiu biruitor întru numele Meu, născut încă o dată din iubirea Mea, născ
 
 Cântă, tu, cel ce cânţi! Voiesc să Mă odihnesc de osteneli sub cântecele tale. Iată, Măicuţa Mea, Maica României, voieşte să audă peste România cântarea cu care ea umple cerul, căci ea cântă în cer şi te roagă pe tine să cânţi şi tu pe pământ. Aşa cântă Măicuţa Mea în cer:
 
-„O, Doamne Sfinte, ceresc Părinte,
+*„O, Doamne Sfinte, ceresc Părinte,*
 
-Susţine cu a Ta mână coroana română!“.
+*Susţine cu a Ta mână coroana română!“.*
 
 Cântă, şi vei cânta cu cerul, şi va veni cel uns peste România. Voiesc să-i sfârşesc aşteptarea, şi iată, îi voi ieşi înainte prin puterea care este lucrată de la Mine peste această iesle şi peste pruncii care stau în jurul acestei înălţimi cereşti. Cântă pământului şi zi cu guriţa: *„Să fie pământ nou“,* şi va fi. Voi sunteţi graiul Meu, voi sunteţi ochiul Meu, voi sunteţi mâinile şi picioarele Mele care vestesc pacea peste cea iubită. Ai zis, şi am scris ce ai zis, căci ai zis că vei merge şi vei cânta peste România. Plânge România, plâng sfinţii şi apostolii şi proorocii care strigă din pământ la Mine, căci pământul României este îmbibat de sângele celor care au fost junghiaţi pentru mărturia Mea. Cântă peste pământ, şi acest pământ va da înapoi pe morţii de sub el, şi aceia vor mărturisi încă o dată pe pământ, şi vor mărturisi această lucrare aşteptată de veacuri.
 

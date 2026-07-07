@@ -17,39 +17,39 @@ I carried the cross of the world’s Calvary and then I arose from the death and
 
 Oh, behold, the Lord, Jesus Christ, Who works miracles greater than anytime, tells you together with the Holy Spirit: *„Christ is risen!”.* It is the greatest celebration of God’s faithful ones. Christ is risen, My dear! I celebrated with you in all the heavenly joy and love. I am with you for I have a manger worked out by the word with you. I am with the Holy Spirit, and I am by the word, but those from this time are blinded by the time; the wise people of this time are without wisdom, and when God’s wisdom will be seen working, then it will be heard and written everywhere the Scripture that says: *«Where is the wise and the scribe of this time?»*. Then you will shine, My love, for the light of the Holy Spirit will shine, and it will visibly shine, so that all the Scripture which is to be seen may be fulfilled. Look at those who want to stifle My work with you; look how feeble they are, for I came with My time and took their right and their reign, which is from this world. But you should see them then when My work with you will shine under their own eyes, for in this time, the Lord with His people will overcome the world, which is to be overcome, and the world shall no longer be, for we will overcome the world; we will completely overcome it, and we will blow and a godly kingdom for My creature will be made. That is why I told you, and I also tell you again now: „We have great things to work out, the loved ones of the Holy Spirit. Stand looking at Me and work according to the word from heaven; work a right path for the heavenly word, for I do not want the Lord’s Day to be lengthened; this is what I want, My dear. I am with you; I am and work with you so that you also may work with Me. Verginica is also with you all the time; and she is from Me and speaks the heavenly word among you. Amen.
 
-— Christ is risen! I tell you with the Lord: Christ is risen! For you and for all my faithful children I deliver the celebration wish of the Lord’s resurrection. Christ is risen, my loved ones; my joy in the heaven and on the earth! The entire heavenly host is celebrating and singing with you now. The heaven is standing attentive to you during this time, for it sees what is being prepared at you. The prophets are rejoicing, you dear mother. Read the Scriptures and strengthen and work for the work of the resurrection which is to overcome the death and the darkness. Do not get out without those from the heaven. Let those on the way to pass and struggle. You stand still and with your heart awake to God and pray, as the Lord told you to pray.
+*— Christ is risen! I tell you with the Lord: Christ is risen! For you and for all my faithful children I deliver the celebration wish of the Lord’s resurrection. Christ is risen, my loved ones; my joy in the heaven and on the earth! The entire heavenly host is celebrating and singing with you now. The heaven is standing attentive to you during this time, for it sees what is being prepared at you. The prophets are rejoicing, you dear mother. Read the Scriptures and strengthen and work for the work of the resurrection which is to overcome the death and the darkness. Do not get out without those from the heaven. Let those on the way to pass and struggle. You stand still and with your heart awake to God and pray, as the Lord told you to pray.*
 
-Oh, the Lord is happy for those in the heaven. The Lord’s Mother sings that fills all the heaven, and I also sing with her, and you should also sing, children. The heaven rejoices of the joy of the anointed one upon Romania. (The king Michael, r.n.)*. He came for what it belonged to him; he came to see, to cry and to rejoice.* [legatura_la_teme id_capitol="4" id_subcapitol="5"]The one that is anointed by God upon Romania came and it is a great celebration in the heaven and on the earth, and it shall be made a right path, but let it be sung for the anointed one; let it be sung the song for him, as it is also sung in heaven:
+*Oh, the Lord is happy for those in the heaven. The Lord’s Mother sings that fills all the heaven, and I also sing with her, and you should also sing, children. The heaven rejoices of the joy of the anointed one upon Romania.* (The king Michael, r.n.)*. He came for what it belonged to him; he came to see, to cry and to rejoice.* [legatura_la_teme id_capitol="4" id_subcapitol="5"]*The one that is anointed by God upon Romania came and it is a great celebration in the heaven and on the earth, and it shall be made a right path, but let it be sung for the anointed one; let it be sung the song for him, as it is also sung in heaven:*
 
 „Oh, Holy Lord, heavenly Father,
 
 Keep with Your hand the Romanian crown!”.
 
-Pray and bless into the name of the Lord the entrance of the anointed one on the Lord’s holy land. His heart and eyes, they that are kept by the eyes of the wicked ones, will look now to see mine. There are evil eyes around him and there are still cunning hearts. Go and look for him, as he also seeks with his own eyes to see. Go and bring from the Lord the wish of this day. It will be to welcome him by this clean work done by God here.
+*Pray and bless into the name of the Lord the entrance of the anointed one on the Lord’s holy land. His heart and eyes, they that are kept by the eyes of the wicked ones, will look now to see mine. There are evil eyes around him and there are still cunning hearts. Go and look for him, as he also seeks with his own eyes to see. Go and bring from the Lord the wish of this day. It will be to welcome him by this clean work done by God here.*
 
-My loved ones, the true joy will come and there shall no longer be eyes to shackle the Lord’s thing and joys. Mother Gigi (Verginica, r.n.) embraces you. And, again, for all the good ones that belong to her, she also says: Christ is risen! Peace to you!
+*My loved ones, the true joy will come and there shall no longer be eyes to shackle the Lord’s thing and joys. Mother Gigi* (Verginica, r.n.) *embraces you. And, again, for all the good ones that belong to her, she also says: Christ is risen! Peace to you!*
 
-Peace to the anointed one of Romania! Peace to his painful heart, for his heart is full of pain! [/legatura_la_teme]
+*Peace to the anointed one of Romania! Peace to his painful heart, for his heart is full of pain!* [/legatura_la_teme]
 
-Peace over you all, and over the Lord’s thing from you! Christ is risen! He is truly risen! Amen, amen, amen”.
+*Peace over you all, and over the Lord’s thing from you! Christ is risen! He is truly risen! Amen, amen, amen”.*
 
 ***
 
 [legatura_la_teme id_capitol="4" id_subcapitol="5"]A word is coming down from the heaven and is being written on the earth a heavenly word. Behold the days of the heaven; and the heaven sings during this day; it sings over Romania; the heaven is sings and is praised on the land of Romania. The prophets and the saints and the angels stay and sing the heavenly suite:
 
-Save the Romanian, Your people, Lord,
+*Save the Romanian, Your people, Lord,*
 
-And bless Your new inheritance.
+*And bless Your new inheritance.*
 
-Give the victory to the good and faithful, to Your people, to the king, and to the opposing one;
+*Give the victory to the good and faithful, to Your people, to the king, and to the opposing one;*
 
-And keep Your people and Your anointed by Your cross!”
+*And keep Your people and Your anointed by Your cross!”*
 
-„Oh, Holy Lord, heavenly Father,
+*„Oh, Holy Lord, heavenly Father,*
 
-Keep the Romanian crown by Your hand,
+*Keep the Romanian crown by Your hand,*
 
-Keep the Romanian queen country by Your hand!”.
+*Keep the Romanian queen country by Your hand!”.*
 
 Christ is risen, king of Romania! Welcome, My loved one! Christ is risen, Michael of My Romania! This is your name: Michael of Romania, and Romania belongs to God, together with its good and faithful people and with its king anointed by God.
 

@@ -12,15 +12,15 @@ audio_file:
 
 ... — Verginico, hai la muncă, Verginico, căci cine nu munceşte, nu mănâncă. Cine nu-şi strânge în hambare nu va avea. Ia te uită la mâna Mea. Ce vezi, Verginico?
 
-— Văd o piatră albă.
+*— Văd o piatră albă.*
 
 — Iată, deschid piatra în două, ca o carte. Acum, ce vezi, Verginico?
 
-— Văd o coală albă la mijlocul pietrei, şi pe coală, o jumătate de cerc.
+*— Văd o coală albă la mijlocul pietrei, şi pe coală, o jumătate de cerc.*
 
 — Verginico, ai văzut cercul acesta?
 
-— Da, l-am văzut.
+*— Da, l-am văzut.*
 
 — Să fii atentă, Verginico, şi să te uiţi la cerc şi să-Mi spui ce ai văzut. De aici încolo, nu veţi mai suferi.
 

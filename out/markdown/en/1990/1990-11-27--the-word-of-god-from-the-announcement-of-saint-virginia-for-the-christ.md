@@ -29,6 +29,6 @@ This book will sit on the table and will speak for you or against. This book wil
 
 Come on, Verginica, take your place, and work! Begin your work here and be victorious, as I have given you all the strength. Rise and speak, Verginica!
 
-— I speak to You, God Sabaoth. May You be forever glorious and praise You! Here, I begin my work here. Amen.
+*— I speak to You, God Sabaoth. May You be forever glorious and praise You! Here, I begin my work here. Amen.*
 
-… Peace be with you! Peace be with you, my sons! Praise the Lord and may the peace and revival be with you!
+*… Peace be with you! Peace be with you, my sons! Praise the Lord and may the peace and revival be with you!*

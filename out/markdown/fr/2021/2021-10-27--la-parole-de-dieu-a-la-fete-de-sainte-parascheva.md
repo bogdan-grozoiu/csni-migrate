@@ -39,13 +39,13 @@ Portez-Moi donc, les fils, dans votre corps, dans votre conduite, dans votre pen
 
 Et voilà, sainte Parascheva salue Ma table de parole avec vous et vous exhorte vers: l’amour de Dieu, les fils.
 
-— Je leur rappelle, Seigneur Maître, Ton commandement à eux et à tous ceux de la terre, et je dis: Aimez Dieu! Aimez-Le de tout votre être, de tout ce que vous êtes aimez-Le, pour que vous soyez avec lui dans l’éternité ensuite! Faites votre vie de l’amour pour le Seigneur, le désir de votre cœur, votre œuvre, et surtout la conduite envers les fils de Dieu. Il vous donne toujours Son amour. Que vous Lui donniez aussi le vôtre toujours, toujours. N’oubliez pas qu’ils sont et qu’ils seront heureux ceux qui aiment le Seigneur, et ces promesses sont écrites et elles seront partagées tel que personne ne peut comprendre de sa raison.
+*— Je leur rappelle, Seigneur Maître, Ton commandement à eux et à tous ceux de la terre, et je dis: Aimez Dieu! Aimez-Le de tout votre être, de tout ce que vous êtes aimez-Le, pour que vous soyez avec lui dans l’éternité ensuite! Faites votre vie de l’amour pour le Seigneur, le désir de votre cœur, votre œuvre, et surtout la conduite envers les fils de Dieu. Il vous donne toujours Son amour. Que vous Lui donniez aussi le vôtre toujours, toujours. N’oubliez pas qu’ils sont et qu’ils seront heureux ceux qui aiment le Seigneur, et ces promesses sont écrites et elles seront partagées tel que personne ne peut comprendre de sa raison.*
 
-Et Toi, Seigneur, range-Toi à tout instant en eux avec Ton amour, pour qu’ils puissent agir par Toi et pas par eux-mêmes, car ils sont à pleurer ceux qui essayent d’agir par eux-mêmes, en oubliant combien il est petit l’homme et que Dieu est grand.
+*Et Toi, Seigneur, range-Toi à tout instant en eux avec Ton amour, pour qu’ils puissent agir par Toi et pas par eux-mêmes, car ils sont à pleurer ceux qui essayent d’agir par eux-mêmes, en oubliant combien il est petit l’homme et que Dieu est grand.*
 
-Oh, gloire à Toi avec eux, gloire à Toi sur eux, et rends-la visible, Seigneur, et fais que les peuples se dirigent vers elle, et prépare pour tous le grand salut, oh, Seigneur!
+*Oh, gloire à Toi avec eux, gloire à Toi sur eux, et rends-la visible, Seigneur, et fais que les peuples se dirigent vers elle, et prépare pour tous le grand salut, oh, Seigneur!*
 
-Oh, gloire à Toi de nous, ceux d’en haut, et de ceux d’ici, lieu où nous nous inclinons et nous embrassons quand Tu nous prends avec Toi, alors que Tu viens avec Tes saints!
+*Oh, gloire à Toi de nous, ceux d’en haut, et de ceux d’ici, lieu où nous nous inclinons et nous embrassons quand Tu nous prends avec Toi, alors que Tu viens avec Tes saints!*
 
 — Oh, Mes fils, Mes saints vous font des souhaits comme des fils de Dieu et de Sa gloire. C’est Mon amour que Je veux mettre sur la terre comme bonheur de l’homme qui cherche, mais c’est Moi Celui qui a ce que l’homme cherche, et il ne trouve pas tel qu’il cherche. Je Me découvre à vous avec Mon amour au-dessus de la terre. Ma parole est Mon long cri après l’homme. Qu’elle claironne au-dessus de la terre la parole de Dieu et qu’on l’entende au-dessus des peuples!
 

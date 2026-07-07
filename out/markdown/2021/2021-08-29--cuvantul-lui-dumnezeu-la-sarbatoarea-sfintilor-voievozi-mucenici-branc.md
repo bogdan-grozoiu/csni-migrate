@@ -52,13 +52,13 @@ O, e sfântă viața albinuțelor. Ele mănâncă tot ce este curat și trăiesc
 
 O, lucrați pentru credință și întețiți în voi credința, fiilor, că iată, locul celor credincioși și căzuți pentru credință, și nu pentru păcat! Sunt în brațele mamei Mele Fecioara toți cei din casa lui Vodă Brâncoveanu. Ea le-a făcut trecere spre învierea lor. Ea se laudă în cer cu ei, ea se poartă cu ei deasupra pământului român, pe care îl are ea în ocrotire, o, și le dă ea glas în ziua aceasta, și iată glasul lor:
 
-— Ea ne-a primit pe brațe la trecerea hotarului în ziua muceniciei noastre, a trecerii noastre la Domnul, la cei din cer. Ea ne-a fost tărie și neclătinare în credință până la sfârșitul mersului nostru pe pământ.
+*— Ea ne-a primit pe brațe la trecerea hotarului în ziua muceniciei noastre, a trecerii noastre la Domnul, la cei din cer. Ea ne-a fost tărie și neclătinare în credință până la sfârșitul mersului nostru pe pământ.*
 
-O, iubiți-vă copiii așa cum i-am iubit eu pe copiii mei! Purtați-i pe brațele credinței sfinte până pe brațele mamei noastre de sus ajunși, acolo unde noi am ajuns. O, vouă nu vă este încercată credința, dar de aceasta să nu vă bucurați, că puteți cădea în lenea cea pentru credință apoi.
+*O, iubiți-vă copiii așa cum i-am iubit eu pe copiii mei! Purtați-i pe brațele credinței sfinte până pe brațele mamei noastre de sus ajunși, acolo unde noi am ajuns. O, vouă nu vă este încercată credința, dar de aceasta să nu vă bucurați, că puteți cădea în lenea cea pentru credință apoi.*
 
-Mâncați cu foame multă, mâncați iubire, voi, copii ai Cuvântului Hristos, români după sânge și neam, români după Hristos, Care a făcut pe om din lutul pământului român. O, nu stați fără iubire! Pierdeți-vă viața în iubirea de Hristos și de Maica Lui cea dăruită nouă de mamă a creștinilor, a românilor, căci neamul român e pecete sfântă între cele cerești ale Domnului, e însemnat aparte, e taină a lui Dumnezeu această sămânță tainică, iar noi, cei în cer ajunși, vedem și știm.
+*Mâncați cu foame multă, mâncați iubire, voi, copii ai Cuvântului Hristos, români după sânge și neam, români după Hristos, Care a făcut pe om din lutul pământului român. O, nu stați fără iubire! Pierdeți-vă viața în iubirea de Hristos și de Maica Lui cea dăruită nouă de mamă a creștinilor, a românilor, căci neamul român e pecete sfântă între cele cerești ale Domnului, e însemnat aparte, e taină a lui Dumnezeu această sămânță tainică, iar noi, cei în cer ajunși, vedem și știm.*
 
-Vă dăruim daruri acum, tainic vă dăruim, și veți lucra cu ele și veți cunoaște obârșia lor. Iar acum noi semnăm grăirea noastră cu numele de familie voievodală a românilor din cer: Voievozii români, Brâncovenii.
+*Vă dăruim daruri acum, tainic vă dăruim, și veți lucra cu ele și veți cunoaște obârșia lor. Iar acum noi semnăm grăirea noastră cu numele de familie voievodală a românilor din cer: Voievozii români, Brâncovenii.*
 
 — O, ce zi mărturisitoare, o, ce mare lucrare are Dumnezeu cu voi și peste voi, fii ai cetății cuvântului Meu, și voi, cei ce îi iubiți pe ei pentru numele Meu de peste ei și de peste voi!
 

@@ -32,9 +32,9 @@ Eu sunt, şi cu tine sunt, ca să te izbăvesc de înstrăinare şi să te aşez
 
 Pace ţie, Mihail al României Mele! Pace şi unire cu Mine, precum în cer aşa şi pe pământ, căci în cer se cântă cântarea cea pentru tine, şi cântă Măicuţa Mea lângă puterile cereşti, cântă cântarea cântărilor, cântă României, cântă cerul cântare pentru tine:
 
-„O, Doamne sfinte, ceresc Părinte,
+*„O, Doamne sfinte, ceresc Părinte,*
 
-Susţine cu a Ta mână coroana română!“.
+*Susţine cu a Ta mână coroana română!“.*
 
 Binecuvântată să fie calea martorului Meu cel credincios, care, iată, iubitul Meu, vine spre tine, vine de la Mine, şi Eu voi fi şi voi pecetlui această unire şi voi binecuvânta clipa aceasta. Binecuvântată să fie intrarea şi ieşirea îngerului bisericii Mele, căci este martorul Meu, şi va mărturisi lucrul Meu până la toate marginile, şi va crede lumea că este trimisul Meu, vor crede noroade multe şi se vor boteza şi vor veni spre muntele Sionului, căci Sion ceresc este această lucrătură care iese acum de la Dumnezeu.
 

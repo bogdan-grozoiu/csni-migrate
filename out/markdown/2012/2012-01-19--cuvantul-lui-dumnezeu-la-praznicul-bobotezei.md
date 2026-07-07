@@ -10,7 +10,7 @@ audio_file: 12.01.19.mp3
 
 O, găseşte Domnul credinţă pe pământ pentru venirea Sa cuvânt de Duh Sfânt, acum, la sfârşit de timp.
 
-«Când va veni Fiul Omului va mai găsi credinţă pe pământ?», aşa M-am întrebat Eu, Domnul, acum două mii de ani, şi Îmi dau răspuns tot Eu. Îmi răspund Eu, acum, când vin, după ce a trecut acest timp între venirea Mea cea de atunci şi cea de acum.
+*«Când va veni Fiul Omului va mai găsi credinţă pe pământ?»*, aşa M-am întrebat Eu, Domnul, acum două mii de ani, şi Îmi dau răspuns tot Eu. Îmi răspund Eu, acum, când vin, după ce a trecut acest timp între venirea Mea cea de atunci şi cea de acum.
 
 O, pace vouă, fii credincioşi venirii Mele de acum! Am pus credinţă în voi pentru venirea Fiului Omului, şi pe calea ei vin, aşa cum venea Domnul la Avraam, prin care Și-a început binecuvântarea Sa peste el şi peste cei de după el credincioşi ca şi el, căci lucrarea Domnului este binecuvântarea.
 

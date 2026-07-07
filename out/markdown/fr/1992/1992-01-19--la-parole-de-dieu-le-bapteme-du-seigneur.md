@@ -33,12 +33,12 @@ Les anges du ciel chantent à l'ange de l'Église, dont il est écrit: *«J’ai
 
 Le Seigneur Jésus-Christ donne à Virginie l'ordre de laisser sur vous Son souhait pour ce jour de célébration :
 
-— Paix à vous, enfants du Saint-Esprit, enfants de la Sainte Trinité! Paix à ce jour, et de la part de lui, paix sur vous et sur ce jardin béni! Que la joie du ciel soit sur vos cœurs et que ce soit une fête éternelle à partir de maintenant et à tous jamais en ce jour, qui vient des nouveaux jours à venir de Dieu.
+*— Paix à vous, enfants du Saint-Esprit, enfants de la Sainte Trinité! Paix à ce jour, et de la part de lui, paix sur vous et sur ce jardin béni! Que la joie du ciel soit sur vos cœurs et que ce soit une fête éternelle à partir de maintenant et à tous jamais en ce jour, qui vient des nouveaux jours à venir de Dieu.*
 
-N'ayez pas peur du mauvais esprit. Je veille du ciel sur ce jardin et je partagerai la paix sur les cœurs purs, et sur ceux qui frapperont ce rocher inébranlable, sur eux je dirai justice.
+*N'ayez pas peur du mauvais esprit. Je veille du ciel sur ce jardin et je partagerai la paix sur les cœurs purs, et sur ceux qui frapperont ce rocher inébranlable, sur eux je dirai justice.*
 
-Paix à vous! Tout le ciel célèbre ici avec vous. Et à l'être aimé qui est célébré près de ceux qui sont dans les cieux en ce jour de célébration, je destinerai un esprit de vaillance, parce qu'il est écrit: «Heureux l'homme plein de vigueur, qui ne reçoit pas le conseil des incroyants et n'est pas comme ceux qui enfreignent la loi, dont la volonté est la loi du Seigneur. Celui-ci sera comme l'arbre planté près du fleuve de vie, qui donnera son fruit en ce temps, et tout ce qu'il fera se multipliera, parce que le
+*Paix à vous! Tout le ciel célèbre ici avec vous. Et à l'être aimé qui est célébré près de ceux qui sont dans les cieux en ce jour de célébration, je destinerai un esprit de vaillance, parce qu'il est écrit:* «Heureux l'homme plein de vigueur, qui ne reçoit pas le conseil des incroyants et n'est pas comme ceux qui enfreignent la loi, dont la volonté est la loi du Seigneur. Celui-ci sera comme l'arbre planté près du fleuve de vie, qui donnera son fruit en ce temps, et tout ce qu'il fera se multipliera, parce que le
 
-Seigneur voit la voie des justes, et la puissance des incroyants sera prise par le vent». Amen.
+Seigneur voit la voie des justes, et la puissance des incroyants sera prise par le vent». *Amen.*
 
-Béni soit ce jour de célébration qui vient du Seigneur Sabaoth. Béni soit le sacrifice de ce jour et la nourriture reçue pour l'être aujourd'hui avec nous, ceux des cieux, et que la paix demeure sur vous, Mes enfants bien-aimés du Saint-Esprit, car Me voici devant le Seigneur, voici, moi et mes enfants que le Seigneur m'a donnés comme des signes et des merveilles sur Israël. Amen, amen, amen.
+*Béni soit ce jour de célébration qui vient du Seigneur Sabaoth. Béni soit le sacrifice de ce jour et la nourriture reçue pour l'être aujourd'hui avec nous, ceux des cieux, et que la paix demeure sur vous, Mes enfants bien-aimés du Saint-Esprit, car Me voici devant le Seigneur, voici, moi et mes enfants que le Seigneur m'a donnés comme des signes et des merveilles sur Israël. Amen, amen, amen.*

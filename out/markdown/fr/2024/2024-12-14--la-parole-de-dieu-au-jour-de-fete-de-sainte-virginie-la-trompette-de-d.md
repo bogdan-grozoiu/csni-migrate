@@ -53,13 +53,13 @@ Oh, les fils, oh, les fils, qu’il croisse l’espoir! Qu’il croisse le pouvo
 
 Oh, Ma Virginie, oh, Ma trompette que de consolation accumules-tu de Ma parole d’aujourd’hui, oh, que de consolation! C’est ton jour entre les saints, et il faut que tu mettes de l’exhortation dans le livre, et que tu appelles à la vie le peuple immobilisé en route. On a jour de douce mémoire, qui comprend trois jours: le jour où on a scellé le jardin de Ma parole, ensuite le jour de l’apôtre premièrement appelé, André, et ton jour d’entrée entre les saints, oh, Ma trompette. Prends la trompette de la main de Mon ange, sonne et réveille l’esprit, afin qu’Il réveille les engourdis!
 
-— Je sone, Seigneur, Je sonne! Elle sonne de nouveau la trompette, Virginie sonne sur le peuple nourri du ciel!
+*— Je sone, Seigneur, Je sonne! Elle sonne de nouveau la trompette, Virginie sonne sur le peuple nourri du ciel!*
 
-Oh, faites la paix avec Dieu, vous, ceux qui essayez de vous arrêter de la marche! Vous ne pourrez vous cacher comme Adam, parce-que le Seigneur vous appelle de son doux murmure, et Il vous exhorte à saint travail. On ouvre les livres et on en temoigne de la parole de Dieu Qui a parlé avec vous et Qui a été écrite dans le livre. Cherchez d’être beaux, oh, car ils vous enlaidissent tout à fait le doute et l’infidélité ensuite, ce péché si lourd sur ceux qui tombent punis par lui, par l’infidélité.
+*Oh, faites la paix avec Dieu, vous, ceux qui essayez de vous arrêter de la marche! Vous ne pourrez vous cacher comme Adam, parce-que le Seigneur vous appelle de son doux murmure, et Il vous exhorte à saint travail. On ouvre les livres et on en temoigne de la parole de Dieu Qui a parlé avec vous et Qui a été écrite dans le livre. Cherchez d’être beaux, oh, car ils vous enlaidissent tout à fait le doute et l’infidélité ensuite, ce péché si lourd sur ceux qui tombent punis par lui, par l’infidélité.*
 
-Je sonne, Seigneur, Je sonne, car ils viennent des jours et de très grands accomplissements, prophétises tout le long de cette œuvre de parole, qu’ils viendront et se montreront avec gloire dans le ciel et sur la terre. Tu es le septième ange et Tu diras: «Il s’est accompli le mystère de Dieu!», et ensuite tout se rangera à droite et à gauche, selon leur œuvre.
+*Je sonne, Seigneur, Je sonne, car ils viennent des jours et de très grands accomplissements, prophétises tout le long de cette œuvre de parole, qu’ils viendront et se montreront avec gloire dans le ciel et sur la terre. Tu es le septième ange et Tu diras:* «Il s’est accompli le mystère de Dieu!»*, et ensuite tout se rangera à droite et à gauche, selon leur œuvre.*
 
-Paix sur le peuple de la parole de Dieu! Paix à Toi, Seigneur, et à Tes grands accomplissements de ce temps, et les suites de saints et d’anges se portent avec Toi de l’Est à l’Ouest et de retour, et ils annoncent avec grande force le royaume de Dieu, puisque le Seigneur vient sur la terre avec Son royaume! Amen.
+*Paix sur le peuple de la parole de Dieu! Paix à Toi, Seigneur, et à Tes grands accomplissements de ce temps, et les suites de saints et d’anges se portent avec Toi de l’Est à l’Ouest et de retour, et ils annoncent avec grande force le royaume de Dieu, puisque le Seigneur vient sur la terre avec Son royaume! Amen.*
 
 — Je viens et Je viens toujours, et le Père est heureux pour Ma victoire sur le temps de sous le ciel, et toutes les armées célestes préparent Ma gloire celle visible des extrémités aux autres extrémités, bientôt, bientôt.
 

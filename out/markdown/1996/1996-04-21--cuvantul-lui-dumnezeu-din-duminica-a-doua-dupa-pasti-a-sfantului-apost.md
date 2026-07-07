@@ -18,37 +18,37 @@ O, Israele, popor care crezi împlinind cuvântul Meu care vine pe nori cu Mine 
 
 E supărat omul că n-a ascuns această carte, dar cuvântul care leagă a rămas puternic peste ea.[/legatura_la_teme] Fiilor, fiilor, aşa scrie în cartea aceasta: *«Amin, amin, vin curând. Amin, amin, vino, Doamne Iisuse!».* Vedeţi voi, măi fiilor, duhul miresei care răspunde: *«Vino, Doamne Iisuse!».* Duhul miresei care zice: *«Vino!»*, a rostit încă de atunci: *«Vino, Doamne Iisuse!»,* şi acest cuvânt al Duhului Sfânt trebuie să fie împlinit şi rostit de mireasa care va întâmpina trupul Meu cel înviat, care curând, curând va veni şi va avea mireasă, că [legatura_la_teme id_capitol="4" id_subcapitol="1"]M-a trimis Tatăl pe pământ să-Mi pregătesc mireasa, fiindcă la naşterea Mea Mi-a făcut şi mireasă, Mi-a născut şi mireasă, şi iată, din cea născută pe pământ odată cu naşterea Mea între oameni, din România Îmi iau mireasă. Eu pe ea o peţesc de două mii de ani, şi nimeni dintre oameni n-a ştiut această taină a Tatălui şi a Fiului şi a Sfântului Duh. Cerul României este plin de sfinţi. Fiecare ţară are un cer cu sfinţi, dar România are sfinţi numiţi de Dumnezeu prin alegere, prin naştere odată cu naşterea Mea. România are nume de fată, nume de mireasă. [/legatura_la_teme]
 
-Fiilor, fiilor, aşa scrie în Scripturi: *«Da, vin curând».* Iar mireasa zice: «Amin, amin, vino, Doamne Iisuse!». «Eu sunt steaua strălucitoare a dimineţii celei veşnice, iar Duhul şi mireasa zic: vino! Şi cel ce aude să zică: vino!».
+Fiilor, fiilor, aşa scrie în Scripturi: *«Da, vin curând».* Iar mireasa zice: *«Amin, amin, vino, Doamne Iisuse!». «Eu sunt steaua strălucitoare a dimineţii celei veşnice, iar Duhul şi mireasa zic: vino! Şi cel ce aude să zică: vino!».*
 
-Vino, Doamne Iisuse, vino! Vino şi împlineşte-Ţi făgăduinţele pentru timpurile fericite despre care Duhul scrie în Scripturi!
+*Vino, Doamne Iisuse, vino! Vino şi împlineşte-Ţi făgăduinţele pentru timpurile fericite despre care Duhul scrie în Scripturi!*
 
-Vino, Doamne! Vino, cer nou şi pământ nou, vino! Vino cu slava ta peste noi, cetate sfântă de nou Ierusalim! Vino cu găteala miresei şi împodobeşte mireasa pentru Mire!
+*Vino, Doamne! Vino, cer nou şi pământ nou, vino! Vino cu slava ta peste noi, cetate sfântă de nou Ierusalim! Vino cu găteala miresei şi împodobeşte mireasa pentru Mire!*
 
-Vino, Doamne! Vino şi glăsuieşte din tron şi întinde-Ţi cortul nunţii şi acoperă-Ţi mireasa şi rămâi pe veci cu ea, Mire şi Dumnezeu! Vino, şi să piară cele dintâi; lacrima şi moartea şi durerea şterge-le, şi rosteşte Scripturile care spun: «Iată, noi le fac pe toate».
+*Vino, Doamne! Vino şi glăsuieşte din tron şi întinde-Ţi cortul nunţii şi acoperă-Ţi mireasa şi rămâi pe veci cu ea, Mire şi Dumnezeu! Vino, şi să piară cele dintâi; lacrima şi moartea şi durerea şterge-le, şi rosteşte Scripturile care spun:* «Iată, noi le fac pe toate».
 
-Vino, Doamne, vino, căci adevărate sunt cuvintele Tale!
+*Vino, Doamne, vino, căci adevărate sunt cuvintele Tale!*
 
-Vino, Doamne! Vino şi împlineşte-le pe toate cele rostite de Tine, şi să se audă glasul Tău care va spune: «Făcutu-s-a!». Amin.
+*Vino, Doamne! Vino şi împlineşte-le pe toate cele rostite de Tine, şi să se audă glasul Tău care va spune:* «Făcutu-s-a!». *Amin.*
 
-O, vino, Doamne, şi pregăteşte slava tainei muntelui cel înalt, care poartă pe el cetatea cea sfântă, Ierusalimul cel ceresc, venit de la Tine pe pământ, făgăduit dintru început, căci Tu eşti Alfa şi Omega! Vino să-Ţi întăreşti mireasa şi s-o vesteşti că vii!
+*O, vino, Doamne, şi pregăteşte slava tainei muntelui cel înalt, care poartă pe el cetatea cea sfântă, Ierusalimul cel ceresc, venit de la Tine pe pământ, făgăduit dintru început, căci Tu eşti Alfa şi Omega! Vino să-Ţi întăreşti mireasa şi s-o vesteşti că vii!*
 
-Vino, Doamne, Atotţiitorule şi Mielule! Vino şi luminează cetatea Ta cu mărirea Ta, că Tu eşti făclia ei!
+*Vino, Doamne, Atotţiitorule şi Mielule! Vino şi luminează cetatea Ta cu mărirea Ta, că Tu eşti făclia ei!*
 
-Vino, Doamne Iisuse, şi luminează neamurile întru lumina cetăţii Tale, ca să Te mărească pe Tine împăraţii pământului. O, vino şi ia noaptea de peste zi şi deschide calea zilei şi bucură totul de slava Ta!
+*Vino, Doamne Iisuse, şi luminează neamurile întru lumina cetăţii Tale, ca să Te mărească pe Tine împăraţii pământului. O, vino şi ia noaptea de peste zi şi deschide calea zilei şi bucură totul de slava Ta!*
 
-Vino, Doamne, şi cuvintează cuvânt de viaţă peste moarte, ca să dispară duhul pângăririi şi al minciunii, şi să se deschidă Cartea Vieţii şi să primească pe cei ce sunt ai ei!
+*Vino, Doamne, şi cuvintează cuvânt de viaţă peste moarte, ca să dispară duhul pângăririi şi al minciunii, şi să se deschidă Cartea Vieţii şi să primească pe cei ce sunt ai ei!*
 
-Vino, Doamne, Cel ce eşti izvorul râului vieţii, care curge din tronul Tău! O, Dumnezeule şi Mielule, Care dai roade pomului vieţii, roadă veşnică spre tămăduirea făpturii, vino cu îngerii şi cu sfinţii care vor sluji tronului Tău şi care au numele Tău pe frunţile lor!
+*Vino, Doamne, Cel ce eşti izvorul râului vieţii, care curge din tronul Tău! O, Dumnezeule şi Mielule, Care dai roade pomului vieţii, roadă veşnică spre tămăduirea făpturii, vino cu îngerii şi cu sfinţii care vor sluji tronului Tău şi care au numele Tău pe frunţile lor!*
 
-O, vino Doamne, că Tu eşti duhul proorocilor care au vestit făgăduinţa timpului fericit, a împărăţiei tinereţii veşnice şi a vieţii veşnice! Vino, Mire iubit, căci Duhul Tău a spus: «Iată, vin curând, şi fericiţi sunt cei ce spală veşmintele lor ca să aibă intrare pe porţi spre pomul vieţii».
+*O, vino Doamne, că Tu eşti duhul proorocilor care au vestit făgăduinţa timpului fericit, a împărăţiei tinereţii veşnice şi a vieţii veşnice! Vino, Mire iubit, căci Duhul Tău a spus:* «Iată, vin curând, şi fericiţi sunt cei ce spală veşmintele lor ca să aibă intrare pe porţi spre pomul vieţii».
 
-Vino, stea strălucitoare a dimineţii celei veşnice, căci Duhul şi mireasa zic: «Vino!».
+*Vino, stea strălucitoare a dimineţii celei veşnice, căci Duhul şi mireasa zic:* «Vino!».
 
-Doamne, pleacă cerurile şi Te coboară şi vino să ne mântuieşti pe noi, căci Duhul şi mireasa zic: «Vino!». *Vino şi slobozeşte glas din tronul Tău zicând celor ce Te iubesc: şi toţi să glăsuiască înaintea Ta:* «Aliluia, aliluia, aliluia! Domnul nostru este Împărat şi Mire cu mireasă învăluită în veşmânt de in curat, viaţă sfinţită înaintea Mirelui».
+*Doamne, pleacă cerurile şi Te coboară şi vino să ne mântuieşti pe noi, căci Duhul şi mireasa zic:* «Vino!». *Vino şi slobozeşte glas din tronul Tău zicând celor ce Te iubesc: şi toţi să glăsuiască înaintea Ta:* «Aliluia, aliluia, aliluia! Domnul nostru este Împărat şi Mire cu mireasă învăluită în veşmânt de in curat, viaţă sfinţită înaintea Mirelui».
 
-Vino, Doamne! Vino, Mire iubit! Vino, că Tu ai rostit peste slujitorul Tău, şi ai zis: «Scrie: fericiţi chemaţii nunţii Mielului», *şi iar ai zis:* «Scrie, că acestea sunt cuvintele adevărului».
+*Vino, Doamne! Vino, Mire iubit! Vino, că Tu ai rostit peste slujitorul Tău, şi ai zis:* «Scrie: fericiţi chemaţii nunţii Mielului», *şi iar ai zis:* «Scrie, că acestea sunt cuvintele adevărului».
 
-Vino, Doamne Iisuse, şi ascunde durerea celor ce vor fi aşezaţi la masa Ta de nuntă! Vino şi ne fă părtaşi la mila Ta, la masa Ta de milă, la masa Ta de nuntă, căci Duhul şi mireasa zic: «Vino!». *Vino, că dinaintea Ta se dau toate în lături ca să vii; cerul şi pământul se trag în lături, ca să Te arăţi venind, ca să fii văzut venind şi să Te sălăşluieşti lângă mireasă întru taina muntelui cel înalt al Tău. Amin.*
+*Vino, Doamne Iisuse, şi ascunde durerea celor ce vor fi aşezaţi la masa Ta de nuntă! Vino şi ne fă părtaşi la mila Ta, la masa Ta de milă, la masa Ta de nuntă, căci Duhul şi mireasa zic:* «Vino!». *Vino, că dinaintea Ta se dau toate în lături ca să vii; cerul şi pământul se trag în lături, ca să Te arăţi venind, ca să fii văzut venind şi să Te sălăşluieşti lângă mireasă întru taina muntelui cel înalt al Tău. Amin.*
 
 O, Israele, Israele, Duhul Se roagă pentru tine, Israele, mireasa Mea. Roagă-te şi tu cu duhul, roagă-te cu curăţenie, roagă-te cu aşteptare, Israele român.
 

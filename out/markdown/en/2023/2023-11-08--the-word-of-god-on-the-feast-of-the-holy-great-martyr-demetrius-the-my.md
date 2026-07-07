@@ -29,11 +29,9 @@ Oh, sons, stand at the work of creation if you have chosen to walk the path of M
 
 I cry and I keep on crying over the earth and over the people as if I were always saying: Behold the Bridegroom, go out to meet Him! I always cry over Romania to prepare it for My meeting and I am working with you, with the faithful so that I may be able to work through their faith, oh, sons. I am saying to all of you: Learn the faith and its work, learn from the saints and be faithful, sons nourished from heaven with the manna of My word. Work like the saints who overcame and shamed the proud and godless kings over them, and behold, the one celebrated today has an entry in the book from Me and speaks thus on his day among the saints above:
 
-<i— I was a Christian in secret, Lord, and I am telling Your least ones today that the grace of faith in Christ banishes even the fear of death and makes way for life from above for those with strong faith through their love for You, Lord Jesus.
+*I was my father's successor according to the flesh at the helm of the city since my youth, but by not denying You I remained Your successor, and the emperor tormented me if I shamed him with Your great name and I overcame him through faith in You, for I loved You, Lord, hating this passing age, which kills the soul in man, Your wealth in man, Lord.*
 
-I was my father's successor according to the flesh at the helm of the city since my youth, but by not denying You I remained Your successor, and the emperor tormented me if I shamed him with Your great name and I overcame him through faith in You, for I loved You, Lord, hating this passing age, which kills the soul in man, Your wealth in man, Lord.
-
-Therefore, faith with submission, for otherwise faith can do nothing, o children of Christ. Learn the fear of God, which brings you to obedience and submission for the work of creation, o, and so help them, O Lord, that they may be, and peace be with You in their midst, and teach them Your peace!
+*Therefore, faith with submission, for otherwise faith can do nothing, o children of Christ. Learn the fear of God, which brings you to obedience and submission for the work of creation, o, and so help them, O Lord, that they may be, and peace be with You in their midst, and teach them Your peace!*
 
 — So, peace to you, sons! Learn to have this when I give it to you. And now, I am saying again a word of blessing over all your work with Me, and may the feast of the angels rise to heaven from you together with the remembrance of those who have fallen asleep, whom you will place at the feast table for their comfort, sons.
 

@@ -32,25 +32,25 @@ Când omul are amarul în pântece îi ajunge pe limbă și se face cuvânt aces
 
 [legatura_la_teme id_capitol="6" id_subcapitol="2"]Iată-l pe Ioan la masă cu Mine și cu sfinții aici la voi și cu voi, fiilor! O, cât se mângâie cu tot cuvântul Meu de peste voi, și vă spune el vouă acum așa:
 
-— Pregătiți calea Domnului și neteziți-o voi, fiilor, ca să pornească pe cale dreaptă spre Domnul popoarele, că este scris că orice vale se va astupa și orice munte sau deal se va preface în loc neted, că toate căile strâmbe vor fi îndreptate, iar drumurile zgrumțuroase se vor face netede ca să poată orice făptură să meargă și să vadă mântuirea lui Dumnezeu!
+*— Pregătiți calea Domnului și neteziți-o voi, fiilor, ca să pornească pe cale dreaptă spre Domnul popoarele, că este scris că orice vale se va astupa și orice munte sau deal se va preface în loc neted, că toate căile strâmbe vor fi îndreptate, iar drumurile zgrumțuroase se vor face netede ca să poată orice făptură să meargă și să vadă mântuirea lui Dumnezeu!*
 
-Cine are două haine să împartă cu cine n-are niciuna, iar cu pâinea la fel!
+*Cine are două haine să împartă cu cine n-are niciuna, iar cu pâinea la fel!*
 
-Nimeni să nu ia mai mult decât i-a fost poruncit să ia!
+*Nimeni să nu ia mai mult decât i-a fost poruncit să ia!*
 
-Nimeni să nu tragă de la ceilalți cu amenințare!
+*Nimeni să nu tragă de la ceilalți cu amenințare!*
 
-Nimeni să nu învinuiască pe nedrept, și fiecăruia să-i ajungă leafa sa!
+*Nimeni să nu învinuiască pe nedrept, și fiecăruia să-i ajungă leafa sa!*
 
-Toate ca de la Domnul să fie și să se lucreze!
+*Toate ca de la Domnul să fie și să se lucreze!*
 
-Să se sfârșească lucrarea necredinței de pe pământ, căci s-a apropiat împărăția lui Dumnezeu cu oamenii după două mii de ani de la vestirea ei, când eu vesteam pe Hristos la Iordan, jertfa Lui de Miel al lui Dumnezeu, o, și s-a împlinit pe cruce această jertfă și a biruit Mielul pe fiară și iarăși o va birui, precum este scris!
+*Să se sfârșească lucrarea necredinței de pe pământ, căci s-a apropiat împărăția lui Dumnezeu cu oamenii după două mii de ani de la vestirea ei, când eu vesteam pe Hristos la Iordan, jertfa Lui de Miel al lui Dumnezeu, o, și s-a împlinit pe cruce această jertfă și a biruit Mielul pe fiară și iarăși o va birui, precum este scris!*
 
-Voi, cei aleși pentru creștere sfântă ca să neteziți calea Domnului spre voi și spre popoare, fiți zi și noapte, zi și noapte fiți mâinile și picioarele Domnului, o, că e de lucru cu mâinile, fiilor, e altfel acum, e ca la sfârșit, când Domnul Se vestește peste tot pământul venind și cuvântând de la margini la margini venirea Sa cu slavă de cuvânt cu putere multă, căci credința trebuie să biruiască numaidecât împotriva necredinței, o, și trebuie semne mari să vină și să împartă credință și credincioșie și biruință.
+*Voi, cei aleși pentru creștere sfântă ca să neteziți calea Domnului spre voi și spre popoare, fiți zi și noapte, zi și noapte fiți mâinile și picioarele Domnului, o, că e de lucru cu mâinile, fiilor, e altfel acum, e ca la sfârșit, când Domnul Se vestește peste tot pământul venind și cuvântând de la margini la margini venirea Sa cu slavă de cuvânt cu putere multă, căci credința trebuie să biruiască numaidecât împotriva necredinței, o, și trebuie semne mari să vină și să împartă credință și credincioșie și biruință.*
 
-Și acum pace vouă de la Domnul și de la sfinții toți, pace, fiilor, căci sunteți calea Domnului între cer și pământ! Rămâneți în mare umilință, o, și numai așa să lucrați ceea ce v-a fost împărțit vouă acum, la sfârșit de timp, fiilor.
+*Și acum pace vouă de la Domnul și de la sfinții toți, pace, fiilor, căci sunteți calea Domnului între cer și pământ! Rămâneți în mare umilință, o, și numai așa să lucrați ceea ce v-a fost împărțit vouă acum, la sfârșit de timp, fiilor.*
 
-Iar Tu, Doamne, ești tot o mângâiere a celor din cer, căci venirea Ta este această mângâiere, pe care atât au așteptat-o de la început și până la sfârșit toți sfinții Tăi. Amin.
+*Iar Tu, Doamne, ești tot o mângâiere a celor din cer, căci venirea Ta este această mângâiere, pe care atât au așteptat-o de la început și până la sfârșit toți sfinții Tăi. Amin.*
 
 [/legatura_la_teme][legatura_la_teme id_capitol="5" id_subcapitol="6"]— Eu, Domnul, îmbrățișez pe sfinți și pe voi întru una îmbrățișare, fiilor. Cuvântul Meu se va înmulți de acum, căci suntem în mare și grăbită lucrare pentru slava Mea cu voi și pentru grăbirea și frumusețea zilei de serbare a grădiniței de la Maluri, o, și este de lucru zi lumină până la ziua de sărbătoare, și tot o dragoste să vă fie lucrul care mai este de lucrat, dar nu uitați că pentru această grabă vă trebuie înțelepciunea care vine de la cuvântul Meu de peste voi: cu toții în stânga, cu toții în dreapta, că iată, dăm zor și vin zorii zilei așteptate de mulți, fiilor.
 

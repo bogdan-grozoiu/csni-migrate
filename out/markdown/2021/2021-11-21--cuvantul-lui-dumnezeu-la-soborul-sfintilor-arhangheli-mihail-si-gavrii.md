@@ -44,15 +44,15 @@ O, fiilor care vă hrăniți din masa Mea de cuvânt, păstrați-vă aproape cu 
 
 [legatura_la_teme id_capitol="7" id_subcapitol="3"]Îngerii Mei slobozesc glas între ei și Mine și spun în cor, în cete spun:
 
-— Îți mulțumim, Doamne, că Tu împărățești și că ne dai lucrarea Ta s-o lucrăm pe pământ ca și în cer! Ne este dor de biruința Ta cea de la sfârșit de timp, Stăpâne Doamne. Ne este dor de serbarea Ta de biruință, de ziua Ta cea mare pe pământ. Așteptăm porunca Ta ca să sunăm din trâmbițe și să cadă Babilonul și să biruiască duhul credinței sfinte, Duhul lui Dumnezeu în toți pământenii.
+*— Îți mulțumim, Doamne, că Tu împărățești și că ne dai lucrarea Ta s-o lucrăm pe pământ ca și în cer! Ne este dor de biruința Ta cea de la sfârșit de timp, Stăpâne Doamne. Ne este dor de serbarea Ta de biruință, de ziua Ta cea mare pe pământ. Așteptăm porunca Ta ca să sunăm din trâmbițe și să cadă Babilonul și să biruiască duhul credinței sfinte, Duhul lui Dumnezeu în toți pământenii.*
 
-O, slavă Ție în mijlocul celor ce sunt credincioși venirii Tale cuvânt pe pământ! Ei sunt bogăția cea de mare preț din zilele acestea, bogăție care nu piere, Doamne.
+*O, slavă Ție în mijlocul celor ce sunt credincioși venirii Tale cuvânt pe pământ! Ei sunt bogăția cea de mare preț din zilele acestea, bogăție care nu piere, Doamne.*
 
-O, slavă Ție, Doamne, pentru această zi de serbare pentru noi, pentru cetele îngerești! Ne aplecăm acum, aici, în așternutul care ne adăpostește această zi de serbare pentru noi.
+*O, slavă Ție, Doamne, pentru această zi de serbare pentru noi, pentru cetele îngerești! Ne aplecăm acum, aici, în așternutul care ne adăpostește această zi de serbare pentru noi.*
 
-O, nu este biruință fără Domnul. Să știe toți de pe pământ, toți care doresc să fie biruitori, să știe că numai cu Domnul biruiesc cei ce sunt biruitori, culegându-și cerul de bogăție a lor pe pământ și în cer.
+*O, nu este biruință fără Domnul. Să știe toți de pe pământ, toți care doresc să fie biruitori, să știe că numai cu Domnul biruiesc cei ce sunt biruitori, culegându-și cerul de bogăție a lor pe pământ și în cer.*
 
-Am grăit în Tine și din Tine în ziua noastră de serbare în cer și pe pământ și Te-am mărturisit, Doamne, și duhul mângâierii l-am zidit prin cuvânt.
+*Am grăit în Tine și din Tine în ziua noastră de serbare în cer și pe pământ și Te-am mărturisit, Doamne, și duhul mângâierii l-am zidit prin cuvânt.*
 
 — Slava Mea este zidită de voi, din voi, o, slujitori cerești ai Mei, purtători de Dumnezeu din loc în loc. Mi-e dor să dau deoparte ceea ce Ne acoperă ca să stăm în taină între om și Dumnezeu. Mi-e dor de cele veșnice peste pământ și peste oameni. Voi lucra să întăresc credința în tot mai mulți, și să lucrez prin puterea credinței lor, prin statornicia credinței să lucrez. Mi-e dor să poată omul pentru Dumnezeu, și Dumnezeu pentru om. Mi-e dor, Mi-e tot mai dor de părtășia Mea cu cei de pe pământ. O, de M-ar aștepta ei! Mi-e tare dor să vin, să vin curând, să spună omul: *„Vino, Doamne!”*, iar Eu să-i răspund: *„Vin curând!”*, și apoi să vin. [/legatura_la_teme]
 

@@ -80,9 +80,9 @@ Fiilor care-Mi purtați greul Meu de azi, voi pe cei zdrobiți cu inima din ei, 
 
 Am îmbrăcat în cuvânt tot ceea ce dă să dăuneze celor ce lucrează rău și tot ce se lucrează, căci ochiul Meu este treaz ca să-Mi ocrotesc lucrarea și mersul. E zi de sfânta Parascheva, iar ea a stat în slava Mea în ziua aceasta cu ceata ei de venire la masa ei de pomenire și-Mi spune ea:
 
-— O, ce mare cuvânt, ce mare, Doamne! Ce mare veghe în cuvântul Tău din ziua mea de pomenire între sfinții Tăi, Doamne Dumnezeul părinților noștri și al fiilor lor din neam în neam, din unii în alții până azi!
+*— O, ce mare cuvânt, ce mare, Doamne! Ce mare veghe în cuvântul Tău din ziua mea de pomenire între sfinții Tăi, Doamne Dumnezeul părinților noștri și al fiilor lor din neam în neam, din unii în alții până azi!*
 
-O, mă aplec în fața mesei de cuvânt, atât de bogată în iubirea Ta pentru ei, Doamne, că greu e pentru om să Te iubească, greu mai e, greu din pricina nelepădării de sine a sa, Domnul meu atât de umilit față de om, față în față cu omul. O, slavă Ție, și-Ți mulțumesc, și-Ți dau ziua mea să o așezi Tu cu lucrul Tău în ea față în față cu cei învățați de Dumnezeu pe pământ acum! Slavă Ție, slavă Ție, slavă Ție! Amin.
+*O, mă aplec în fața mesei de cuvânt, atât de bogată în iubirea Ta pentru ei, Doamne, că greu e pentru om să Te iubească, greu mai e, greu din pricina nelepădării de sine a sa, Domnul meu atât de umilit față de om, față în față cu omul. O, slavă Ție, și-Ți mulțumesc, și-Ți dau ziua mea să o așezi Tu cu lucrul Tău în ea față în față cu cei învățați de Dumnezeu pe pământ acum! Slavă Ție, slavă Ție, slavă Ție! Amin.*
 
 — O, am îmbrăcat în cuvânt durerea Mea ca s-o pot arăta și s-o port cu cei ce poartă cu Mine grijă de mersul venirii Mele de azi, că nu cu toți pot să împart tainele și durerile cele pentru purtarea lor. Așadar, să fiu primit și mângâiat apoi de cei ce Mă rănesc adânc. O, și aș vrea să-i spăl de vină și să-i rog să învețe să fie copii, să fie nevinovați, că iată ce rău e să se creadă mari și tari. O, vai, vai, că din atâta bine lucrat iese atât de mult rău!
 

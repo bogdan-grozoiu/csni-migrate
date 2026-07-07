@@ -13,6 +13,6 @@ audio_file:
 
 Next year* about this time the wrath of God will be starting against these mountains and against the enemy who is taking away the little cross from the neck of the child. Next year about this time, many things start to be worked out, but not by a man’s hand but by a godly hand. Take good care not to fall into the pit, for the ground will open its mouth to swallow a third part; it will open its mouth to eat its pray which is on it, and it will be finished this way with all that is against me. [legatura_la_teme id_capitol="2" id_subcapitol="6"]Next year* about this time the antichrist will be revealed and many who have been his friends and have not known him will go to be hanged. There will be ten years in one year.* [/legatura_la_teme]
 
-... I speak spiritually; the world is perishing and its commander and many are looking to see, but I said and I will not lie. The world will perish and the hawks of the homeland will also perish. (The communist preschool children, r.n.)
+... I speak spiritually; the world is perishing and its commander and many are looking to see, but I said and I will not lie. The world will perish and the hawks of the homeland will also perish. *(The communist preschool children, r.n.)*
 
-(*The Romanian revolution, the fall of the Communism dictatorship and Ceauşescu’s execution in December 25.1989, r.n.)
+*(*The Romanian revolution, the fall of the Communism dictatorship and Ceauşescu’s execution in December 25.1989, r.n.)*

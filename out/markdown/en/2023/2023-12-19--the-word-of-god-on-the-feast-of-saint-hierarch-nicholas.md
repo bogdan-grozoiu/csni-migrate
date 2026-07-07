@@ -43,13 +43,13 @@ I created man so that through him the works of God's creation, heaven and earth,
 
 And [legatura_la_teme id_capitol="3" id_subcapitol="3"]on this day, hierarch Nicholas is sitting down in My book with you, sons, and is exhorting the hierarch as well as I work, I in him, and he in Me, and this is the reward of those who sanctify themselves for the Lord on earth, and I glorify Myself from among them in this time of My coming, and I am saying this so that the people on earth may know the reward of My saints, of those who love God on earth.
 
-— I loved You, Lord, and I chose for my life to be Your love on earth and to give it to those who do not have it and do not know it.
+*— I loved You, Lord, and I chose for my life to be Your love on earth and to give it to those who do not have it and do not know it.*
 
-I watched like a gentle shepherd and tamed people with a heart of beasts and bow them down to repentance, stopping them from doing evil to the poor and helpless and innocent. I saved from a life of sin those who were ready to fall into this mud, sin, and I loved people very much, for the feeling of mercy taught me so.
+*I watched like a gentle shepherd and tamed people with a heart of beasts and bow them down to repentance, stopping them from doing evil to the poor and helpless and innocent. I saved from a life of sin those who were ready to fall into this mud, sin, and I loved people very much, for the feeling of mercy taught me so.*
 
-People fall, they fall from God and lose their way and go on the path of destruction through sin. The Lord teaches you the sinless path, man, but who can speak to you about eternity and teach you to believe and be able to work with God?
+*People fall, they fall from God and lose their way and go on the path of destruction through sin. The Lord teaches you the sinless path, man, but who can speak to you about eternity and teach you to believe and be able to work with God?*
 
-Miracles are needed, Lord, for the weakness of the human mind is great, and love is needed to be placed in people, because the human mind must be heavenly love. I have worked like this. Love has preserved me for You and for people, but miracles are needed if otherwise man does not come to the path of life. Make people know You and seek You and love You, and You give them forgiveness of sins, and then Your light will surround them in it and they will walk in the light, oh, Lord! Amen.
+*Miracles are needed, Lord, for the weakness of the human mind is great, and love is needed to be placed in people, because the human mind must be heavenly love. I have worked like this. Love has preserved me for You and for people, but miracles are needed if otherwise man does not come to the path of life. Make people know You and seek You and love You, and You give them forgiveness of sins, and then Your light will surround them in it and they will walk in the light, oh, Lord! Amen.*
 
 — I am the light of the world, I and those who stand in the light so that they may overcome the darkness on earth and in man and that God may be confessed throughout the earth.
 

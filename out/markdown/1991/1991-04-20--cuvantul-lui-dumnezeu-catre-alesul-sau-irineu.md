@@ -34,7 +34,7 @@ Acum, iarăşi, pace ţie! Pacea Mea să rămână peste tine şi să lucreze du
 
 Măicuţa Mea te întâmpină şi ea cu vestea cea mare:
 
-– Hristos a înviat, copil iubit al Fiului meu! Pace ţie! Pacea Fiului meu să fie cu tine! Amin.
+*– Hristos a înviat, copil iubit al Fiului meu! Pace ţie! Pacea Fiului meu să fie cu tine! Amin.*
 
 – Iată, să ne întâlnim la ieslea coborârii Mele şi să întărim de la Mine şi de la tine pe cei pe care-i aşteptăm, pe cei cu care ne ajutăm, căci vreau să-i fac să priceapă bine lucrul Meu din vremea aceasta. Vreau să pricepi bine că în acest acoperământ în care Eu cobor cuvântul Meu, vom lucra adesea peste multe scule ale planului Meu, şi vom lucra peste ei şi cu ei apoi, ca să desăvârşim via aceasta şi s-o ridicăm pe România în vârful gloriei Ierusalimului ceresc.
 

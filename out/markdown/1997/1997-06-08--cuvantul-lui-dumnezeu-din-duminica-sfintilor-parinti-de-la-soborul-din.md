@@ -42,10 +42,10 @@ Lumină din Lumină să fii, poporul Meu, că pe toate le fac iar, ca şi la în
 
 Cuvântul Meu s-a făcut cuvânt în cartea ta, Verginico, aşa cum în cartea lui Moise Mă scriam. Amin.
 
-– O, Tu eşti râu de cuvânt, Doamne, şi nu încap cărţile cuvântului Tău pe pământul acesta, că mari sunt cuvintele Tale, Doamne. Cuvântul Tău este mângâiere pentru fii, şi este mânie pentru cei ce îl aud neauzindu-l, Doamne al mângâierii şi al dreptăţii cuvintelor Tale.
+*– O, Tu eşti râu de cuvânt, Doamne, şi nu încap cărţile cuvântului Tău pe pământul acesta, că mari sunt cuvintele Tale, Doamne. Cuvântul Tău este mângâiere pentru fii, şi este mânie pentru cei ce îl aud neauzindu-l, Doamne al mângâierii şi al dreptăţii cuvintelor Tale.*
 
-O, Ierusalime, o, fiilor, fiilor, scris este în Scripturi: «Mâniaţi-vă, şi nu păcătuiţi». Căutaţi să înţelegeţi duhovniceşte peste voi şi între voi Scripturile Domnului. Mâniaţi-vă, şi nu urâţi. Mâniaţi-vă, şi nu nedreptăţiţi prin mânie. Mâniaţi-vă, şi îndreptaţi căile Domnului peste oameni şi spre oameni. Lucraţi ca Domnul. Arătaţi paşii cei răi ai oamenilor; poate se vor vindeca de rău paşii lor.
+*O, Ierusalime, o, fiilor, fiilor, scris este în Scripturi:* «Mâniaţi-vă, şi nu păcătuiţi». *Căutaţi să înţelegeţi duhovniceşte peste voi şi între voi Scripturile Domnului. Mâniaţi-vă, şi nu urâţi. Mâniaţi-vă, şi nu nedreptăţiţi prin mânie. Mâniaţi-vă, şi îndreptaţi căile Domnului peste oameni şi spre oameni. Lucraţi ca Domnul. Arătaţi paşii cei răi ai oamenilor; poate se vor vindeca de rău paşii lor.*
 
-O, fiilor unşi, Domnul va deschide gura voastră şi vă va învăţa ce să grăiţi. Mergeţi la Israel şi lucraţi cu Israel, şi voi lucra şi Eu cu voi, şi apoi voi lucra cuvânt în cartea Mea pentru Israel. Amin, amin, amin.
+*O, fiilor unşi, Domnul va deschide gura voastră şi vă va învăţa ce să grăiţi. Mergeţi la Israel şi lucraţi cu Israel, şi voi lucra şi Eu cu voi, şi apoi voi lucra cuvânt în cartea Mea pentru Israel. Amin, amin, amin.*
 
-Şi voi mai lucra un cuvânt, ba chiar două voi lucra, şi vă voi trimite cu el acolo unde merge el. Amin.
+*Şi voi mai lucra un cuvânt, ba chiar două voi lucra, şi vă voi trimite cu el acolo unde merge el. Amin.*

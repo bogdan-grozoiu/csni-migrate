@@ -43,13 +43,13 @@ Je vous donne en ce jour tous ces enseignements puisque le diable a fait des pla
 
 Oh, Ma mère, c’est avec pitié que Je les ai relevés, pour qu’ils Nous portent la venue et la gloire de la fête, Ma mère. J’ai l’onguent et le pansement à la main et Nous devons renforcer le pouvoir qui Nous porte. Allons mettre des consolations sur les plaies, allons les soigner et les protéger, Ma mère!
 
-— Oh, mon Fils Jésus, qui dans les cieux, qui serait celui qui ne comprenne pas Notre difficile marche, pleine de blessures et d’embarras? Nous sommes avec la consolation et la douceur sur ceux réunis à la fête ici. Tout l’ordre de la fête parle d’une seule voix à ceux des cieux et à ceux de la terre. Le jour de ma venue auprès de Toi et auprès de ceux du ciel a couronné tout mon repos et je peux agir par lui pour ceux qui Nous aiment sur la terre, mon Fils bien-cher.
+*— Oh, mon Fils Jésus, qui dans les cieux, qui serait celui qui ne comprenne pas Notre difficile marche, pleine de blessures et d’embarras? Nous sommes avec la consolation et la douceur sur ceux réunis à la fête ici. Tout l’ordre de la fête parle d’une seule voix à ceux des cieux et à ceux de la terre. Le jour de ma venue auprès de Toi et auprès de ceux du ciel a couronné tout mon repos et je peux agir par lui pour ceux qui Nous aiment sur la terre, mon Fils bien-cher.*
 
-Les voilà, ils se sont réunis pour la fête! Oh, bénissons leur amour et la fidélité, exhortons-les à se laisser faits logis du Saint-Esprit et de diverses sortes d’œuvres et de grâce! Oh, écoutons tout ce qu’ils mettent devant Nous pour Nous réjouir, pour Nous consoler, mon bien cher Fils!
+*Les voilà, ils se sont réunis pour la fête! Oh, bénissons leur amour et la fidélité, exhortons-les à se laisser faits logis du Saint-Esprit et de diverses sortes d’œuvres et de grâce! Oh, écoutons tout ce qu’ils mettent devant Nous pour Nous réjouir, pour Nous consoler, mon bien cher Fils!*
 
-Oh, venez, les fils, venez à mon Fils, Jésus-Christ! Et si vous venez, oh, apprenez à rester en Lui, pour avoir Son amour.
+*Oh, venez, les fils, venez à mon Fils, Jésus-Christ! Et si vous venez, oh, apprenez à rester en Lui, pour avoir Son amour.*
 
-Je vous embrasse et je vous serre contre mon cœur. Je m’incline devant la beauté réservé à Notre accueil, à Notre arrêt ici. Nous recevrons la consolation préparée pour Nous maintenant dans ce jardin. Ouvrez votre intelligence pour toute la parole de mon Fils Jésus-Christ, que vous devez accomplir pour pouvoir être Ses fils. Levez de la guerre contre le diable, une guerre toute neuve contre lui, pour qu’il ne puisse pas voir votre lutte arrêtée, même pour un instant. Oh, apprenez, apprenez à croire, en accomplissant la parole de mon Fils! Amen.
+*Je vous embrasse et je vous serre contre mon cœur. Je m’incline devant la beauté réservé à Notre accueil, à Notre arrêt ici. Nous recevrons la consolation préparée pour Nous maintenant dans ce jardin. Ouvrez votre intelligence pour toute la parole de mon Fils Jésus-Christ, que vous devez accomplir pour pouvoir être Ses fils. Levez de la guerre contre le diable, une guerre toute neuve contre lui, pour qu’il ne puisse pas voir votre lutte arrêtée, même pour un instant. Oh, apprenez, apprenez à croire, en accomplissant la parole de mon Fils! Amen.*
 
 — Oh, Ma mère, allons bénir la voie de retour vers leurs maisons maintenant, Ma mère! Allons les entourer du ciel, Ma mère, car sur la terre il y a des pièges, pour les Miens! Et nous, apprenons à les attendre encore et encore, Ma mère.
 

@@ -12,11 +12,11 @@ Amin, amin, amin. Fiule, cuvântul amin, amin, amin, ce înseamnă? Înseamnă t
 
 Plâng duhurile. De ce plângeţi, măi copilaşi?
 
-— Plângem, Tată, că nu avem sălaş. Nu avem masă şi casă, şi viscolul ne aşteaptă.
+*— Plângem, Tată, că nu avem sălaş. Nu avem masă şi casă, şi viscolul ne aşteaptă.*
 
 — Nu mai plângeţi, copilaşi, căci un îngeraş Mi-a spus că va veni Cineva şi vă va lua în patria Sa. Unde vă sunt casele?
 
-— S-au pustiit, şi pe noi ne-au alungat şi am trăit afară, în frig, fără adăpost şi fără hrană.
+*— S-au pustiit, şi pe noi ne-au alungat şi am trăit afară, în frig, fără adăpost şi fără hrană.*
 
 ... M-am coborât din cerul sfânt pe acest pământ. Întru început M-am născut şi am fost profeţit de acel venit. Şi la sfârşit sunt profeţit pentru acest venit, ca să închei legământ cu ai Mei. Dar ai Mei nu Mă mai primesc, nu Mă mai cunosc, s-au certat cu Creatorul, au profanat şi au dat afară duhurile şi au primit întru sine duhuri străine, care nu ţin în veşnicie şi mor pe drumuri, ucişi de topor, ucişi de cuţit, ucişi de tâlhărie şi de unelte din fierărie. Plâng duhurile şi se tânguiesc de locaşurile lor ce le pierd.
 

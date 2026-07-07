@@ -37,9 +37,9 @@ Peace to you, nations, and to you, rulers over them, for the victory is for Chri
 
 Now the martyr Demetrios is adding next to My word his confession like this:
 
-— Oh, do not rise higher than you can be, you haughty rulers, for the true victory is not the earth for which you are fighting, but heaven, and you are fighting without the love of God against those who have this love.
+*— Oh, do not rise higher than you can be, you haughty rulers, for the true victory is not the earth for which you are fighting, but heaven, and you are fighting without the love of God against those who have this love.*
 
-And you, who bring your people in danger, oh, stop relying on friends, because there are no friends but only thieves, only robbers, because love does not seek after its own, oh, no. Therefore, this is what the Lords is saying to you now:
+*And you, who bring your people in danger, oh, stop relying on friends, because there are no friends but only thieves, only robbers, because love does not seek after its own, oh, no. Therefore, this is what the Lords is saying to you now:*
 
 — I, the Lord, am giving you fatherly advice: peace to you, to those who do not have peace, for behold, there is pain in your country, and the foreign enemy lies to you and pretends to be your friend! Oh, be at peace in your things and have mercy on the suffering and perishing people. Your war is coming from the outside not from the middle, not from the neighbors. It is the antichrist enemy under the guise of a friend, and he is the enemy who is fighting to bring and spread his paganism all over, and behold, here at you too, here, near the Orthodox nations, here, where Christians are all around, Christ’s Christians, the church of the Lamb.
 

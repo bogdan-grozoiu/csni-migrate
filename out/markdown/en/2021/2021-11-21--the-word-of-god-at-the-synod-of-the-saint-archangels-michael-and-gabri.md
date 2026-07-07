@@ -45,15 +45,15 @@ And now, God’s angels are coming down with the gifts from above for those who 
 
 [legatura_la_teme id_capitol="7" id_subcapitol="3"]My angels are giving their voice between them and Me and they are saying in a choir, and they are saying in groups as well:
 
-â�� We thank You, Lord, that You reign and give us Your work to fulfill on earth as in heaven! We are longing after Your victory in the end of the time, Lord and Master. We miss Your victory celebration, Your great day on earth. We are waiting for Your commandment to sound our trumpet so that the Babylon may fall and the spirit of the holy faith to overcome, God’s Spirit in all the people on earth.
+*â�� We thank You, Lord, that You reign and give us Your work to fulfill on earth as in heaven! We are longing after Your victory in the end of the time, Lord and Master. We miss Your victory celebration, Your great day on earth. We are waiting for Your commandment to sound our trumpet so that the Babylon may fall and the spirit of the holy faith to overcome, God’s Spirit in all the people on earth.*
 
-Oh, glory to You in the midst of those who are faithful to Your coming as word on earth! They are the treasure of great value on these days, a wealth that does not perish, Lord.
+*Oh, glory to You in the midst of those who are faithful to Your coming as word on earth! They are the treasure of great value on these days, a wealth that does not perish, Lord.*
 
-Oh, glory to You, Lord, for this day of feast for us, for the angelic hosts! We are coming down now, here, in the bedding that accommodates us in this day of feast for us.
+*Oh, glory to You, Lord, for this day of feast for us, for the angelic hosts! We are coming down now, here, in the bedding that accommodates us in this day of feast for us.*
 
-Oh, there is no victory without the Lord. Let all those on earth know, all those who want to be victorious; let them know that those who are victorious overcome only with the Lord, choosing the heaven of their richness on earth as in heaven.
+*Oh, there is no victory without the Lord. Let all those on earth know, all those who want to be victorious; let them know that those who are victorious overcome only with the Lord, choosing the heaven of their richness on earth as in heaven.*
 
-We have spoken in You and from You in our day of feast in heaven and on earth and we have confessed You, Lord, and we have built the spirit of comfort by the word.
+*We have spoken in You and from You in our day of feast in heaven and on earth and we have confessed You, Lord, and we have built the spirit of comfort by the word.*
 
 â�� My glory is built by you, from you, oh, My heavenly servants, carrying of God from place to place. I miss to put away what which covers Us to stay within the mystery between man and God. I long for the eternal things over the earth and over the people. I will work to strengthen My faith in as many ways as possible in as many people, to work by the power of their faith and to work by the steadfastness of the faith. I long for man to be able to work for God and God for man. I miss it and I long after My fellowship with those on earth. Oh, only if they waited for Me! I long to come, to come soon and the man to say: *„Come, Lord!”* and I to answer him: *„I am coming soon!”* and then to come. [/legatura_la_teme]
 

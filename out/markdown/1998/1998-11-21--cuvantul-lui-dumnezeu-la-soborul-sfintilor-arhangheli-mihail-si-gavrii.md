@@ -48,7 +48,7 @@ Măi fiilor de la ieslea cuvântului Meu, trebuie să ne pregătim să rostim bi
 
 E zi de serbare peste grădina de la voi, căci cuvântul Meu se face praznic peste pământ. Arhanghelii Mihail şi Gavriil vă aduc urare de bucurie cerească şi vă zic:
 
-– Bucuraţi-vă! Nu staţi fără să vă bucuraţi, şi staţi cu frică şi cu luare-aminte la cuvântul Domnului Iisus Hristos şi bucuraţi-vă învăţând ce înseamnă această taină a bucuriei. Cine nu lucrează bucurie, nu ştie taina ei şi nu se bucură. Bucuraţi-vă în Domnul şi bucuraţi-L pe Domnul, fiilor de la ieslea Domnului. Bucuria uneşte inimi sfinte; ea lucrează lucrarea Domnului Iisus Hristos, dată apostolilor Săi; ea ridică din moarte pe oameni; ea se face Dumnezeu în cei sfinţi. Faceţi-L pe Domnul Iisus Hristos în voi cu bucurie şi bucuraţi-vă în Domnul! Amin, amin, amin.
+*– Bucuraţi-vă! Nu staţi fără să vă bucuraţi, şi staţi cu frică şi cu luare-aminte la cuvântul Domnului Iisus Hristos şi bucuraţi-vă învăţând ce înseamnă această taină a bucuriei. Cine nu lucrează bucurie, nu ştie taina ei şi nu se bucură. Bucuraţi-vă în Domnul şi bucuraţi-L pe Domnul, fiilor de la ieslea Domnului. Bucuria uneşte inimi sfinte; ea lucrează lucrarea Domnului Iisus Hristos, dată apostolilor Săi; ea ridică din moarte pe oameni; ea se face Dumnezeu în cei sfinţi. Faceţi-L pe Domnul Iisus Hristos în voi cu bucurie şi bucuraţi-vă în Domnul! Amin, amin, amin.*
 
 – Iată urarea arhanghelilor Mei, slujitori cereşti ai cuvântului Meu, care se împlineşte pe pământ între oameni. Ei v-au îndemnat să pricepeţi taina bucuriei, iar cei ce o pricep, o şi lucrează, fiilor care aveţi nume de apostoli ai Mei.
 

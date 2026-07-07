@@ -48,19 +48,19 @@ Acum îi învăţ şi pe ei să ceară şi să primească.
 
 Ridicaţi mâinile, voi, cei ce aţi venit la izvor, şi ziceţi:
 
-Tu, Doamne şi Fiule al Tatălui din cer, sparge cerbicea cea tare a fiilor oamenilor şi pătrunde în mormintele lor şi intră, Doamne.
+*Tu, Doamne şi Fiule al Tatălui din cer, sparge cerbicea cea tare a fiilor oamenilor şi pătrunde în mormintele lor şi intră, Doamne.*
 
-Dacă încă şi noi suntem cerbice tare, însufleţeşte-Te în noi, că Ţi-am deschis să intri.
+*Dacă încă şi noi suntem cerbice tare, însufleţeşte-Te în noi, că Ţi-am deschis să intri.*
 
-Învaţă-ne gândirea Ta, ca să gândim la fel cu Tine.
+*Învaţă-ne gândirea Ta, ca să gândim la fel cu Tine.*
 
-Învaţă-ne naşterea Ta, ca să ne dăm iesle caldă şi să creşti în ea şi să ne fii Mântuitor.
+*Învaţă-ne naşterea Ta, ca să ne dăm iesle caldă şi să creşti în ea şi să ne fii Mântuitor.*
 
-Învaţă-ne creşterea, ca să ne mărim pentru Tine şi să-Ţi dăm mărirea şi să-Ţi dăm întâietatea, ca să fii Cel dintâi între mulţi fraţi.
+*Învaţă-ne creşterea, ca să ne mărim pentru Tine şi să-Ţi dăm mărirea şi să-Ţi dăm întâietatea, ca să fii Cel dintâi între mulţi fraţi.*
 
-Învaţă-ne nunta, şi ne fă fiii nunţii. Amin.
+*Învaţă-ne nunta, şi ne fă fiii nunţii. Amin.*
 
-Şi dacă voieşti, fă-ne, Doamne, mireasă, fă-ne să voim şi să avem duh de mireasă, căci Duhul şi mireasa zic: Vino! Amin, amin, amin.
+*Şi dacă voieşti, fă-ne, Doamne, mireasă, fă-ne să voim şi să avem duh de mireasă, căci Duhul şi mireasa zic: Vino! Amin, amin, amin.*
 
 Eu, Domnul şi izvorul vieţii, vă dau. Luaţi, că Eu vă dau. Luaţi şi purtaţi, căci cel ce ia este cel ce poartă. Amin, amin, amin.
 

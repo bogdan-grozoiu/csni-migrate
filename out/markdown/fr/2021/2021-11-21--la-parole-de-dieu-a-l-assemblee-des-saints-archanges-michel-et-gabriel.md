@@ -45,15 +45,15 @@ Et maintenant les anges de Dieu partagent des dons d’en haut pour ceux qui acc
 
 [legatura_la_teme id_capitol="7" id_subcapitol="3"]Mes anges laissent leur voix entre eux et Moi et ils disent en chœur, en groupe ils disent:
 
-— Nous Te remercions, Seigneur, parce-que Tu règnes et Tu nous donnes à travailler Ton œuvre sur la terre, comme au ciel! Nous souhaitons beaucoup Ta victoire celle de la fin de temps, Maître Seigneur. Nous désirons Ta fête de victoire, Ton grand jour sur la terre. Nous attendons Ta commande pour sonner des trompettes, et qu’elle tombe la Babylone et qu’il vainque l’esprit de la foi sainte, l’esprit de Dieu dans tous les habitants de la terre.
+*— Nous Te remercions, Seigneur, parce-que Tu règnes et Tu nous donnes à travailler Ton œuvre sur la terre, comme au ciel! Nous souhaitons beaucoup Ta victoire celle de la fin de temps, Maître Seigneur. Nous désirons Ta fête de victoire, Ton grand jour sur la terre. Nous attendons Ta commande pour sonner des trompettes, et qu’elle tombe la Babylone et qu’il vainque l’esprit de la foi sainte, l’esprit de Dieu dans tous les habitants de la terre.*
 
-Oh, gloire à Toi en milieu de ceux qui sont fidèles à Ta venue en parole sur la terre! Ils sont la richesse à grand prix de ces jours, richesse qui ne périt pas, Seigneur.
+*Oh, gloire à Toi en milieu de ceux qui sont fidèles à Ta venue en parole sur la terre! Ils sont la richesse à grand prix de ces jours, richesse qui ne périt pas, Seigneur.*
 
-Oh, gloire à Toi, Seigneur, pour ce jour de fête pour nous, les troupes d’anges! Nous nous inclinons maintenant, ici, dans le lieu qui abrite ce jour de fête pour nous.
+*Oh, gloire à Toi, Seigneur, pour ce jour de fête pour nous, les troupes d’anges! Nous nous inclinons maintenant, ici, dans le lieu qui abrite ce jour de fête pour nous.*
 
-Oh, il n’y pas de victoire sans le Seigneur. Qu’ils sachent tous ceux de la terre, tous ceux qui veulent être vainqueurs, qu’ils sachent que c’est seulement avec le Seigneur qu’ils vainquent ceux qui sont vainqueurs, en cueillant le ciel comme leur richesse sur la terre et au ciel.
+*Oh, il n’y pas de victoire sans le Seigneur. Qu’ils sachent tous ceux de la terre, tous ceux qui veulent être vainqueurs, qu’ils sachent que c’est seulement avec le Seigneur qu’ils vainquent ceux qui sont vainqueurs, en cueillant le ciel comme leur richesse sur la terre et au ciel.*
 
-Nous avons parlé en Toi et de Toi en notre jour de fête dans le ciel et sur la terre, nous avons témoigné de Toi, Seigneur, et nous avons bâti l’esprit de la consolation par la parole.
+*Nous avons parlé en Toi et de Toi en notre jour de fête dans le ciel et sur la terre, nous avons témoigné de Toi, Seigneur, et nous avons bâti l’esprit de la consolation par la parole.*
 
 — Ma gloire est bâtie par vous, de vous, oh, Mes serviteurs célestes porteurs de Dieu de lieu en lieu. Je voudrais écarter ce qui Nous couvre, pour que Nous gardions le secret entre l’homme et Dieu. J’ai l’envie de choses éternelles sur la terre et sur les hommes. Je travaillerai pour renforcer la foi dans un nombre de plus en plus grand d’hommes, travailler par le pouvoir de leur foi, par la constance de la foi, Je travaillerai. J’ai le grand désir saint que l’homme puisse agir pour Dieu et Dieu pour l’homme. J’ai le grand désir, Je désire de plus en plus Ma communion avec ceux de la terre. Oh, s’ils M’attendraient au moins! J’ai grande envie de venir, de venir bientôt et que l’homme dise: *«Viens, Seigneur!»* et que Je lui réponde: *«Je viens bientôt!»*, et que Je vienne ensuite.[/legatura_la_teme]
 

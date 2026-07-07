@@ -46,11 +46,11 @@ Fiilor, fiilor, nu vă luați după vorbe aruncate de cei ce aruncă pe Dumnezeu
 
 Și acum, fiilor, dau glas celor sărbătoriți în duminica aceasta în duh și rânduială bisericească, și binecuvântată să fie povața lor peste voi, și iată-i:
 
-— O, iată-ne, Doamne, mărturii ale Tale din vremea Ta cu noi pe pământ atunci! Ne aplecăm acum și-Ți cerem pentru ei duhul mărturisirii pe care l-ai dat nouă după ce Te-ai așezat lângă Tatăl și ne-ai numit pe noi mărturii ale Tale ca să Te purtăm peste pământ cu numele Tău mare.
+*— O, iată-ne, Doamne, mărturii ale Tale din vremea Ta cu noi pe pământ atunci! Ne aplecăm acum și-Ți cerem pentru ei duhul mărturisirii pe care l-ai dat nouă după ce Te-ai așezat lângă Tatăl și ne-ai numit pe noi mărturii ale Tale ca să Te purtăm peste pământ cu numele Tău mare.*
 
-O, ce dulce ne hrănim în ziua aceasta cu duhul sărbătorii pentru noi, Doamne! Ucenicii și ucenițele mărturiilor Tale, și apoi ale crucii și învierii Tale am dorit să ne scriem lângă Tine în ziua noastră de pomenire și să audă poporul cuvântului Tău pe cei care Te-au avut cu ei în vremea aceea a mărturiilor petrecerii Tale cu ei pe pământ, iar cei de azi ai Tăi au plata mai mare, ca unii care lucrează cu Tine și de la Tine și pentru Tine fără să aibă parte atât cât am avut noi, pe lângă care ai petrecut văzut, Doamne. Slavă Ție pentru ei, o, Doamne! Slavă Ție și lucrărilor Tale cu ei, până ce toate cele rămase scrise de atunci se vor împlini cu tot numărul lor, așa cum Tu le-ai făgăduit împlinirea!
+*O, ce dulce ne hrănim în ziua aceasta cu duhul sărbătorii pentru noi, Doamne! Ucenicii și ucenițele mărturiilor Tale, și apoi ale crucii și învierii Tale am dorit să ne scriem lângă Tine în ziua noastră de pomenire și să audă poporul cuvântului Tău pe cei care Te-au avut cu ei în vremea aceea a mărturiilor petrecerii Tale cu ei pe pământ, iar cei de azi ai Tăi au plata mai mare, ca unii care lucrează cu Tine și de la Tine și pentru Tine fără să aibă parte atât cât am avut noi, pe lângă care ai petrecut văzut, Doamne. Slavă Ție pentru ei, o, Doamne! Slavă Ție și lucrărilor Tale cu ei, până ce toate cele rămase scrise de atunci se vor împlini cu tot numărul lor, așa cum Tu le-ai făgăduit împlinirea!*
 
-Și acum îmbrățișăm în taină pe cei de azi ai lucrărilor Tale cu ei, iar biruința să le fie mare în toate câte Tu lucrezi cu ei peste pământ până la plinătatea lor, o, Doamne. Amin.
+*Și acum îmbrățișăm în taină pe cei de azi ai lucrărilor Tale cu ei, iar biruința să le fie mare în toate câte Tu lucrezi cu ei peste pământ până la plinătatea lor, o, Doamne. Amin.*
 
 — O, iubiții Mei cei de atunci, petrecem cu toții lângă cei de acum, și suntem din cer și cu cerul lângă ei, și binecuvântare rostesc pentru toate împlinirile care dau să vină și să se așeze!
 

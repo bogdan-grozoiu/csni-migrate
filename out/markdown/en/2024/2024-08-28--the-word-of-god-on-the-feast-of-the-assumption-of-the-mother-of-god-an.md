@@ -31,11 +31,11 @@ I, the Lord, am still calling you, and I have been calling you for a long time, 
 
 [/legatura_la_teme][legatura_la_teme id_capitol="2" id_subcapitol="6"]Oh, My mother, again and again I have spoken the call to fight against the antichrist. Oh, how I wish they would too, mother.
 
-— Oh, Son Jesus, the frightening signs are coming, which no one can withstand, no enemy, dear Son. It is difficult, we know, but You are the Conqueror, clothed in the Father, Who gave You all power in heaven and on earth. However, You also want Christians to be victorious, and that is why You come and urge them to be vigilant, to fight, because the enemy is merciless.
+*— Oh, Son Jesus, the frightening signs are coming, which no one can withstand, no enemy, dear Son. It is difficult, we know, but You are the Conqueror, clothed in the Father, Who gave You all power in heaven and on earth. However, You also want Christians to be victorious, and that is why You come and urge them to be vigilant, to fight, because the enemy is merciless.*
 
-You, children of faith, rely on the Lord and dare against unbelief with Christ in front! Come to the great battle! Wake up, Romanian Christians, and all Christians to see the cloud and overcome with fast and prayer, as it is written, and you will be victorious. This is what I am choosing to degree for you on my holy feast day.
+*You, children of faith, rely on the Lord and dare against unbelief with Christ in front! Come to the great battle! Wake up, Romanian Christians, and all Christians to see the cloud and overcome with fast and prayer, as it is written, and you will be victorious. This is what I am choosing to degree for you on my holy feast day.*
 
-Thus, Jesus, Lord, thus may the victory of true Christians on earth be accomplished. Amen.
+*Thus, Jesus, Lord, thus may the victory of true Christians on earth be accomplished. Amen.*
 
 [/legatura_la_teme][legatura_la_teme id_capitol="6" id_subcapitol="3"]— Oh, My mother, this is what I desire and expect: let the Christian be true, because the name of Christian has no power like the life of a Christian. Behold, I have told the people of My word not to stand without the garment of a Christian, without the image given by God. The Christian man must look to Me, not to the sinful world. The Christian must wear a beard and wear a Christian clothing, not of the world, and food like in paradise, not like the world that eats meat and all things on earth, which are not for the Christians of Christ, and the ordinance of fasting and prayer must be observed, so that in the difficult time the Christian may have Me on his side and I may know him and protect him as My child, because if I find him in the world or resembling the world, I leave him to the scourges that come for unbelief, because there is no sin more serious than unbelief, than the denial of faith, My mother.
 

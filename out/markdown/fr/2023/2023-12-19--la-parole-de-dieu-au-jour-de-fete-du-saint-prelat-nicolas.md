@@ -43,13 +43,13 @@ J’ai bâti l’homme pour lier en œuvre par lui les deux créations de Dieu, 
 
 Et [legatura_la_teme id_capitol="3" id_subcapitol="3"]en ce jour Mon prélat Nicolas se met en parole dans Mon livre avec vous, les fils, et il conseille en prélat, tel que Je travaille Moi aussi, Moi en lui et lui en Moi, et c’est cela le payement de ceux qui se sanctifient pour Dieu sur la terre, et Moi, Je Me glorifie au milieu d’eux en ce temps de Ma venue, et Je dis cela pour que les hommes de la terre sachent le payement de Mes saints, de ceux qui aiment Dieu sur la terre.
 
-— Je T’ai aimé, Seigneur, et j’ai choisi pour Ma vie d’être Ton amour sur la terre et de le donner à ceux qui ne l’ont pas et ne le connaissent pas.
+*— Je T’ai aimé, Seigneur, et j’ai choisi pour Ma vie d’être Ton amour sur la terre et de le donner à ceux qui ne l’ont pas et ne le connaissent pas.*
 
-J’ai veillé comme un doux pasteur et j’ai adouci des hommes à cœurs de bête sauvage, et je les ai inclinés vers le repentir en les arrêtant de faire le mal aux pauvres, à ceux sans aide et innocents. J’ai sauvé de la vie avec du péché ceux qui étaient près à tomber dans cette boue, le péché, et j’ai beaucoup aimé les hommes, puisque le sentiment de pitié, c’est cela qu’il m’a appris.
+*J’ai veillé comme un doux pasteur et j’ai adouci des hommes à cœurs de bête sauvage, et je les ai inclinés vers le repentir en les arrêtant de faire le mal aux pauvres, à ceux sans aide et innocents. J’ai sauvé de la vie avec du péché ceux qui étaient près à tomber dans cette boue, le péché, et j’ai beaucoup aimé les hommes, puisque le sentiment de pitié, c’est cela qu’il m’a appris.*
 
-Ils tombent les hommes, ils tombent de Dieu, ils perdent leur voie et ils prennent la voie de la perte par le péché. Toi, homme, le Seigneur t’apprend la voie celle sans péché, mais à qui de te parler de l’éternité et t’apprendre à croire et à pouvoir agir avec Dieu?
+*Ils tombent les hommes, ils tombent de Dieu, ils perdent leur voie et ils prennent la voie de la perte par le péché. Toi, homme, le Seigneur t’apprend la voie celle sans péché, mais à qui de te parler de l’éternité et t’apprendre à croire et à pouvoir agir avec Dieu?*
 
-On a besoin de miracles, Seigneur, car l’impuissance de la raison humaine est grande et il faut que Tu mettes de l’amour dans les hommes, puisque la raison de l’homme doit être amour céleste. Moi, c’est ainsi que j’ai travaillé. C’est l’amour qui m’a gardé pour Toi et pour les hommes, mais il faut des miracles, si l’homme ne vient pas autrement vers la voie de la vie. Fais que les hommes Te connaissent, qu’ils Te cherchent et qu’ils T’aiment, et Toi, donne-leur la rémission de leurs péchés, et qu’ils aillent dans la lumière, oh, Seigneur! Amen.
+*On a besoin de miracles, Seigneur, car l’impuissance de la raison humaine est grande et il faut que Tu mettes de l’amour dans les hommes, puisque la raison de l’homme doit être amour céleste. Moi, c’est ainsi que j’ai travaillé. C’est l’amour qui m’a gardé pour Toi et pour les hommes, mais il faut des miracles, si l’homme ne vient pas autrement vers la voie de la vie. Fais que les hommes Te connaissent, qu’ils Te cherchent et qu’ils T’aiment, et Toi, donne-leur la rémission de leurs péchés, et qu’ils aillent dans la lumière, oh, Seigneur! Amen.*
 
 — C’est Moi la lumière du monde, Moi et ceux qui se tiennent dans la lumière pour vaincre les ténèbres qui se trouvent sur la terre et dans l’homme, pour qu’on témoigne de Dieu sur toute la terre.
 

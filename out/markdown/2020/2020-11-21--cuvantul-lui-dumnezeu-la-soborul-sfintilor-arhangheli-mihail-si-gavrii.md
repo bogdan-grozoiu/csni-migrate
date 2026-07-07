@@ -54,15 +54,15 @@ O, de mai bine de șaizeci de ani învăț un popor cu acest cuvânt pe vatra ne
 
 Voi, oștiri îngerești, mângâiați-vă și mângâiați în ziua voastră de sobor între sfinți! Eu, Domnul, am gătit vouă așternut de sărbătoare aici, acum, în cetatea cuvântului Meu.
 
-— O, slavă Ție, Stăpâne Doamne, slavă Ție! E cerul plin de mărirea Ta, și e plin pământul și va fi tot mai plin de slava Ta, căci suntem slujitorii Tăi și-Ți purtăm din loc în loc slava, că pe nori de îngeri Te porți, Doamne.
+*— O, slavă Ție, Stăpâne Doamne, slavă Ție! E cerul plin de mărirea Ta, și e plin pământul și va fi tot mai plin de slava Ta, căci suntem slujitorii Tăi și-Ți purtăm din loc în loc slava, că pe nori de îngeri Te porți, Doamne.*
 
-Strigăm peste pământ și peste oamenii de pe el, Doamne, și le spunem lor să ia aminte la Tine, la cuvântul Tău, căci Tu grăiești în vremea aceasta atât de mult, atât de mult cuvânt, Doamne Cuvinte, și duhul satanei va fi strivit de suflarea gurii Tale, de cuvântul Tău, precum este scris.
+*Strigăm peste pământ și peste oamenii de pe el, Doamne, și le spunem lor să ia aminte la Tine, la cuvântul Tău, căci Tu grăiești în vremea aceasta atât de mult, atât de mult cuvânt, Doamne Cuvinte, și duhul satanei va fi strivit de suflarea gurii Tale, de cuvântul Tău, precum este scris.*
 
-Voi, copii ai pământului sfințit, ai cetății Noului Ierusalim pe vatra neamului român, grăiește Domnul cu voi ca și cu cei din cer. Întăriți-vă puterile și pasul, căci Domnul vă întărește fiindcă vă iubește. Cereți-I Lui, și El vă va da, iubiților! O, nu vă temeți de satana! El este înfricoșat foarte. E Domnul cu voi, e tot cerul cu voi, iar Maica Domnului Iisus Hristos are țara română în brațe și toți sfinții o sprijinesc în lucrul ei de ocrotire peste acest neam.
+*Voi, copii ai pământului sfințit, ai cetății Noului Ierusalim pe vatra neamului român, grăiește Domnul cu voi ca și cu cei din cer. Întăriți-vă puterile și pasul, căci Domnul vă întărește fiindcă vă iubește. Cereți-I Lui, și El vă va da, iubiților! O, nu vă temeți de satana! El este înfricoșat foarte. E Domnul cu voi, e tot cerul cu voi, iar Maica Domnului Iisus Hristos are țara română în brațe și toți sfinții o sprijinesc în lucrul ei de ocrotire peste acest neam.*
 
-Mila de Domnul să se întărească tot mai mult în voi, și în toți cei care se bizuie pe Domnul și pe cuvântul Lui cel sfânt! O, și trebuie împlinit cuvântul, și tot timpul trebuie împlinit, copii ai venirii Domnului. Cereți-I Lui pentru voi și pentru El cu voi și dați-vă unii altora pe Domnul, căci sunteți cei binecuvântați pentru vremea Lui cu voi.
+*Mila de Domnul să se întărească tot mai mult în voi, și în toți cei care se bizuie pe Domnul și pe cuvântul Lui cel sfânt! O, și trebuie împlinit cuvântul, și tot timpul trebuie împlinit, copii ai venirii Domnului. Cereți-I Lui pentru voi și pentru El cu voi și dați-vă unii altora pe Domnul, căci sunteți cei binecuvântați pentru vremea Lui cu voi.*
 
-O, Doamne, o, Stăpâne măreț, slavă Ție în toată vremea! Toate cetele îngerești Îți cântă mărirea în frunte cu căpeteniile lor. O, fă bine, Doamne, celor buni și celor drepți cu inima după făgăduința Ta! Amin.
+*O, Doamne, o, Stăpâne măreț, slavă Ție în toată vremea! Toate cetele îngerești Îți cântă mărirea în frunte cu căpeteniile lor. O, fă bine, Doamne, celor buni și celor drepți cu inima după făgăduința Ta! Amin.*
 
 — Cu slavă cerească sunt sărbătorile cetății cuvântului Meu, iar Eu, Domnul, Mă aplec puterilor cerești pentru slava Mea, căci ele sunt slava Mea.
 

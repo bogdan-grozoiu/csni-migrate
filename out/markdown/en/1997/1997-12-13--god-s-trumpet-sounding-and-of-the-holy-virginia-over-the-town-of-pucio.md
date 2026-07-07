@@ -21,8 +21,8 @@ I come with Verginica, I come with the saints, and I come with the apostle Andre
 
 … — Come in Verginica and sound the trumpet and make out your book for your city. You are from among the saints, and you are with the saints in a synod of feast for the day when I established you on My right side in those that are from heaven. Come in. Blessed be your entrance with the word in your house and into your city where I come from and took you to be in heaven. The book of the testimonies for the cities of My people and yours is concluded. Come in, for their unbelief is not an obstacle for My word. I am the One Who can do everything I want. Amen.
 
-— Lord, I have come in and I call out, for you were My entrance way. Amen. May Your will be done as in heaven, Lord.
+*— Lord, I have come in and I call out, for you were My entrance way. Amen. May Your will be done as in heaven, Lord.*
 
-Amen, amen, I say to you: I am God’s trumpet, and after this trumpet the Lord sounds the seventh trumpet. Amen, amen, amen.
+*Amen, amen, I say to you: I am God’s trumpet, and after this trumpet the Lord sounds the seventh trumpet. Amen, amen, amen.*
 
-I could not call you by now, because you do not want to believe in me anymore, the one forever alive as all saints are, and not even now do you not want and cannot, and I cannot either, but the Lord of the powers can, because He said: «I am the Almighty Lord, the Lord of the powers».
+*I could not call you by now, because you do not want to believe in me anymore, the one forever alive as all saints are, and not even now do you not want and cannot, and I cannot either, but the Lord of the powers can, because He said:* «I am the Almighty Lord, the Lord of the powers».

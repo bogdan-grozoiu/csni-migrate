@@ -49,19 +49,19 @@ Now, I teach them as well, to ask and to receive.
 
 Raise your hands, you who have come to the spring, and say:
 
-You, Lord and Son of the Father from heaven, break the strong stiffness of the sons of the people and get into their graves and enter them, Lord.
+*You, Lord and Son of the Father from heaven, break the strong stiffness of the sons of the people and get into their graves and enter them, Lord.*
 
-If we still are stiff-necked, refresh Yourself within us, for we have opened to You, so that You may come in.
+*If we still are stiff-necked, refresh Yourself within us, for we have opened to You, so that You may come in.*
 
-Teach us Your mind, so that we may think as You do.
+*Teach us Your mind, so that we may think as You do.*
 
-Teach us Your birth, so that we may give ourselves as a warm manger for You to grow in it and to be our Savior.
+*Teach us Your birth, so that we may give ourselves as a warm manger for You to grow in it and to be our Savior.*
 
-Teach us Your growth, so that we may grow for You and to give You all the honor and supremacy, so that You may be the first among many brothers.
+*Teach us Your growth, so that we may grow for You and to give You all the honor and supremacy, so that You may be the first among many brothers.*
 
-Teach us the wedding and make us the sons of the wedding. Amen.
+*Teach us the wedding and make us the sons of the wedding. Amen.*
 
-And if You want, make us, Lord, Your Bride, and make us want to have the spirit of the bride, for the Spirit and the bride say: Come! Amen, amen, amen.
+*And if You want, make us, Lord, Your Bride, and make us want to have the spirit of the bride, for the Spirit and the bride say: Come! Amen, amen, amen.*
 
 I, the Lord and the spring of life, give you. Receive, for I give you. Receive and carry, for the one who receive is the one who carries. Amen, amen, amen.
 

@@ -41,11 +41,11 @@ Again and again I write Myself into My book of today with this mystery: the long
 
 Now, peace to you and a sweet celebration with longing in it, for the longing is the one, which gives you life for Me and for you, for I have come to put life on man. Amen. I longingly give you the greeting of the resurrection: Christ is risen! My apostles embrace you all over, and from near Me, they also say to you:
 
-— Chris is risen, and He appeared to us on the first day of the week, and again, on the eighth day after the resurrection, and we testify about this so that the nations on the earth may believe us that Christ, the One resurrected from the dead, is the Son of God, and believing, to have life in His name. Amen.
+*— Chris is risen, and He appeared to us on the first day of the week, and again, on the eighth day after the resurrection, and we testify about this so that the nations on the earth may believe us that Christ, the One resurrected from the dead, is the Son of God, and believing, to have life in His name. Amen.*
 
-Christ is risen! This is what I also tell you, the one who put my hand on the wounds of His hands and my finger on His pierced side, and consumed with longing I said to Him: «My Lord and My God!». And this is my testimony for His resurrection. Amen.
+*Christ is risen! This is what I also tell you, the one who put my hand on the wounds of His hands and my finger on His pierced side, and consumed with longing I said to Him:* «My Lord and My God!». *And this is my testimony for His resurrection. Amen.*
 
-Christ is risen! We speak all over the world from the door of the Lord’s holy tabernacle, into the midst of the Romanian people.
+*Christ is risen! We speak all over the world from the door of the Lord’s holy tabernacle, into the midst of the Romanian people.*
 
 **This is the Word of God.** *We, His disciples from then, testify from near Him, and you should know that this word is Christ, the Son of God, the Lord Who is coming, and believing to have life in His name. Amen, amen, amen.*
 

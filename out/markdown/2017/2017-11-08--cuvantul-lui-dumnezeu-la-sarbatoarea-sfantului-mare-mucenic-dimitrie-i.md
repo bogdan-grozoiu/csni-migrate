@@ -24,9 +24,9 @@ O, fiilor, v-am găsit plăpânzi, dar am încă să așez în carte spre trimit
 
 [legatura_la_teme id_capitol="4" id_subcapitol="2"]Fiilor, fiilor, e ceata mucenicilor cu Mine la masă la voi, iar mucenicul Dimitrie aduce vouă cuvinte sfinte spre mângâierea voastră și a duhului lui și a sfinților toți, căci așa este mângâierea, și ea se face cuvânt, fiilor.
 
-— O, sunteți plăpânzi în ziua aceasta, dar Domnul vă întărește pe voi la lucrul Său cu voi, iar eu din mijlocul cetei mucenicilor vă aduc pe masă duh de nădejde că Domnul Se desăvârșește mult și tot mai mult pe acest meleag sfințit, și de jur-împrejur, până va cuprinde în slava Sa țara și pământul român, de la care vor lua lumină popoare multe, precum este scris, iar Noi, cei din cer, umblăm cu Domnul oriunde merge El și privim pe hartă, și după ea mergem și desăvârșim împliniri.
+*— O, sunteți plăpânzi în ziua aceasta, dar Domnul vă întărește pe voi la lucrul Său cu voi, iar eu din mijlocul cetei mucenicilor vă aduc pe masă duh de nădejde că Domnul Se desăvârșește mult și tot mai mult pe acest meleag sfințit, și de jur-împrejur, până va cuprinde în slava Sa țara și pământul român, de la care vor lua lumină popoare multe, precum este scris, iar Noi, cei din cer, umblăm cu Domnul oriunde merge El și privim pe hartă, și după ea mergem și desăvârșim împliniri.*
 
-Tărie dă-le, Doamne, și mereu să lucrezi la ea, și la credința celor ce se vor mângâia de la slava aceasta a Ta cu ei, căci cuvântul Tău se împlinește negreșit, și toți cei necredincioși vor lăsa sulițele în jos și-și vor înțelege înfrângerea, și biruința Ta apoi, căci Tu ești Mielul, ești Biruitorul, o, Doamne. Amin.
+*Tărie dă-le, Doamne, și mereu să lucrezi la ea, și la credința celor ce se vor mângâia de la slava aceasta a Ta cu ei, căci cuvântul Tău se împlinește negreșit, și toți cei necredincioși vor lăsa sulițele în jos și-și vor înțelege înfrângerea, și biruința Ta apoi, căci Tu ești Mielul, ești Biruitorul, o, Doamne. Amin.*
 
 — Da, biruința Mea este prin credința voastră, sfinți iubiți ai Mei, și a celor ce vor crede ca și voi, cei în cer locuitori, și, iarăși, ca și voi, fiilor purtători de Dumnezeu pe pământ, și va crește credința în mulți, și mulți vor înțelege taina Mea cu voi pe vatra neamului român. [/legatura_la_teme]
 

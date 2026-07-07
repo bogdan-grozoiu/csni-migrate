@@ -48,9 +48,9 @@ Vino spre Dumnezeu, România Mea! Vino, tată, şi nu sta în necredinţă, că 
 
 Iată cartea cuvântului Meu, că am vorbit din cer în mijlocul tău, Israele român. Am venit prin cuvânt să te povăţuiesc spre împărăţia cerurilor, să-ţi amintesc povaţă caldă şi proaspătă din cer. Ia pe tine împărăţia Mea, ia în tine împărăţia Mea, ca să ştii că vin, şi vei vedea că vin. Dacă acum nu crezi, îţi voi mai spune iar că vin, îţi voi spune când voi veni. O, n-aş voi să fii gol când voi veni. Să nu arunci, fiule, povaţa Mea, căci străbat cu ea văzduhul şi vin. De patruzeci de ani vin cu povaţa Mea pe drum ascuns, pe cărăruţă dosită, ca să nu prindă duşmanii cerului pe cei hrăniţi din cer. Am venit mereu în şoaptă, şi mereu M-am pitit cu cuvântul Meu în mijlocul tău, dar acum strig tare. Deşteaptă-te, creştine, deşteaptă-te, române, şi roagă-te Domnului Dumnezeului tău, căci tu, Românie, ai coroană binecuvântată pe fruntea ta. Îngenunchează, poporul Meu iubit, şi roagă-te aşa cum se roagă Maica Mea Fecioară. De la începutul tău, ţară română, şi până la sfârşitul răutăţii se roagă Maica Mea Fecioară pentru ţara română, şi strigă:
 
-„O, Doamne sfinte, ceresc Părinte,
+*„O, Doamne sfinte, ceresc Părinte,*
 
-Susţine cu a Ta mână coroana română!“.
+*Susţine cu a Ta mână coroana română!“.*
 
 România are coroană de la Dumnezeu, şi este regină România.
 

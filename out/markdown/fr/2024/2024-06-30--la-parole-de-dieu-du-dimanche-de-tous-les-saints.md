@@ -35,11 +35,11 @@ Nous allons vous donner du ciel explication à toute chose, car c’est Moi, le 
 
 [/legatura_la_teme][legatura_la_teme id_capitol="4" id_subcapitol="2"]Et maintenant donne-leur toi aussi, Ma Virginie, donne-leur saint exhortation pour Nos travaux avec eux, et c’est du ciel qu’il doit venir tout travail que Nous avons à réaliser avec eux, parce qu’ils viennent de grands jours, ils viennent des jours de victoire pour Nous dans Mon pays d’aujourd’hui, la terre du peuple roumain.
 
-— Oh, comment ne pas vous donner, les fils, comment ne pas venir du ciel sur vous tout l’appui, du moment qu’il y a tant à travailler et à ranger pour le témoignage de l’œuvre de la parole, le long des soixante-dix années sur la terre roumaine, pays choisi à la fin de temps pour la gloire du Seigneur?
+*— Oh, comment ne pas vous donner, les fils, comment ne pas venir du ciel sur vous tout l’appui, du moment qu’il y a tant à travailler et à ranger pour le témoignage de l’œuvre de la parole, le long des soixante-dix années sur la terre roumaine, pays choisi à la fin de temps pour la gloire du Seigneur?*
 
-Je vous tiens toujours sous l’attention d’en haut, et J’ai beaucoup de douceur envers vous, pour le difficile travail que vous portez. La gloire céleste est toute auprès de vous. Le Père Se tient tout le temps en veille pour vous, pour Son Fils le Christ, Qui Se range sur la terre par vous avec l’œuvre de Sa gloire, les fils.
+*Je vous tiens toujours sous l’attention d’en haut, et J’ai beaucoup de douceur envers vous, pour le difficile travail que vous portez. La gloire céleste est toute auprès de vous. Le Père Se tient tout le temps en veille pour vous, pour Son Fils le Christ, Qui Se range sur la terre par vous avec l’œuvre de Sa gloire, les fils.*
 
-On a dit il y a longtemps par cette source de parole qu’il vient un petit oiseau du ciel pour se tenir empereur sur la terre. Oh, voilà le temps! Le Seigneur dirige en secret, les fils, à condition que vous donniez de la vie à Sa parole, qui gazouille comme un petit oiseau et se partage partout. Et vous, tenez-vous dans l’amour, celui avec pouvoir en lui, et dans la foi qui accomplit, et vous serez la joie du Seigneur et Sa consolation, et voilà, c’est grande bénédiction que le Seigneur laisse sur vous pour Ses actions avec vous, oh, les fils.
+*On a dit il y a longtemps par cette source de parole qu’il vient un petit oiseau du ciel pour se tenir empereur sur la terre. Oh, voilà le temps! Le Seigneur dirige en secret, les fils, à condition que vous donniez de la vie à Sa parole, qui gazouille comme un petit oiseau et se partage partout. Et vous, tenez-vous dans l’amour, celui avec pouvoir en lui, et dans la foi qui accomplit, et vous serez la joie du Seigneur et Sa consolation, et voilà, c’est grande bénédiction que le Seigneur laisse sur vous pour Ses actions avec vous, oh, les fils.*
 
 — Oh, Ma Virginie, Je suis toujours avec Ma bénédiction sur eux.
 

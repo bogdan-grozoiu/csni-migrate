@@ -54,7 +54,7 @@ Plâng proorocii şi sfinţii şi Mă roagă să Mă ating de cei necredincioşi
 
 Fiilor, fiilor, proorocul Ilie nu stă din rugăciune şi din lucrare şi Îmi zice:
 
-– Doamne, Tu eşti Cel ce ai spus că mă vei trimite să-Ţi pregătesc cărarea celei de a doua veniri a Ta, şi eu trebuie să împlinesc cuvântul Tău. Oamenii n-au voit să creadă în prooroci, dar eu mă grăbesc, Doamne, că a venit ziua Ta. Nu plânge, Doamne! Lasă-i pe cei necredincioşi să plângă, că ei nu plâng. Cei slabi şi mici plâng, dar şi Tu plângi. Lasă-mă să tămăduiesc oamenii de necredinţă, căci Tu ai spus că eu Îţi voi găti calea. Amin.
+*– Doamne, Tu eşti Cel ce ai spus că mă vei trimite să-Ţi pregătesc cărarea celei de a doua veniri a Ta, şi eu trebuie să împlinesc cuvântul Tău. Oamenii n-au voit să creadă în prooroci, dar eu mă grăbesc, Doamne, că a venit ziua Ta. Nu plânge, Doamne! Lasă-i pe cei necredincioşi să plângă, că ei nu plâng. Cei slabi şi mici plâng, dar şi Tu plângi. Lasă-mă să tămăduiesc oamenii de necredinţă, căci Tu ai spus că eu Îţi voi găti calea. Amin.*
 
 – O, poporul Meu, toţi proorocii plâng cu Ilie proorocul venirii Mele, căci el merge înaintea Mea. O, poporul Meu, nu plânge! Bucură-te, fiule! Eu te ocrotesc, căci îngerii Mei te-au însemnat cu semnul Meu. Nu plânge, poporul Meu! Eu ocrotesc pe arhiereul Meu până la ziua bucuriei celei mari.
 

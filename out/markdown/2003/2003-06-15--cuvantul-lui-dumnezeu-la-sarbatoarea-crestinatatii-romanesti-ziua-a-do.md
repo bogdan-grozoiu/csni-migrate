@@ -14,7 +14,7 @@ E sărbătoare de Duh Sfânt pe pământul Meu cu voi. E sărbătoare din cer pe
 
 Fie-ţi milă de Dumnezeu, omule! Fie-vă milă de Cel ce a făcut cerul şi pământul şi duceţi vestea venirii Lui şi beţi din izvorul Lui. Beţi şi înviaţi! V-am adunat la izvor şi vă dau din el. Eu sunt. Tatăl Savaot Mă mângâie şi Îmi spune:
 
-– Bucură-Te, Fiul Meu Cel preaiubit, întru Care Eu, Tatăl, am binevoit la început şi la sfârşit de timp! Şterge-Ţi lacrima care plânge după om de şapte mii de ani, că Tu eşti Mire, Fiule scump, iar Mirele Se bucură. Bucură-Te cu mireasa Ta şi bucură-Te cu nuntaşii şi hai să-l hrănim pe om din izvorul vieţii! Amin, amin, amin.
+*– Bucură-Te, Fiul Meu Cel preaiubit, întru Care Eu, Tatăl, am binevoit la început şi la sfârşit de timp! Şterge-Ţi lacrima care plânge după om de şapte mii de ani, că Tu eşti Mire, Fiule scump, iar Mirele Se bucură. Bucură-Te cu mireasa Ta şi bucură-Te cu nuntaşii şi hai să-l hrănim pe om din izvorul vieţii! Amin, amin, amin.*
 
 – Eu, Tată, Mă zbat din greu cu venirea Mea, că am popor micuţ şi puţinel şi ostenit de truda cea pentru venirea Mea şi pentru lucrul ei peste pământ. Eu, Tată, Mi-am aşezat poporul să-Mi aştearnă ca să cinez cină de cuvânt cu omul, să-i fac să se aşeze pe cei ce se adună la izvor. Amin.
 

@@ -26,13 +26,13 @@ Cuprindem în dragostea de sus această zi de taină și ne scriem cu ea în car
 
 Să cânte poporul ca păsările văzduhului, să cânte lui Dumnezeu acest popor, căci plăcută Îi este lui Dumnezeu cântarea, iar Noi să cântăm cu ei întru taina Noastră cu ei, cu cei cărora Tatăl Se descoperă lor, mama Mea!
 
-— O, Fiule Iisus, copil ascultător de Tatăl, ești pildă de ascultare din veci și până-n veci, până ce Îi vei da Tatălui lucrarea toată împlinită, și apoi Tatăl Îți va dărui rodul răbdării sfinte, Ție și lor, și vom simți atunci odihna dorită, Fiule Iisus.
+*— O, Fiule Iisus, copil ascultător de Tatăl, ești pildă de ascultare din veci și până-n veci, până ce Îi vei da Tatălui lucrarea toată împlinită, și apoi Tatăl Îți va dărui rodul răbdării sfinte, Ție și lor, și vom simți atunci odihna dorită, Fiule Iisus.*
 
-[legatura_la_teme id_capitol="5" id_subcapitol="6"]Trebuie întărită binecuvântarea lucrului istoriei cărții care va așeza pe pământ mersul lucrării cuvântului Tău prin trâmbița Ta Verginica, pețită ea de Tine prin înger ca să-Ți fie locaș și trâmbiță să-Ți fie și să-Ți cuvintezi prin ea învățătura și tainele cele de la sfârșit lucrate de Tine prin cei cărora Tatăl Se descoperă de sus ca să le așezi Tu cu ei între oameni, Fiule Iisus.
+[legatura_la_teme id_capitol="5" id_subcapitol="6"]*Trebuie întărită binecuvântarea lucrului istoriei cărții care va așeza pe pământ mersul lucrării cuvântului Tău prin trâmbița Ta Verginica, pețită ea de Tine prin înger ca să-Ți fie locaș și trâmbiță să-Ți fie și să-Ți cuvintezi prin ea învățătura și tainele cele de la sfârșit lucrate de Tine prin cei cărora Tatăl Se descoperă de sus ca să le așezi Tu cu ei între oameni, Fiule Iisus.*
 
-Suntem cu veghe mare peste ei și lângă ei, iar Duhul Sfânt este călăuza acestei zidiri, cartea lucrării cuvântului Tău, istorie începută odată cu nașterea lui Verginica, și până la ei, până la cei care astăzi lucrează să așezi pe pământ mersul Tău prin proorocie, prin nor și prin stâlp de foc ca odinioară prin Moise ca să-Ți lucrezi mersul Tău de atunci cu poporul Israel. Și iată iarăși taina muntelui sfânt și grăirea Ta cu omul cel ales de la Tine pentru lucrările Tale cu poporul care stă la pregătit întru întâmpinarea Ta, Fiule Iisus!
+*Suntem cu veghe mare peste ei și lângă ei, iar Duhul Sfânt este călăuza acestei zidiri, cartea lucrării cuvântului Tău, istorie începută odată cu nașterea lui Verginica, și până la ei, până la cei care astăzi lucrează să așezi pe pământ mersul Tău prin proorocie, prin nor și prin stâlp de foc ca odinioară prin Moise ca să-Ți lucrezi mersul Tău de atunci cu poporul Israel. Și iată iarăși taina muntelui sfânt și grăirea Ta cu omul cel ales de la Tine pentru lucrările Tale cu poporul care stă la pregătit întru întâmpinarea Ta, Fiule Iisus!*
 
-Așadar să rostim binecuvântare proaspătă și dulce peste lucrătorii Tăi, încununându-i pe ei cu puteri de sus, cu taine de sus, așa cum Îți este lucrarea Ta din veac și până în veac cu ai Tăi, Fiule al Tatălui, și al meu copil. Amin.
+*Așadar să rostim binecuvântare proaspătă și dulce peste lucrătorii Tăi, încununându-i pe ei cu puteri de sus, cu taine de sus, așa cum Îți este lucrarea Ta din veac și până în veac cu ai Tăi, Fiule al Tatălui, și al meu copil. Amin.*
 
 — Da, mama Mea, multă și dulce binecuvântare să rostim peste poporul de azi care lucrează pentru Noi, pentru taina cerului între oameni, ca să fie cunoscută ea prin cartea care se zidește acum, mamă.
 

@@ -40,15 +40,15 @@ O, tămăduiți-vă inima de veninul din ea, fiilor! O, tămăduiți-vă de slă
 
 O, nu fiți nemulțumiți, nu fiți supărăcioși, nu fiți ambițioși, nu fiți bănuitori, fiilor. Acestea aduc dezbinare între voi, iar Eu sunt izvor de tămăduiri, și sunt acum cu mama Mea Fecioară aici, în ziua aceasta de pomenire sfântă la masă cu voi. [/legatura_la_teme]Iar tu, mama Mea, vezi câtă tămăduire dau să-i învăț și să le aduc, că e sărbătoare vindecătoare, și am lucrat aceasta între ei, că ei au venit la izvor, mamă. O, să Ne aibă ei tămăduitori, să Ne ia în ajutor, că iată, Noi îi povățuim spre vindecarea lor, mamă.
 
-— O, Fiule înviat, învață-i pe ei bunătatea, învață-i învățătura, și învață-i cunoștința, una prin alta acestea, una de la alta, Fiule scump, și toate apoi una întru dragostea lor de Domnul și pentru Domnul. O, că multă veghe trebuie să le aducem lor ca să fie feriți de primejdii, de șarpele care iese la drum ca să-i prăbușească pe ei prin mușcătura cea veninoasă, Fiule înviat.
+*— O, Fiule înviat, învață-i pe ei bunătatea, învață-i învățătura, și învață-i cunoștința, una prin alta acestea, una de la alta, Fiule scump, și toate apoi una întru dragostea lor de Domnul și pentru Domnul. O, că multă veghe trebuie să le aducem lor ca să fie feriți de primejdii, de șarpele care iese la drum ca să-i prăbușească pe ei prin mușcătura cea veninoasă, Fiule înviat.*
 
-O, fiilor adunați pentru tămăduire, Hristos a înviat! Fiți plini de bunătate cu inimile voastre, fiilor. Cei ce au bunătate sunt cei ce iubesc învățătura, iar cei ce învață capătă cunoștință, și cu ea împlinesc pe Domnul în ei și cuvintele vieții. O, aduceți-vă aminte de legământul Lui cu voi, fiilor, și nu uitați aceasta, că dacă uitați vă slăbește nădejdea, și apoi credința, și apoi dragostea, fiilor. Izvor de tămăduire a turnat Fiul meu Cel înviat peste capetele voastre, peste inimile voastre. El este Învățătorul vostru, Hristosul Tatălui, și Fiul meu este El. O, fiți pe potriva Lui. Aceasta vă este vouă scăparea și mântuirea.
+*O, fiilor adunați pentru tămăduire, Hristos a înviat! Fiți plini de bunătate cu inimile voastre, fiilor. Cei ce au bunătate sunt cei ce iubesc învățătura, iar cei ce învață capătă cunoștință, și cu ea împlinesc pe Domnul în ei și cuvintele vieții. O, aduceți-vă aminte de legământul Lui cu voi, fiilor, și nu uitați aceasta, că dacă uitați vă slăbește nădejdea, și apoi credința, și apoi dragostea, fiilor. Izvor de tămăduire a turnat Fiul meu Cel înviat peste capetele voastre, peste inimile voastre. El este Învățătorul vostru, Hristosul Tatălui, și Fiul meu este El. O, fiți pe potriva Lui. Aceasta vă este vouă scăparea și mântuirea.*
 
-Fiilor, fiilor, bucurați-vă de El și cu El. El vine lângă voi pe nori de cuvânt ca să ia de pe voi greul și să-l ducă El, dar și voi mereu, mereu să-I stați în ajutor pentru mersul Lui de azi peste pământ, că asta este ceea ce Domnul v-a încredințat vouă prin legământ între voi și El.
+*Fiilor, fiilor, bucurați-vă de El și cu El. El vine lângă voi pe nori de cuvânt ca să ia de pe voi greul și să-l ducă El, dar și voi mereu, mereu să-I stați în ajutor pentru mersul Lui de azi peste pământ, că asta este ceea ce Domnul v-a încredințat vouă prin legământ între voi și El.*
 
-Și acum zic vouă, celor ce ați călătorit spre Domnul: bine ați venit la izvor în zi de sărbătoare de tămăduiri. Iar dacă ați venit, vindecați-vă, și mergeți apoi vindecați la casele voastre, o, fiilor.
+*Și acum zic vouă, celor ce ați călătorit spre Domnul: bine ați venit la izvor în zi de sărbătoare de tămăduiri. Iar dacă ați venit, vindecați-vă, și mergeți apoi vindecați la casele voastre, o, fiilor.*
 
-O, ia de peste ei toată vina, Fiule scump! Ajută-i pe toți care caută și învață-i cum să găsească, învață-i când vin, Doamne înviat, Fiul meu Iisus! Amin.
+*O, ia de peste ei toată vina, Fiule scump! Ajută-i pe toți care caută și învață-i cum să găsească, învață-i când vin, Doamne înviat, Fiul meu Iisus! Amin.*
 
 — O, îi învăț, mamă, le dau lor cum n-am mai dat altora până la ei, căci grea și primejdioasă este vremea aceasta în care ei sunt pe pământ, și le spun lor așa:
 

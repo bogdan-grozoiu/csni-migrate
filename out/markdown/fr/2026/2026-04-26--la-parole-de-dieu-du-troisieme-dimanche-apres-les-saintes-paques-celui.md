@@ -47,13 +47,13 @@ Oh, les fils, les fils, ne suivez pas les paroles jetées par ceux qui jettent D
 
 Et maintenant, les fils, Je donne la parole à ceux fêtés en ce dimanche en esprit et ordre d’église, et qu’il soit béni leur conseil pour vous, et les voilà:
 
-— Oh, nous voilà, Seigneur, les témoignages de Ton temps avec nous sur la terre alors! Nous nous inclinons maintenant et nous Te demandons pour eux l’esprit du témoignage, que Tu nous as donné après Ton installation auprès du Père et Tu nous as nommés Tes témoignages afin de Te porter à travers la terre avec Ton grand nom.
+*— Oh, nous voilà, Seigneur, les témoignages de Ton temps avec nous sur la terre alors! Nous nous inclinons maintenant et nous Te demandons pour eux l’esprit du témoignage, que Tu nous as donné après Ton installation auprès du Père et Tu nous as nommés Tes témoignages afin de Te porter à travers la terre avec Ton grand nom.*
 
-Oh, qu’elle est douce notre nourriture par l’esprit de la fête pour nous, Seigneur!
+*Oh, qu’elle est douce notre nourriture par l’esprit de la fête pour nous, Seigneur!*
 
-Les disciples et les saintes femmes de Tes témoignages, et ensuite de Ta croix et Ta résurrection, nous avons voulu nous écrire auprès de Toi dans notre jour de mémoire et qu’il entende le peuple de Ta parole, qu’ils entendent ceux qui T’ont eu avec eux au temps des preuves de Ton temps passé et travaillé avec eux sur la terre, et ceux d’aujourd’hui les Tiens ont plus grand payement, comme quelques-uns qui travaillent avec Toi et de Toi et pour Toi, sans avoir part de Ta présence tant que nous l’avons eu, nous avec lesquels Tu as travaillé visiblement, Seigneur. Gloire à Toi pour eux, oh, Seigneur! Gloire à Toi et à Tes œuvres avec eux, jusqu’à ce que tout ce qui est resté écrit sera accompli en totalité, tout ce que Tu as promis de s’accomplir!
+*Les disciples et les saintes femmes de Tes témoignages, et ensuite de Ta croix et Ta résurrection, nous avons voulu nous écrire auprès de Toi dans notre jour de mémoire et qu’il entende le peuple de Ta parole, qu’ils entendent ceux qui T’ont eu avec eux au temps des preuves de Ton temps passé et travaillé avec eux sur la terre, et ceux d’aujourd’hui les Tiens ont plus grand payement, comme quelques-uns qui travaillent avec Toi et de Toi et pour Toi, sans avoir part de Ta présence tant que nous l’avons eu, nous avec lesquels Tu as travaillé visiblement, Seigneur. Gloire à Toi pour eux, oh, Seigneur! Gloire à Toi et à Tes œuvres avec eux, jusqu’à ce que tout ce qui est resté écrit sera accompli en totalité, tout ce que Tu as promis de s’accomplir!*
 
-Et maintenant nous embrassons en secret ceux d’aujourd’hui de Tes œuvres avec eux, et que leur victoire soit grande en tout ce que Tu travailles avec eux à travers la terre, jusqu’à leur plénitude, oh, Seigneur. Amen.
+*Et maintenant nous embrassons en secret ceux d’aujourd’hui de Tes œuvres avec eux, et que leur victoire soit grande en tout ce que Tu travailles avec eux à travers la terre, jusqu’à leur plénitude, oh, Seigneur. Amen.*
 
 — Oh, Mes chers d’alors, nous nous réjouissons tous auprès de ceux d’aujourd’hui, et nous sommes du ciel et avec le ciel auprès d’eux, et Je prononce bénédiction pour tous les accomplissements qui se préparent de venir et de prendre place.
 

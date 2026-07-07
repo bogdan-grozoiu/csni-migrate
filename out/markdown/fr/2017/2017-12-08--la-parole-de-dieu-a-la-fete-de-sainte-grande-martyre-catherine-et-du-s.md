@@ -29,11 +29,11 @@ Oh, entre dans le repos de Ton Seigneur, roi de la Roumanie! Je te remercie pour
 
 Oh, paix à toi entre ceux du ciel, mais aussi dans les cœurs qui t’ont beaucoup aimé et qui ont été et le sont encore les vrais fils de cette nation! Oh, paix à toi, cher cœur doux et plein de douleur ! Entre maintenant dans la consolation de ton Seigneur Jésus Christ, que tu as aimé et suivi les larmes au visage, et dont tu as gardé la fidélité tout le long de ta vie pleine de douleur sur la terre. Amen.
 
-— Et Moi, Ton ange, Seigneur, l’ange Mihail, j’accompagne vers Toi Ton oint, tout comme je l’ai fait de Ta part durant toute sa vie sur la terre, et à présent des armées d’anges en fête chrétienne et roumaine nous accompagnent pour présenter devant Toi celui qui vient chez Toi, Michel, le roi des Roumanis. Amen.
+*— Et Moi, Ton ange, Seigneur, l’ange Mihail, j’accompagne vers Toi Ton oint, tout comme je l’ai fait de Ta part durant toute sa vie sur la terre, et à présent des armées d’anges en fête chrétienne et roumaine nous accompagnent pour présenter devant Toi celui qui vient chez Toi, Michel, le roi des Roumanis. Amen.*
 
-— Avec les armées des anges nous élevons, Seigneur, les armées des martyrs et nous allons à l’aide du peuple roumain, nous les fêtés de ce jour dans le ciel et sur la terre, le martyr Mercurie et la martyre Catherine.
+*— Avec les armées des anges nous élevons, Seigneur, les armées des martyrs et nous allons à l’aide du peuple roumain, nous les fêtés de ce jour dans le ciel et sur la terre, le martyr Mercurie et la martyre Catherine.*
 
-Bénis, Seigneur, notre aide pour ce peuple et nous, nous sonnons la trompette d’appel à la veille auprès de ceux qui travaillent du ciel, car voilà des jours de douleur et d’épreuve sur le foyer du peuple roumain. Tu as préparé de grands saints et Tu les as habillés de grand pouvoir d’en haut pour aider ceux qui habitent la terre. Ordonne maintenant à nos armées, puisque Tu es l’Empereur des empereurs, et nous, Seigneur, nous sommes Tes soldats. Amen.
+*Bénis, Seigneur, notre aide pour ce peuple et nous, nous sonnons la trompette d’appel à la veille auprès de ceux qui travaillent du ciel, car voilà des jours de douleur et d’épreuve sur le foyer du peuple roumain. Tu as préparé de grands saints et Tu les as habillés de grand pouvoir d’en haut pour aider ceux qui habitent la terre. Ordonne maintenant à nos armées, puisque Tu es l’Empereur des empereurs, et nous, Seigneur, nous sommes Tes soldats. Amen.*
 
 Nous, nous levons armée céleste, oh, saints aimées! J’engage les puissances célestes au travail saint pour la protection de la terre et du peuple roumain, si seulement ce peuple béni veuille crier au Seigneur et aux saints. Oh, le salut ne vient que du Seigneur, et la vérité, c’est elle qui va triompher pour les fidèles, qui font confiance au Seigneur.
 

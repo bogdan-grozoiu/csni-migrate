@@ -9,6 +9,6 @@ audio:
 audio_file: 
 ---
 
-... My children, many judge My temple, many do not make much of My temple, but the strangers from far away will come, My child, and they will read on your face that this temple belongs to God, as on each brick it is written: „The Lord, Jesus Christ”.
+... My children, many judge My temple, many do not make much of My temple, but the strangers from far away will come, My child, and they will read on your face that this temple belongs to God, as on each brick it is written: *„The Lord, Jesus Christ”.*
 
 [legatura_la_teme id_capitol="1" id_subcapitol="3"]… Come to Me, Christians! Come to Me, son, for God has called you now and He wants you to have no end in your way, for when I created Adam, I made him not to have an end in all his way, but he sinned and died.[/legatura_la_teme]

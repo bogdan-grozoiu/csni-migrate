@@ -53,13 +53,13 @@ Oh, the life of the little bees is holy. They eat everything that is clean and t
 
 Oh, work for faith and strengthen the faith in you, sons, for behold, the place of those who are faithful and fallen with respect of the faith, and not for sin! All those in the house of Voivode Brâncoveanu are in the arms of My mother Virgin. She made their passing away into their resurrection. She is praising them in heaven, she is walking with them above the Romanian land, which she has for protection, oh, and she is giving them voice on this day and here it is their voice:
 
-â�� She received us in her arms at the passing of the border on the day of our martyrdom, of our passing away to be with the Lord, with those in heaven. She was our strength and stead-fastness in our faith to the end of our walking on earth.
+*â�� She received us in her arms at the passing of the border on the day of our martyrdom, of our passing away to be with the Lord, with those in heaven. She was our strength and stead-fastness in our faith to the end of our walking on earth.*
 
-Oh, you must love your children as I loved my children! Carry them on the arms of the holy faith to the arms of our mother from above, who arrived there where we arrived too. Oh, your faith is not tested but you should not rejoice over this because you can fall into the laziness for faith then.
+*Oh, you must love your children as I loved my children! Carry them on the arms of the holy faith to the arms of our mother from above, who arrived there where we arrived too. Oh, your faith is not tested but you should not rejoice over this because you can fall into the laziness for faith then.*
 
-Eat with great hunger, eat love, you, children of the Word of Christ, Romanians after blood and seed, Romanians after Christ, Who made the man out of the clay of the Romanian land. Oh, do not stay without love! Lose your life for the sake of the love of Christ and the love of His Mother given to us as the mother of the Christians, of the Romanians, for the Romanian people is a holy seal among the heavenly things of the Lord; it is specially marked; this mysterious seed is God’s mystery, and we, those who arrived in heaven, see and know.
+*Eat with great hunger, eat love, you, children of the Word of Christ, Romanians after blood and seed, Romanians after Christ, Who made the man out of the clay of the Romanian land. Oh, do not stay without love! Lose your life for the sake of the love of Christ and the love of His Mother given to us as the mother of the Christians, of the Romanians, for the Romanian people is a holy seal among the heavenly things of the Lord; it is specially marked; this mysterious seed is God’s mystery, and we, those who arrived in heaven, see and know.*
 
-We are giving you now gifts and we are giving them to you in secret, and you will work with them and know their origin. And now we are signing our speaking with the family and voivodeship name of the Romanians in heaven: Romanian woiwodes, the Brâncoveanus. (In Romanian: Brâncovenii)
+*We are giving you now gifts and we are giving them to you in secret, and you will work with them and know their origin. And now we are signing our speaking with the family and voivodeship name of the Romanians in heaven: Romanian woiwodes, the Brâncoveanus.* (In Romanian: Brâncovenii)
 
 â�� Oh, what a confessing day, what great work God has had with you and over you, sons of the citadel of My word, and you, those who love them for My name upon them and upon you!
 

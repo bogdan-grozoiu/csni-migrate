@@ -42,13 +42,13 @@ Toate aceste învățături mari vi le dau în ziua aceasta pentru că diavolul 
 
 O, mama Mea, cu milă i-am ridicat să Ne poarte venirea și slava sărbătorii tale, mamă. Sunt în mâini cu alifia și cu pansamentul și trebuie să întărim puterea cea care Ne poartă. Hai să punem mângâieri pe rane, hai să avem grijă și ocrotire, mamă!
 
-— O, cine, Fiul meu Iisus, cine în cer este să nu înțeleagă mersul Nostru cel greu și plin de rane și de strâmtorări? Suntem cu mângâierea și cu duioșia peste cei adunați la serbare aici. Toată așezarea sărbătorii e tot un glas care vorbește celor din cer și de pe pământ. Ziua venirii mele lângă Tine și lângă cei din cer mi-a încununat toată odihna și pot prin ea pentru cei ce Ne iubesc pe pământ, Fiule scump.
+*— O, cine, Fiul meu Iisus, cine în cer este să nu înțeleagă mersul Nostru cel greu și plin de rane și de strâmtorări? Suntem cu mângâierea și cu duioșia peste cei adunați la serbare aici. Toată așezarea sărbătorii e tot un glas care vorbește celor din cer și de pe pământ. Ziua venirii mele lângă Tine și lângă cei din cer mi-a încununat toată odihna și pot prin ea pentru cei ce Ne iubesc pe pământ, Fiule scump.*
 
-Iată-i, s-au strâns de serbare! O, să le binecuvântăm iubirea și credința, să-i îndemnăm să se lase locașe ale Duhului Sfânt și ale feluritelor Lui lucrări și haruri! O, să-i ascultăm pe ei în tot ce așează ei înaintea Noastră ca să Ne bucure, ca să Ne mângâie, Fiule scump!
+*Iată-i, s-au strâns de serbare! O, să le binecuvântăm iubirea și credința, să-i îndemnăm să se lase locașe ale Duhului Sfânt și ale feluritelor Lui lucrări și haruri! O, să-i ascultăm pe ei în tot ce așează ei înaintea Noastră ca să Ne bucure, ca să Ne mângâie, Fiule scump!*
 
-O, veniți, fiilor, veniți la Fiul meu Iisus Hristos! Dacă veniți, o, învățați să rămâneți întru El ca să aveți iubirea Lui.
+*O, veniți, fiilor, veniți la Fiul meu Iisus Hristos! Dacă veniți, o, învățați să rămâneți întru El ca să aveți iubirea Lui.*
 
-Vă cuprind la piept și vă strâng aproape. Mă aplec în fața frumosului cu care Ni se face primirea și popasul. Ne lăsăm spre mângâierea cea spre Noi acum din această grădină. Deschideți-vă priceperea pentru tot cuvântul Fiului meu Iisus Hristos, și pe care voi să-l împliniți ca să-I fiți fii, o, fiilor. Ridicați lupta împotriva diavolului, tot mai nouă lupta asupra lui, ca nu cumva să vă vadă vreo clipă cu lupta oprită. O, învățați, învățați să credeți, împlinind cuvântul Fiului meu! Amin.
+*Vă cuprind la piept și vă strâng aproape. Mă aplec în fața frumosului cu care Ni se face primirea și popasul. Ne lăsăm spre mângâierea cea spre Noi acum din această grădină. Deschideți-vă priceperea pentru tot cuvântul Fiului meu Iisus Hristos, și pe care voi să-l împliniți ca să-I fiți fii, o, fiilor. Ridicați lupta împotriva diavolului, tot mai nouă lupta asupra lui, ca nu cumva să vă vadă vreo clipă cu lupta oprită. O, învățați, învățați să credeți, împlinind cuvântul Fiului meu! Amin.*
 
 — O, mama Mea, hai să le binecuvântăm cărarea spre casele lor acum, mamă! Hai să-i înconjurăm cu cerul, mamă, că pe pământ sunt numai curse pentru ai Mei! Iar Noi să învățăm să-i așteptăm iar și iar, mamă.
 

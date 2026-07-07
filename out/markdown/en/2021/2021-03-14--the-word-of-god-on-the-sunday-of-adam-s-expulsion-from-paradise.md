@@ -41,23 +41,23 @@ Oh, man, keep away from sin, not from the sufferance from sin! You need the fire
 
 Oh, the first created man hears My word and cries. I can hear him how he cries. Oh, how shall he not cry? He cries because of My pain. Let the earth hear his crying, for he cries because of My pain from him!
 
-â�� I’m crying for You. For Your pain from Me, Lord, I am crying for it.
+*â�� I’m crying for You. For Your pain from Me, Lord, I am crying for it.*
 
-I fell from the paradise’s happiness because I had chosen the guilty happiness of the sin, which separated me from You, Lord, and I had been suffering nine hundred years on earth, and after that I put off the body and suffered in the spirit until two thousand years ago, before Your coming with the cross, which my sin made it for You, and Your sufferance on the cross had mercy on me and on many of Your righteous ones, who were waiting for You to come on earth and to give them their resurrection, Lord. However, You had mercy on me first, for I was the one who came out of paradise and the paradise was closed behind me, but You came with the key, with the cross, Lord, oh, You came to open to Your righteous ones so that they may come in with You, to take their share for which they worked hard with You, and then they waited for You to come, to open to them and to give them comfort, Lord.
+*I fell from the paradise’s happiness because I had chosen the guilty happiness of the sin, which separated me from You, Lord, and I had been suffering nine hundred years on earth, and after that I put off the body and suffered in the spirit until two thousand years ago, before Your coming with the cross, which my sin made it for You, and Your sufferance on the cross had mercy on me and on many of Your righteous ones, who were waiting for You to come on earth and to give them their resurrection, Lord. However, You had mercy on me first, for I was the one who came out of paradise and the paradise was closed behind me, but You came with the key, with the cross, Lord, oh, You came to open to Your righteous ones so that they may come in with You, to take their share for which they worked hard with You, and then they waited for You to come, to open to them and to give them comfort, Lord.*
 
-Oh, forgive them; forgive all the people who sinned and sin because of the lack of the fear of God, as I sinned in paradise, Lord!
+*Oh, forgive them; forgive all the people who sinned and sin because of the lack of the fear of God, as I sinned in paradise, Lord!*
 
-And I am telling them, to those who keep on sinning: Oh, fear God all the time, for you cannot otherwise put the sin in you to death so that you may get away with it and to out from its condemnation!
+*And I am telling them, to those who keep on sinning: Oh, fear God all the time, for you cannot otherwise put the sin in you to death so that you may get away with it and to out from its condemnation!*
 
-The Lord’s saints remember me on this day so that you may look at the man created by God and at the sin of his separation from God because of his sin.
+*The Lord’s saints remember me on this day so that you may look at the man created by God and at the sin of his separation from God because of his sin.*
 
-Oh, turn back from sin! Come back to the Lord and to your holiness through Jesus Christ, for the Lord is holy, and he who stays near the Lord, has to be like Him!
+*Oh, turn back from sin! Come back to the Lord and to your holiness through Jesus Christ, for the Lord is holy, and he who stays near the Lord, has to be like Him!*
 
-Oh, wipe out my tear! Come back to the One Who had mercy on me, the one alienated from Him because of sin! Cry with me; cry for me and for you as well!
+*Oh, wipe out my tear! Come back to the One Who had mercy on me, the one alienated from Him because of sin! Cry with me; cry for me and for you as well!*
 
-The Lord suffers bitterly for the man’s sin. The day of His glory is at the border, His visible coming. The Lord is coming with His saints! Pass from your bodies into spirit and make way for the Lord so that He may work for you, and to give you forgiveness!
+*The Lord suffers bitterly for the man’s sin. The day of His glory is at the border, His visible coming. The Lord is coming with His saints! Pass from your bodies into spirit and make way for the Lord so that He may work for you, and to give you forgiveness!*
 
-This much is now the crying of my word, Lord, on my day of remembrance, of my fall from paradise, oh, and am looking at that moment and at how much You suffered for me and for You, and I see how long it had been was for You to wait and I thank You for forgiveness, for love, for patience, for Your mercy on me, I thank you with the humility of the pain, oh, because it was no one else to cause You a greater pain, but I, I alone, only I, oh, Lord, and I thank You!
+*This much is now the crying of my word, Lord, on my day of remembrance, of my fall from paradise, oh, and am looking at that moment and at how much You suffered for me and for You, and I see how long it had been was for You to wait and I thank You for forgiveness, for love, for patience, for Your mercy on me, I thank you with the humility of the pain, oh, because it was no one else to cause You a greater pain, but I, I alone, only I, oh, Lord, and I thank You!*
 
 â�� Oh, but I, the Lord, too, I am also the One Who heals the greatest pains, those unspeakably great, for My love is My being, which can heal His creature, Who puts wine and oil on the great wounds, and satan is overcome by My love for the man healed by God.
 

@@ -16,7 +16,7 @@ Eu, pe când aşteptam, am văzut deasupra capului meu o roată mare, mai mărit
 
 Verginico, Mă cunoşti cine sunt Eu?
 
-— Da, Doamne, Te cunosc. Eşti Tatăl ceresc.
+*— Da, Doamne, Te cunosc. Eşti Tatăl ceresc.*
 
 — Sunt. Să nu Mă uiţi niciodată. Să scrii copiilor Mei aşa, că de mii de ani vorbeşte Domnul cu ei. L-a făcut Dumnezeu de la început pe om, l-a făcut nedeosebit cu chipul. I-am dat suflet din Duhul Meu, i-am dat grai din graiul Meu, şi toate celelalte din ale Mele sunt date, şi mulţi zic că tot ce au sunt făcute de ei. Scrie, Verginico, mărgăritarele Mele şi le dă copiilor Mei să le citească, că de mii de ani vorbeşte Domnul şi cu creştinii, şi cu păgânii, şi ei nu fac roade vrednice de pocăinţă.
 

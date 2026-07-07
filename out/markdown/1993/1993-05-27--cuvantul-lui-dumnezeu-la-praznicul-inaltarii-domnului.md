@@ -34,9 +34,9 @@ Iată, cu voi sunt! Binecuvântată să vă fie vouă iubirea şi credinţa şi 
 
 Verginica este cu oastea de sfinţi şi de îngeri şi lucrează deasupra României şi cântă împreună cu Maica cerească şi nu va fi încetată cântarea cea pentru România:
 
-„O, Doamne sfinte, ceresc Părinte,
+*„O, Doamne sfinte, ceresc Părinte,*
 
-Susţine cu a Ta mână coroana română!“.
+*Susţine cu a Ta mână coroana română!“.*
 
 Cerul cântă la voi şi în voi. Nu vă ofiliţi sub loviturile aruncate în voi. Ce vă poate face omul? Cereţi pe Duhul Sfânt peste cei ce batjocoresc locul ieslei cuvântului Meu; cereţi să le iau solzii şi să vadă; cereţi, şi aceştia vor primi, şi vor lăsa armele lor şi vor lua sfinţenia Mea şi vor sta în ea, şi prin ea vor crede.
 

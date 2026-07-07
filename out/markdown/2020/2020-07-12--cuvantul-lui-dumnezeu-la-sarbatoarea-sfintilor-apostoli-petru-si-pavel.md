@@ -40,13 +40,13 @@ O, ce frumos, ce sfânt i-am învățat și pe apostolii Mei aleși atunci de Mi
 
 O, ucenici iubiți ai Mei, avem sărbătoare pentru voi și masă de sărbătoare, și frații cei mici ai Noștri gazdă Nouă azi, în zi de mărturisire pentru voi și de la voi, iubiților. O, binecuvântat să vă fie cuvântul, și pus el să fie în cartea Mea cea de azi cu ziua voastră de serbare între sfinți!
 
-— În sobor, o, în sobor stăm adunați aici, cu Tine și cu ei, Doamne, iar cetele de sfinți stau cu noi sub duhul mângâierii Tale, căci Tu ești mângâierea. Cuvântul Tău ne mângâie, și iubirea Ta ne mustră pentru puținătatea noastră înaintea Ta în viața noastră între oameni, dar ne și vindecă trecutul cel rău, căci toate se adună înaintea Ta, toate de pe pământ ale firii, ale duhului omului, Doamne.
+*— În sobor, o, în sobor stăm adunați aici, cu Tine și cu ei, Doamne, iar cetele de sfinți stau cu noi sub duhul mângâierii Tale, căci Tu ești mângâierea. Cuvântul Tău ne mângâie, și iubirea Ta ne mustră pentru puținătatea noastră înaintea Ta în viața noastră între oameni, dar ne și vindecă trecutul cel rău, căci toate se adună înaintea Ta, toate de pe pământ ale firii, ale duhului omului, Doamne.*
 
-Stăm uimiți de dor, căci cetatea Ta de aici cu ei e dorul Tău și al nostru, e locul unde vine Domnul cu sfinții Săi, e împlinirea Scripturii venirii Tale de azi această cetate. O, păzește-o pe ea cu toate puterile cerești, Doamne!
+*Stăm uimiți de dor, căci cetatea Ta de aici cu ei e dorul Tău și al nostru, e locul unde vine Domnul cu sfinții Săi, e împlinirea Scripturii venirii Tale de azi această cetate. O, păzește-o pe ea cu toate puterile cerești, Doamne!*
 
-E sărbătoare dulce acum, aici, pentru noi, iar Tu Te mângâi lucrând și mângâind, Doamne. Nu mai încap cuvinte lângă cuvântul Tău, decât aplecarea noastră cu sfială ca în cer înaintea tronului Tău, aici, unde Ți-ai scris pe piatră cuvântul în toată vremea cea de după anul 1955, și unde și azi îl scrii, o, și mult cuvânt s-a strâns pe pământ, munte de cuvânt, și nu-l încape pământul, dacă omul nu-l ia să-l pună peste el de viață a sa, de lucrare a sa cu Tine pe pământ, Doamne!
+*E sărbătoare dulce acum, aici, pentru noi, iar Tu Te mângâi lucrând și mângâind, Doamne. Nu mai încap cuvinte lângă cuvântul Tău, decât aplecarea noastră cu sfială ca în cer înaintea tronului Tău, aici, unde Ți-ai scris pe piatră cuvântul în toată vremea cea de după anul 1955, și unde și azi îl scrii, o, și mult cuvânt s-a strâns pe pământ, munte de cuvânt, și nu-l încape pământul, dacă omul nu-l ia să-l pună peste el de viață a sa, de lucrare a sa cu Tine pe pământ, Doamne!*
 
-O, slavă Ție și mângâierii Tale pentru noi, cei ce venim cu Tine, și pentru ei, cei ce-Ți poartă azi mersul și glasul peste pământ, Doamne, o, și dă-le lor, dă-le lor biruința cu Tine, scrisă ea să se împlinească, o, Doamne, acum, la sfârșit de timp, și facerea Ta peste ei dă-le-o lor, mereu, mereu dă-le-o lor, o, Doamne!
+*O, slavă Ție și mângâierii Tale pentru noi, cei ce venim cu Tine, și pentru ei, cei ce-Ți poartă azi mersul și glasul peste pământ, Doamne, o, și dă-le lor, dă-le lor biruința cu Tine, scrisă ea să se împlinească, o, Doamne, acum, la sfârșit de timp, și facerea Ta peste ei dă-le-o lor, mereu, mereu dă-le-o lor, o, Doamne!*
 
 — O, pace vouă, ucenici ai Mei de atunci! Ați umblat cu Mine și ați fost mângâierea Mea cât voi n-ați știut. V-am avut ai Mei pe voi, și aceasta a fost mângâiere mare Mie, fiilor.
 

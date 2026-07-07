@@ -40,10 +40,10 @@ Iară şi iară Mă scriu în cartea Mea de azi cu această taină: dorul de Dum
 
 Acum, pace ţie, şi sărbătoare dulce şi cu dor în ea, că dorul este cel ce-ţi dă ţie viaţă pentru Mine şi pentru tine, căci viaţă am venit să pun peste om. Amin. Îţi dau cu dor salutul învierii: Hristos a înviat! Apostolii Mei te cuprind de jur împrejur şi îţi zic şi ei de lângă Mine:
 
-– Hristos a înviat, şi S-a arătat nouă în ziua întâi a săptămânii şi, iarăşi, în ziua a opta după înviere, iar noi mărturisim aceasta ca să creadă toate noroadele de pe pământ că Hristos, Cel înviat dintre morţi, este Fiul lui Dumnezeu, şi crezând viaţă să aibă în numele Lui. Amin.
+*– Hristos a înviat, şi S-a arătat nouă în ziua întâi a săptămânii şi, iarăşi, în ziua a opta după înviere, iar noi mărturisim aceasta ca să creadă toate noroadele de pe pământ că Hristos, Cel înviat dintre morţi, este Fiul lui Dumnezeu, şi crezând viaţă să aibă în numele Lui. Amin.*
 
-Hristos a înviat! Aşa vă spun eu, cel ce am pus mâna mea pe ranele mâinilor Lui şi degetul meu pe coasta Lui cea străpunsă, şi atunci I-am spus ars de dor: „Domnul meu şi Dumnezeul meu!“, şi aceasta este mărturisirea mea pentru învierea Lui. Amin.
+*Hristos a înviat! Aşa vă spun eu, cel ce am pus mâna mea pe ranele mâinilor Lui şi degetul meu pe coasta Lui cea străpunsă, şi atunci I-am spus ars de dor:* „Domnul meu şi Dumnezeul meu!“, *şi aceasta este mărturisirea mea pentru învierea Lui. Amin.*
 
-Hristos a înviat! Rostim peste tot pământul, din uşa cortului sfânt al Domnului, în mijlocul neamului român. Acesta este Cuvântul lui Dumnezeu. Noi, ucenicii Lui cei de atunci, mărturisim de lângă El, iar voi să ştiţi că acest cuvânt este Hristos, Fiul lui Dumnezeu, Domnul Care vine, şi crezând viaţă să aveţi în numele Lui. Amin, amin, amin.
+*Hristos a înviat! Rostim peste tot pământul, din uşa cortului sfânt al Domnului, în mijlocul neamului român. Acesta este Cuvântul lui Dumnezeu. Noi, ucenicii Lui cei de atunci, mărturisim de lângă El, iar voi să ştiţi că acest cuvânt este Hristos, Fiul lui Dumnezeu, Domnul Care vine, şi crezând viaţă să aveţi în numele Lui. Amin, amin, amin.*
 
 – Iată cerul şi pământul în cuvânt la masă de Paşti nou. Eu, Domnul, binecuvintez îmbrăţişarea aceasta şi Mă vestesc pe Mine Însumi şi salut neamul omenesc care ştie să fie şi îi zic lui: Hristos a înviat! Hristos a înviat! Hristos a înviat! şi crezând, viaţă să aibă în numele Meu. Amin, amin, amin.

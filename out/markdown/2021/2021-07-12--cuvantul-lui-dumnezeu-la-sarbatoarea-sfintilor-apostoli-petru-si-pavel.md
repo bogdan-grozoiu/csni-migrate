@@ -34,21 +34,21 @@ O, așa îi învățam pe ucenicii Mei să lucreze și să cuvinteze între Mine
 
 Puneți pe masă rodul cuvântului Meu de peste voi, puneți cuvânt pe masă, fiilor ucenici! Eu sunt cu zilele Mele de nuntă pe pământ cu ei, cu cei care Mă poartă cu cuvântul de la margini la margini, fiilor, căci acum merge prin văzduh Domnul cu ucenicii Săi cei de azi, că pe pământ nu mai este cum să mergem, dar Eu merg, că pot aceasta, și iată, Îmi împart glasul ca să meargă el peste tot, și apoi să sfârșesc și să număr oile și să le dau lor veșnicia, fiilor. Hai, puneți pe masă, puneți din voi, o, ucenici iubiți!
 
-— Pace Ție, Doamne! Ne-ai învățat să facem urare de pace oriunde vom intra să lucrăm, așa cum și Tu ne așezai mereu în pacea Ta și ne spuneai: Pace vouă!
+*— Pace Ție, Doamne! Ne-ai învățat să facem urare de pace oriunde vom intra să lucrăm, așa cum și Tu ne așezai mereu în pacea Ta și ne spuneai: Pace vouă!*
 
-Grăim acum fraților noștri cei mai mici, cei din urmă ucenici ai Tăi, și le spunem și lor:
+*Grăim acum fraților noștri cei mai mici, cei din urmă ucenici ai Tăi, și le spunem și lor:*
 
-Pace vouă, o, pace vouă! Ca și Domnul lucrăm și noi, și să rămână pacea peste voi toți!
+*Pace vouă, o, pace vouă! Ca și Domnul lucrăm și noi, și să rămână pacea peste voi toți!*
 
-Vegheați să fiți toți fii ai păcii, fiilor ucenici. Lucrează Domnul peste voi așa cum lucra peste noi atunci când răbda Domnul stângăciile minții noastre, ale neînțelepciunii noastre, dar ne dădea să lucrăm ca să și învățăm să lucrăm, o, și mergeam și ne întorceam cu roadele Duhului Sfânt peste mulțimi, dar Domnul ne învăța să ne bucurăm cu cumințenie, nu cu bucurie fără de umilință, ci doar că prin ceea ce lucram ni se scria în ceruri în cartea vieții lucrarea și numele și duhul.
+*Vegheați să fiți toți fii ai păcii, fiilor ucenici. Lucrează Domnul peste voi așa cum lucra peste noi atunci când răbda Domnul stângăciile minții noastre, ale neînțelepciunii noastre, dar ne dădea să lucrăm ca să și învățăm să lucrăm, o, și mergeam și ne întorceam cu roadele Duhului Sfânt peste mulțimi, dar Domnul ne învăța să ne bucurăm cu cumințenie, nu cu bucurie fără de umilință, ci doar că prin ceea ce lucram ni se scria în ceruri în cartea vieții lucrarea și numele și duhul.*
 
-O, nu încetați să lucrați și să vreți să lucrați! Cei ce nu lucrează se lasă grei, o, și le trebuie iubire, iubire și credință, căci iubirea fără de credință că se poate, că poți, o, e iubire amestecată cu voia de sine, și suferă nelucrată voia Domnului, voia fraților. O, aveți pe Domnul mult, mult, cu mult cuvânt peste voi. Fiți ochi și urechi ca să împliniți voia Lui. Nu vă dă Domnul să lucrați ceea ce ar fi prea mult, ci tot ceea ce vă face pe voi ai lui Dumnezeu tot timpul, vă dă tot ceea ce puteți face prin puterea Lui, pe care v-o dă mereu mai mult decât oricăruia de până acum lucrător cu Domnul.
+*O, nu încetați să lucrați și să vreți să lucrați! Cei ce nu lucrează se lasă grei, o, și le trebuie iubire, iubire și credință, căci iubirea fără de credință că se poate, că poți, o, e iubire amestecată cu voia de sine, și suferă nelucrată voia Domnului, voia fraților. O, aveți pe Domnul mult, mult, cu mult cuvânt peste voi. Fiți ochi și urechi ca să împliniți voia Lui. Nu vă dă Domnul să lucrați ceea ce ar fi prea mult, ci tot ceea ce vă face pe voi ai lui Dumnezeu tot timpul, vă dă tot ceea ce puteți face prin puterea Lui, pe care v-o dă mereu mai mult decât oricăruia de până acum lucrător cu Domnul.*
 
-O, nu vă dăm noi mult în ziua aceasta de serbare. Avem pe Învățătorul cu noi, și El este deasupra. Lucrați și voi de la El prin puterea Lui, iar de la noi, îndemnul să lucrați și să nu depărtați de la voi cuvântul Său de peste voi, ci să-l împliniți întru totul, că nimic nu este cu neputință celui căruia Domnul îi dă să lucreze, după ce îi dă înțelepciune și har și lucru apoi.
+*O, nu vă dăm noi mult în ziua aceasta de serbare. Avem pe Învățătorul cu noi, și El este deasupra. Lucrați și voi de la El prin puterea Lui, iar de la noi, îndemnul să lucrați și să nu depărtați de la voi cuvântul Său de peste voi, ci să-l împliniți întru totul, că nimic nu este cu neputință celui căruia Domnul îi dă să lucreze, după ce îi dă înțelepciune și har și lucru apoi.*
 
-Pace vouă! Ca și Domnul vă spunem și noi.
+*Pace vouă! Ca și Domnul vă spunem și noi.*
 
-O, pace Ție, Doamne! Ca și Tine lucrăm și noi, că de la Tine am învățat și învățăm, și unii de la alții învață ucenicii Tăi. Amin.
+*O, pace Ție, Doamne! Ca și Tine lucrăm și noi, că de la Tine am învățat și învățăm, și unii de la alții învață ucenicii Tăi. Amin.*
 
 — Urarea cea dulce a fiilor lui Dumnezeu, aceasta o pun Eu peste voi, și spun: Pace în cer și pe pământ peste ucenicii Mei, și din unii în alții pace!
 

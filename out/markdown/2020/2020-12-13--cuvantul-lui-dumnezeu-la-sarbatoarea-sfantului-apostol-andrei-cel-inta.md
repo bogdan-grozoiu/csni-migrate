@@ -32,19 +32,19 @@ Iar cele ce se petrec pe afară peste lume, o, nu e pentru voi, e pentru lume, f
 
 Iar acum peste poporul cuvântului Meu lasă mângâiere de duh martorii cei din cer ai acestei sărbători de aducere-aminte. Și acum, iată-i!
 
-— O, iată-mă, Doamne, că m-ai luat cu Tine în ziua de pomenire a mea ca să-Ți fiu ucenic și martor și acum, în vremea aceasta de la sfârșit de timp. Am stat ca uns al Tău martor din cer lângă unsul Tău martor de pe pământ, arhiereul Irineu, și am pecetluit cu mână din cer și cu mână de pe pământ taina lucrării cuvântului Tău prin trâmbița Ta Verginica și poporul ei, iar alături cu noi au stat din partea celor din cer cei trei martori arhierei Vasile, Grigorie și Ioan, și s-a așezat în ziua aceea Sfânta Sfintelor Tale, peste care Tu cobori cuvântul Tău.
+*— O, iată-mă, Doamne, că m-ai luat cu Tine în ziua de pomenire a mea ca să-Ți fiu ucenic și martor și acum, în vremea aceasta de la sfârșit de timp. Am stat ca uns al Tău martor din cer lângă unsul Tău martor de pe pământ, arhiereul Irineu, și am pecetluit cu mână din cer și cu mână de pe pământ taina lucrării cuvântului Tău prin trâmbița Ta Verginica și poporul ei, iar alături cu noi au stat din partea celor din cer cei trei martori arhierei Vasile, Grigorie și Ioan, și s-a așezat în ziua aceea Sfânta Sfintelor Tale, peste care Tu cobori cuvântul Tău.*
 
-Le dau alin pe cale cu Tine la cei ce sunt acum sprijin venirii Tale, iar cetatea cuvântului Tău să-și întărească lucrarea cea tainică, și pe care Tu o ții în mână și o lucrezi peste pământ și împlinești, Doamne, cuvântul Tău și mergi în față, o, și mare taină se lucrează împotriva necredinței de pe pământ, și numai Tu vei birui, căci tainic lucrezi, Doamne, o, și slavă Ție, Doamne, pentru atâta măreție care se arată, și tot ce este scris să fie se va arăta!
+*Le dau alin pe cale cu Tine la cei ce sunt acum sprijin venirii Tale, iar cetatea cuvântului Tău să-și întărească lucrarea cea tainică, și pe care Tu o ții în mână și o lucrezi peste pământ și împlinești, Doamne, cuvântul Tău și mergi în față, o, și mare taină se lucrează împotriva necredinței de pe pământ, și numai Tu vei birui, căci tainic lucrezi, Doamne, o, și slavă Ție, Doamne, pentru atâta măreție care se arată, și tot ce este scris să fie se va arăta!*
 
-— O, iată-mă și pe mine, Doamne, căci trâmbițez peste poporul cuvântului Tău să-și întărească duhul și mersul și împlinirea Ta în ei, că fără de împlinirea voii Tale nu se scrie că merge omul cu Tine pe cale.
+*— O, iată-mă și pe mine, Doamne, căci trâmbițez peste poporul cuvântului Tău să-și întărească duhul și mersul și împlinirea Ta în ei, că fără de împlinirea voii Tale nu se scrie că merge omul cu Tine pe cale.*
 
-Pace vouă, celor ce străjuiți cetatea Domnului! Toți să vă păstrați întru Domnul, întru plăcerea Lui, fiilor! Umblați la cartea Domnului cu voi ca să culegeți tot timpul din ea îndemnurile sfinte, și apoi urmați așa pe Domnul, așa cum vă învață El prin cuvânt, dar și noi, sfinții Lui, când venim cu îndemnul cel sfânt.
+*Pace vouă, celor ce străjuiți cetatea Domnului! Toți să vă păstrați întru Domnul, întru plăcerea Lui, fiilor! Umblați la cartea Domnului cu voi ca să culegeți tot timpul din ea îndemnurile sfinte, și apoi urmați așa pe Domnul, așa cum vă învață El prin cuvânt, dar și noi, sfinții Lui, când venim cu îndemnul cel sfânt.*
 
-O, e mult cuvântul care vă învață, iar cele ce învățați din el sunt cele ce le și împliniți, fiilor. O, umblați întru dragoste! Zidiți armonia cea sfântă între voi mai înainte de orice lucrare aveți de lucrat, și nu uitați, o, nu uitați să fiți fiii lui Dumnezeu, măi fiilor! O, fiți cu inima curată și fiți fiii lui Dumnezeu, fiilor! Iar eu mă mângâi și mă bucur întru El de voi, de lucrul vostru cu Domnul, fiilor.
+*O, e mult cuvântul care vă învață, iar cele ce învățați din el sunt cele ce le și împliniți, fiilor. O, umblați întru dragoste! Zidiți armonia cea sfântă între voi mai înainte de orice lucrare aveți de lucrat, și nu uitați, o, nu uitați să fiți fiii lui Dumnezeu, măi fiilor! O, fiți cu inima curată și fiți fiii lui Dumnezeu, fiilor! Iar eu mă mângâi și mă bucur întru El de voi, de lucrul vostru cu Domnul, fiilor.*
 
-O, Doamne, în brațele Tale mereu să-i ții pe ei. Pacea Ta să le-o dai mereu, iar mila Ta să le fie de sprijin, și mersul Tău cu ei să-Ți aducă biruința cea mare, Doamne!
+*O, Doamne, în brațele Tale mereu să-i ții pe ei. Pacea Ta să le-o dai mereu, iar mila Ta să le fie de sprijin, și mersul Tău cu ei să-Ți aducă biruința cea mare, Doamne!*
 
-O, fiilor, pace vouă! Să se depărteze de voi tot ce dă să vă facă rane și tristeți, căci sunteți plăpânzi, fiilor. Zi și noapte sprijiniți-vă unii cu alții întru toate și cereți-i pe cei din cer lângă voi mereu. Grăiți cu cei din cer prin rugăciuni cu putere în ele, și pace vouă, o, fiilor!
+*O, fiilor, pace vouă! Să se depărteze de voi tot ce dă să vă facă rane și tristeți, căci sunteți plăpânzi, fiilor. Zi și noapte sprijiniți-vă unii cu alții întru toate și cereți-i pe cei din cer lângă voi mereu. Grăiți cu cei din cer prin rugăciuni cu putere în ele, și pace vouă, o, fiilor!*
 
 — Cu pază cerească Eu, Domnul, vă stau alături mereu, iar voi stați alături de Mine și să lucrați și voi la fel unii spre alții, fiilor. Scriem trei zile întru una și ridicăm acum sus ziua mărturiei.
 

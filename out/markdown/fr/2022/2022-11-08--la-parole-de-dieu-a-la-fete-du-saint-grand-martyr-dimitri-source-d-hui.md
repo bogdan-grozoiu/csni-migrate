@@ -37,9 +37,9 @@ Paix à vous, peuples, et à vous, leurs maîtres, car la victoire c’est pour 
 
 Maintenant le martyr Dimitri met auprès de Ma parole son témoignage et il dit:
 
-— Oh, ne vous levez pas plus haut que vous pouvez être, vous, maîtres orgueilleux, puisque la vraie victoire n’est pas la terre pour laquelle vous luttez, mais c’est le ciel, et vous luttez sans amour de Dieu contre ceux qui ont cet amour.
+*— Oh, ne vous levez pas plus haut que vous pouvez être, vous, maîtres orgueilleux, puisque la vraie victoire n’est pas la terre pour laquelle vous luttez, mais c’est le ciel, et vous luttez sans amour de Dieu contre ceux qui ont cet amour.*
 
-Et vous, ceux qui mettez votre peuple en danger, oh, ne comptez plus sur des amis, car ils ne le sont pas, mais ils sont seulement des voleurs, seulement des brigands, puisque l’amour ne cherche pas les siennes, oh, non. C’est pourquoi voilà ce que le Seigneur vous dit:
+*Et vous, ceux qui mettez votre peuple en danger, oh, ne comptez plus sur des amis, car ils ne le sont pas, mais ils sont seulement des voleurs, seulement des brigands, puisque l’amour ne cherche pas les siennes, oh, non. C’est pourquoi voilà ce que le Seigneur vous dit:*
 
 — Moi, le Seigneur, Je vous donne un conseil paternel: Paix à vous, à ceux qui n’en ont pas, car voilà, il y a de la douleur dans votre pays, et l’ennemi étranger vous ment et il se présente en ami! Oh, soyez tranquilles dans vos affaires et ayez pitié du peuple qui souffre et se perd. La guerre de chez vous vient du dehors, pas du milieu, pas des voisins. C’est l’ennemi antéchrist sous masque d’ami, mais il est l’ennemi qui lutte pour amener son paganisme partout, et voilà, chez vous aussi ici, ici, auprès des peuples chrétien-orthodoxes, ici, où il y a des chrétiens tout autour, des chrétiens du Jésus-Christ, église de l’Agneau.
 

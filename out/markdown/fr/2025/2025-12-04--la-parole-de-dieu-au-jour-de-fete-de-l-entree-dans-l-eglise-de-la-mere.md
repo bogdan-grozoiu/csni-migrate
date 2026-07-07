@@ -27,23 +27,23 @@ Oh, qui êtes-vous, ceux qui vous êtes rangés sous Mon nom pour vous montrer s
 
 Oh, qui sont ceux qui font semblent de ne pas entendre Ma parole, qui sont-ils, Ma mère?
 
-— Mon Fils Jésus, oh, doux Fils du Père et le Mien, ceux-là sont les prêtres et les prélats de ce temps, amis d’antéchrist Ton ennemi, tout comme ceux d’il y a deux mille ans prélats et prêtres qui T’ont donné à la croix, car ils étaient si faux, si perdus de Dieu, tout comme ceux d’aujourd’hui.
+*— Mon Fils Jésus, oh, doux Fils du Père et le Mien, ceux-là sont les prêtres et les prélats de ce temps, amis d’antéchrist Ton ennemi, tout comme ceux d’il y a deux mille ans prélats et prêtres qui T’ont donné à la croix, car ils étaient si faux, si perdus de Dieu, tout comme ceux d’aujourd’hui.*
 
-Tu as mal, fils Jésus, Tu as mal venu d’eux, et j’en ai aussi, tout comme Toi, et j’ai mal de pitié pour Toi et de tant de mépris venu d’eux, mais Nous sommes ici avec ceux consolés de Ta venue, et qui ont appris de Nous la consolation et ils Nous sont des consolateurs, et allons Nous consoler avec eux et eux avec Nous, pour qu’ils soient Nos enfants obéissants, et qui Tu les paisses ici, car ils Nous transmettent à ceux qui croient et à ceux qui ne croient pas à la parole de Ta venue, Fils Jésus.[/legatura_la_teme]
+*Tu as mal, fils Jésus, Tu as mal venu d’eux, et j’en ai aussi, tout comme Toi, et j’ai mal de pitié pour Toi et de tant de mépris venu d’eux, mais Nous sommes ici avec ceux consolés de Ta venue, et qui ont appris de Nous la consolation et ils Nous sont des consolateurs, et allons Nous consoler avec eux et eux avec Nous, pour qu’ils soient Nos enfants obéissants, et qui Tu les paisses ici, car ils Nous transmettent à ceux qui croient et à ceux qui ne croient pas à la parole de Ta venue, Fils Jésus.*[/legatura_la_teme]
 
 — Oh, Ma mère, si tu parlerais toi aussi à ceux qui ne Me recevaient pas, Ma mère!
 
-— Fils Jésus, ils ne croient pas ceux-là et ils ne voient pas la puissance de Ta parole, qui s’incline et leur parle. Ils n’ont pas de raison pour en comprendre et croire ensuite. Oh, ils ne voient pas les hommes, et ils sont si emparés des soucis de leur vie terrestre, Mon Fils Jésus.
+*— Fils Jésus, ils ne croient pas ceux-là et ils ne voient pas la puissance de Ta parole, qui s’incline et leur parle. Ils n’ont pas de raison pour en comprendre et croire ensuite. Oh, ils ne voient pas les hommes, et ils sont si emparés des soucis de leur vie terrestre, Mon Fils Jésus.*
 
-Toi, homme errant, tu as besoin de raison pour comprendre et pour croire, pour recevoir Dieu, et Lui donner ensuite ton cœur afin de le préparer Lui-Même pour qu’Il s’y tient et qu’Il Te porte sur la voie avec du soleil sur elle, avec Dieu sur la voie, oh, fils si terrien, que tu ne peux donner à Dieu ton cœur!
+*Toi, homme errant, tu as besoin de raison pour comprendre et pour croire, pour recevoir Dieu, et Lui donner ensuite ton cœur afin de le préparer Lui-Même pour qu’Il s’y tient et qu’Il Te porte sur la voie avec du soleil sur elle, avec Dieu sur la voie, oh, fils si terrien, que tu ne peux donner à Dieu ton cœur!*
 
-Et vous, Fils du Christ, vous, ceux auprès de Sa parole avec votre cœur, oh, tenez-vous toujours avec Lui, les fils, et tenez-vous en veille pour qu’ils ne vous trompent pas satan et son monde et vous faire tomber de Dieu. Oh, ne vous perdez pas, ne vous perdez plus, ne périssez plus pas un, vous, ceux qui sont restés jusqu’à présent près de la source de la vie éternelle! Venez prendre de la vie de Lui! Il est ici, et Il ne s’en va plus. Vous non plus ne partez pas de Son peuple, oh, car ils sont partis ceux qui sont partis, s’ils ont oublié ce qu’ils sont les hommes qui ont le Seigneur de Pasteur.
+*Et vous, Fils du Christ, vous, ceux auprès de Sa parole avec votre cœur, oh, tenez-vous toujours avec Lui, les fils, et tenez-vous en veille pour qu’ils ne vous trompent pas satan et son monde et vous faire tomber de Dieu. Oh, ne vous perdez pas, ne vous perdez plus, ne périssez plus pas un, vous, ceux qui sont restés jusqu’à présent près de la source de la vie éternelle! Venez prendre de la vie de Lui! Il est ici, et Il ne s’en va plus. Vous non plus ne partez pas de Son peuple, oh, car ils sont partis ceux qui sont partis, s’ils ont oublié ce qu’ils sont les hommes qui ont le Seigneur de Pasteur.*
 
-Tenez-vous loin de l’esprit du monde! Tant que vous pouvez, entendez cela, car le monde gâte et frappe Dieu Qui se trouve en vous, c’est pourquoi tenez-vous avec Lui sur la terre, pas sans Lui puisque sans Lui, vous n’avez pas la force sur satan, qui vous exhorte de partout vers le monde, les fils. Liez-vous donc du Christ, par serment éternel, et vous serez avec Lui, et le Seigneur sera avec vous, et n’oubliez pas d’entendre Son amour qui vous enseigne en disant. ”Mon fils, donne-Moi ton cœur”!
+*Tenez-vous loin de l’esprit du monde! Tant que vous pouvez, entendez cela, car le monde gâte et frappe Dieu Qui se trouve en vous, c’est pourquoi tenez-vous avec Lui sur la terre, pas sans Lui puisque sans Lui, vous n’avez pas la force sur satan, qui vous exhorte de partout vers le monde, les fils. Liez-vous donc du Christ, par serment éternel, et vous serez avec Lui, et le Seigneur sera avec vous, et n’oubliez pas d’entendre Son amour qui vous enseigne en disant. ”Mon fils, donne-Moi ton cœur”!*
 
-J’ai enseigné aux Tiens, à ceux qui se tiennent avec Toi, mon bien aime Jésus, car ils Nous reçoivent. Ceux qui ne Te reçoivent pas n’ont pas de raison, mais ils ont le cœur vers le monde, et personne ne peut rester avec Toi, si on aime le monde et son envie.
+*J’ai enseigné aux Tiens, à ceux qui se tiennent avec Toi, mon bien aime Jésus, car ils Nous reçoivent. Ceux qui ne Te reçoivent pas n’ont pas de raison, mais ils ont le cœur vers le monde, et personne ne peut rester avec Toi, si on aime le monde et son envie.*
 
-Et maintenant, donne-leur de Ta parole de Pasteur, donne-leur de ta bonne parole, mon Fils Jésus!
+*Et maintenant, donne-leur de Ta parole de Pasteur, donne-leur de ta bonne parole, mon Fils Jésus!*
 
 — Oh, Ma mère, Nous, Nous sommes toujours avec eux, oh, Ma mère. Nous sommes avec la Roumanie et Nous travaillons à son amour, à son esprit, pour prendre du fruit d’elle Ma mère.
 

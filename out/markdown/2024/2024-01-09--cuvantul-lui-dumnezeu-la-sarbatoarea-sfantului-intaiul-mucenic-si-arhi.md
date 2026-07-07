@@ -40,15 +40,15 @@ O, iar și iar spun: dacă n-aș fi avut acest popor mititel în mijlocul neamul
 
 Se ajunge la capăt cu războiul asupra credinței sfinte și a creștinilor plăcuți lui Dumnezeu. Iată, vin Eu, vine Domnul, vine cu zecile de mii de sfinți, și nimeni nu bănuiește și nu cunoaște arma Sa.
 
-— O, Doamne, o, Doamne biruitor, Te mărturisesc dintre sfinți și-Ți mulțumesc cu lacrimi calde că ai avut milă mare în ziua mea de serbare între cei din cer și ai arătat adevărul cel atât de așteptat să vină din cer peste pământ, după ce vrăjmașii Tăi și ai creștinilor sfinți au tras perdeaua întunericului stăpânitorului satana peste popoarele de pe pământ și le-au acoperit aproape de tot.
+*— O, Doamne, o, Doamne biruitor, Te mărturisesc dintre sfinți și-Ți mulțumesc cu lacrimi calde că ai avut milă mare în ziua mea de serbare între cei din cer și ai arătat adevărul cel atât de așteptat să vină din cer peste pământ, după ce vrăjmașii Tăi și ai creștinilor sfinți au tras perdeaua întunericului stăpânitorului satana peste popoarele de pe pământ și le-au acoperit aproape de tot.*
 
-O, Doamne, satana și-a făcut țară mare și s-a întins cu ea și se dă cârmuitor până și peste casa și turma Ta. O, iată țara întunericului gros, de unde se împarte întunericul ei peste țări, căci lucrarea lui antichrist are nevoie de scaun mare și înalt ca să stăpânească peste țări, dar acum să se ridice sus popoarele credinței strămoșești și să se scuture de jugul lui satana, și vor fi ajutate de Dumnezeu, Care vine cu sfinții ca să răstoarne domnia lui antichrist și să ducă efa aceasta la locul ei, precum este scris, și s-o verse peste cei ce au turnat în ea până a dat peste margini din ea.
+*O, Doamne, satana și-a făcut țară mare și s-a întins cu ea și se dă cârmuitor până și peste casa și turma Ta. O, iată țara întunericului gros, de unde se împarte întunericul ei peste țări, căci lucrarea lui antichrist are nevoie de scaun mare și înalt ca să stăpânească peste țări, dar acum să se ridice sus popoarele credinței strămoșești și să se scuture de jugul lui satana, și vor fi ajutate de Dumnezeu, Care vine cu sfinții ca să răstoarne domnia lui antichrist și să ducă efa aceasta la locul ei, precum este scris, și s-o verse peste cei ce au turnat în ea până a dat peste margini din ea.*
 
-O, iar și iar slavă Ție pentru darul gurii Tale peste creștinătatea cea dreptcredincioasă pe pământ, numai să audă turma Ta creștină glasul Tău, o, Doamne!
+*O, iar și iar slavă Ție pentru darul gurii Tale peste creștinătatea cea dreptcredincioasă pe pământ, numai să audă turma Ta creștină glasul Tău, o, Doamne!*
 
-Cei ce sunteți după datina străveche creștini, ridicați-vă spre rugăciune cu post și cu veghe sfântă, căci Domnul îl culcă acum pe satana și îl trimite la locul pe care și l-a agonisit măcar în ultimile două mii de ani, de când tot taie calea celor ce Îl iubesc pe Hristos ca să-și facă el loc și să-I stea potrivnic Domnului.
+*Cei ce sunteți după datina străveche creștini, ridicați-vă spre rugăciune cu post și cu veghe sfântă, căci Domnul îl culcă acum pe satana și îl trimite la locul pe care și l-a agonisit măcar în ultimile două mii de ani, de când tot taie calea celor ce Îl iubesc pe Hristos ca să-și facă el loc și să-I stea potrivnic Domnului.*
 
-Toți cei din cer suntem cu Domnul în lupta cea pentru credință. O, fiți și voi cu noi! Toți cei care sunteți creștini pe pământ, fiți cu noi în luptă pentru Domnul ca să-l biruim pe satana, că biruința vine, căci vine Domnul, o, frați iubiți, frați de credință cu frații voștri cei din cer! Amin.
+*Toți cei din cer suntem cu Domnul în lupta cea pentru credință. O, fiți și voi cu noi! Toți cei care sunteți creștini pe pământ, fiți cu noi în luptă pentru Domnul ca să-l biruim pe satana, că biruința vine, căci vine Domnul, o, frați iubiți, frați de credință cu frații voștri cei din cer! Amin.*
 
 — Eu, Domnul, am cu Mine cerul și vin cu cei din cer, vin și tot vin, și vrăjmașul Mă aude și Mă vede și se înfricoșează dacă a venit împlinirea acestei Scripturi: venirea Mea cu sfinții, căci vin să-l biruiesc pe satana și să-i strivesc împărăția și să-Mi așez împărăția Mea, precum este scris.
 

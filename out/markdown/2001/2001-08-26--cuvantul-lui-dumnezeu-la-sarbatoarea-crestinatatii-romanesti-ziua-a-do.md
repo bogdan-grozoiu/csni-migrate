@@ -36,7 +36,7 @@ Să nu plângi după păcat, să nu plângi, omule, după vremea când îţi era
 
 Tatăl nunţii dă glas peste nuntaşi şi zice:
 
-– Fiul Meu este Unul. Aşa este şi poporul Lui de azi: unul. Slava Fiului Meu este cuvântul. Cuvântul este Fiul Meu Cel iubit, întru Care Eu, Tatăl, am binevoit. Amin.
+*– Fiul Meu este Unul. Aşa este şi poporul Lui de azi: unul. Slava Fiului Meu este cuvântul. Cuvântul este Fiul Meu Cel iubit, întru Care Eu, Tatăl, am binevoit. Amin.*
 
 – O, Tată al Meu, Mă bucur lângă mireasă în grădinile de la izvor. Izvorul Meu adapă pe nuntaşi, iar Eu, Mirele nunţii, sunt Fiul Tău şi Mă bucur de mireasă, şi Mă bucur de nuntaşi, Tată, şi Îmi lărgesc cortul nunţii, şi voi putea aceasta, că Tu eşti în Mine, Tată, şi poţi. Amin.
 

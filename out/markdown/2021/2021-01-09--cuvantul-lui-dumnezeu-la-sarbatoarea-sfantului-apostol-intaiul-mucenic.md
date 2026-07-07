@@ -46,17 +46,17 @@ Au fost mustrați cei de pe tronuri, au fost mustrați cei necredincioși de duh
 
 O, copil tinerel și tare cu credința, ți-am ieșit înainte, ți-am ieșit în cale spre cerul sfinților Mei și L-ai mărturisit pe Tatăl, Care Mă avea de-a dreapta Sa. Mare ți-a fost dorul de mărturisirea lui Hristos, iar urmașii Mei te-au numit întâiul rod, întâiul bobocel. Acum ești slujitor mare între slujitorii cei din cer. Duhul Meu Se odihnește peste tine între sfinți în ziua ta de sobor în mijlocul ucenicilor mărturisitori pentru Mine pe pământ în fața celor mari și necredincioși, necredincioși mari. Pace ție în cuvântul tău cel de azi!
 
-— Izvorul mărturisirii sfinților Tăi Tu ești, Doamne. De la Tine au cei ce mărturisesc că ești Hristosul Tatălui, și rușinați sunt toți mai-marii, toți îngâmfații, toți trufașii sunt doborâți prin curajul mărturisirii celor ce Te vestesc pe Tine Dumnezeul Cel Unul peste tot, Adevăratul nostru Dumnezeu.
+*— Izvorul mărturisirii sfinților Tăi Tu ești, Doamne. De la Tine au cei ce mărturisesc că ești Hristosul Tatălui, și rușinați sunt toți mai-marii, toți îngâmfații, toți trufașii sunt doborâți prin curajul mărturisirii celor ce Te vestesc pe Tine Dumnezeul Cel Unul peste tot, Adevăratul nostru Dumnezeu.*
 
-Mare mângâiere ne cuprinde când suntem întru venirea Ta la poporul Tău, care-Ți poartă peste pământ venirea Ta în cuvânt în vremea Ta cu ei, Doamne! Toți sfinții care-Ți însoțesc venirea și cuvântul venirii Tale la ei, toți ne aplecăm cu mare duioșie înaintea lor, a celor ce Te poartă din cer spre pământ, și peste pământ apoi, Doamne.
+*Mare mângâiere ne cuprinde când suntem întru venirea Ta la poporul Tău, care-Ți poartă peste pământ venirea Ta în cuvânt în vremea Ta cu ei, Doamne! Toți sfinții care-Ți însoțesc venirea și cuvântul venirii Tale la ei, toți ne aplecăm cu mare duioșie înaintea lor, a celor ce Te poartă din cer spre pământ, și peste pământ apoi, Doamne.*
 
-O, ce măreț, ce frumos lucrezi cu ei în vremea aceasta a Ta cu ei, ce frumos, Doamne! Privirea celor de sus ai Tăi e tot o mângâiere pentru ei, că noi vedem starea și lucrarea Ta toată cu ei și toată slava ei și a Ta.
+*O, ce măreț, ce frumos lucrezi cu ei în vremea aceasta a Ta cu ei, ce frumos, Doamne! Privirea celor de sus ai Tăi e tot o mângâiere pentru ei, că noi vedem starea și lucrarea Ta toată cu ei și toată slava ei și a Ta.*
 
-Vor curge lacrimi mari și multe și vor fi dureri asupra celor ce n-au putut cu mintea lor să-Ți cunoască glasul de Păstor, cu care tot vii și tot pregătești calea și ziua slavei celei mari, când vei fi văzut de toți, chiar și de cei ce Te-au străpuns atunci pe cruce, pe calea crucii cu cuvinte de hulă și de dispreț mult spre Tine, Dumnezeule Doamne.
+*Vor curge lacrimi mari și multe și vor fi dureri asupra celor ce n-au putut cu mintea lor să-Ți cunoască glasul de Păstor, cu care tot vii și tot pregătești calea și ziua slavei celei mari, când vei fi văzut de toți, chiar și de cei ce Te-au străpuns atunci pe cruce, pe calea crucii cu cuvinte de hulă și de dispreț mult spre Tine, Dumnezeule Doamne.*
 
-O, dă-le vreme de pocăință la toți cei necredincioși, dar dă-le darul umilinței, Doamne, căci fără umilință nu vine căința, nu vine, Doamne. O, dă-le celor ce nu au, dă-le și lor ca să aibă și ei din cer, căci din cer vin bogățiile, nu de pe pământ vin.
+*O, dă-le vreme de pocăință la toți cei necredincioși, dar dă-le darul umilinței, Doamne, căci fără umilință nu vine căința, nu vine, Doamne. O, dă-le celor ce nu au, dă-le și lor ca să aibă și ei din cer, căci din cer vin bogățiile, nu de pe pământ vin.*
 
-O, slavă Ție, slavă Ție, Doamne! Slavă Ție, Celui ce ne-ai arătat nouă lumina! Amin.
+*O, slavă Ție, slavă Ție, Doamne! Slavă Ție, Celui ce ne-ai arătat nouă lumina! Amin.*
 
 — Pace în cer și pe pământ, laolaltă pace peste voi, peste cei ce sunt ai Mei! Soarele răsare peste pământ și apune și iarăși răsare, dar cuvântul Meu nu mai are stat, căci stă de veghe peste pământ, stă luminând ca să fie lumină, tot timpul lumină, și ca să se depărteze întunericul de peste tot, iar cei de pe pământ să vadă deslușit calea și cuvântul Meu pe cale spre pământ, și toți vor avea cunoștință de Dumnezeu și se vor apropia să ia această hrană și se vor îndemna unii pe alții, spunând: Veniți spre Domnul, veniți spre Cuvântul lui Dumnezeu, veniți să învățăm de la Domnul și să aflăm calea și să mergem pe ea!
 

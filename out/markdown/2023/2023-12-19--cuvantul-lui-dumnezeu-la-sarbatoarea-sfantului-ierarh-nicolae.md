@@ -42,13 +42,13 @@ L-am zidit pe om ca prin el să stea legate în lucrare cele ale facerii lui Dum
 
 Iar [legatura_la_teme id_capitol="3" id_subcapitol="3"]în ziua aceasta ierarhul Nicolae se așează cuvânt în cartea Mea cu voi, fiilor, și povățuiește arhierește precum și Eu lucrez, Eu în el, și el în Mine, și aceasta este plata celor ce se sfințesc pentru Domnul pe pământ, iar Eu Mă slăvesc din mijlocul lor în vremea aceasta a venirii Mele, și spun aceasta ca să știe oamenii de pe pământ plata sfinților Mei, a celor ce iubesc pe Dumnezeu pe pământ.
 
-— Te-am iubit, Doamne, și am ales pentru viața mea să fiu iubirea Ta pe pământ și să o dau celor ce nu o au și nu o cunosc pe ea.
+*— Te-am iubit, Doamne, și am ales pentru viața mea să fiu iubirea Ta pe pământ și să o dau celor ce nu o au și nu o cunosc pe ea.*
 
-Am vegheat ca un păstor blând și am îmblânzit oameni cu inimă de fiară și i-am aplecat spre pocăință oprindu-i să facă răul asupra celor sărmani și neajutorați și nevinovați. Am scăpat de la viață cu păcat pe cei gata să cadă în acest noroi, păcatul, și i-am iubit mult pe oameni, căci simțământul milei așa m-a învățat.
+*Am vegheat ca un păstor blând și am îmblânzit oameni cu inimă de fiară și i-am aplecat spre pocăință oprindu-i să facă răul asupra celor sărmani și neajutorați și nevinovați. Am scăpat de la viață cu păcat pe cei gata să cadă în acest noroi, păcatul, și i-am iubit mult pe oameni, căci simțământul milei așa m-a învățat.*
 
-Cad oamenii, cad din Dumnezeu și-și pierd calea și se duc pe calea pierzării prin păcat. Te învață Domnul calea cea fără de păcat, omule, dar cine să-ți vorbească ție despre veșnicie și să te învețe să crezi și să poți cu Dumnezeu?
+*Cad oamenii, cad din Dumnezeu și-și pierd calea și se duc pe calea pierzării prin păcat. Te învață Domnul calea cea fără de păcat, omule, dar cine să-ți vorbească ție despre veșnicie și să te învețe să crezi și să poți cu Dumnezeu?*
 
-Trebuie minuni, Doamne, căci neputința minții omului este multă și trebuie iubire să așezi în oameni, că mintea omului trebuie să fie iubire cerească. Eu așa am lucrat. Iubirea m-a păstrat pentru Tine și pentru oameni, dar trebuie minuni dacă altfel nu vine omul spre calea vieții. Fă-i pe oameni să Te cunoască și să caute după Tine și să Te iubească, iar Tu să le dai iertarea păcatelor, și apoi lumina Ta să-i cuprindă în ea și să umble ei în lumină, o, Doamne! Amin.
+*Trebuie minuni, Doamne, căci neputința minții omului este multă și trebuie iubire să așezi în oameni, că mintea omului trebuie să fie iubire cerească. Eu așa am lucrat. Iubirea m-a păstrat pentru Tine și pentru oameni, dar trebuie minuni dacă altfel nu vine omul spre calea vieții. Fă-i pe oameni să Te cunoască și să caute după Tine și să Te iubească, iar Tu să le dai iertarea păcatelor, și apoi lumina Ta să-i cuprindă în ea și să umble ei în lumină, o, Doamne! Amin.*
 
 — Eu sunt lumina lumii, Eu și cei care stau în lumină ca să biruiască ei întunericul de pe pământ și din om și să fie mărturisit Dumnezeu peste tot pământul.
 

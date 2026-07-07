@@ -46,13 +46,13 @@ Voi, slujitori pentru turma creștină, fiți umiliți în fața turmei, căci v
 
 O, creștine, o, creștine, nu te mai distra într-un chip păcătos, ci bucură-te creștinește, ca să Se bucure și Domnul în mijlocul petrecerii frățești, nu numai diavolul să se bucure, căci diavolul strânge neîncetat păcatele oamenilor ca să le dea lor apoi plata cea rea, dar iată, lângă glasul Meu grăiește acum această luptătoare cu păcatul, după ce s-a lepădat ea de dulceața cea otrăvitoare, căci a biruit ea cu Mine pe satana, și iată acum povața ei:
 
-— O, Doamne, o, Doamne, gustul cel amar al păcatului, nu-i știe omul păcătos ca mine amărăciunea lui, decât după ce se vede alungat de dragostea Ta durută de la negrele lui păcate, și cu care nu poate sta lângă Dumnezeu cu viața sa.
+*— O, Doamne, o, Doamne, gustul cel amar al păcatului, nu-i știe omul păcătos ca mine amărăciunea lui, decât după ce se vede alungat de dragostea Ta durută de la negrele lui păcate, și cu care nu poate sta lângă Dumnezeu cu viața sa.*
 
-O, Doamne, nu e amar mai greu ca și alungarea păcătosului din fața milei Tale, o, că dureros a fost duhul omului alungat din rai, dar care n-a tras spre pocăință pentru durerea ce Ți-a adus-o cu păcatul lui, ci a tras spre păcat.
+*O, Doamne, nu e amar mai greu ca și alungarea păcătosului din fața milei Tale, o, că dureros a fost duhul omului alungat din rai, dar care n-a tras spre pocăință pentru durerea ce Ți-a adus-o cu păcatul lui, ci a tras spre păcat.*
 
-Eu, Doamne, m-am căit cu totul, m-am făgăduit Ție cu totul, o, că prea mult și prea greu am păcătuit, și numai o viață departe de păcat și de oameni mi-a putut păstra făgăduința pe care am făcut-o, și ca să nu mă alungi de la fața Ta pentru păcatele mele grele. O, și le spun la toți păcătoșii să se îndulcească cu bucuria vieții de creștin, și ca să nu dea de amarul cel lucrat prin păcat, și care îl alungă pe om de la fața Ta. Aceasta este scăparea de satana: nepăcătuirea este, o, Doamne.
+*Eu, Doamne, m-am căit cu totul, m-am făgăduit Ție cu totul, o, că prea mult și prea greu am păcătuit, și numai o viață departe de păcat și de oameni mi-a putut păstra făgăduința pe care am făcut-o, și ca să nu mă alungi de la fața Ta pentru păcatele mele grele. O, și le spun la toți păcătoșii să se îndulcească cu bucuria vieții de creștin, și ca să nu dea de amarul cel lucrat prin păcat, și care îl alungă pe om de la fața Ta. Aceasta este scăparea de satana: nepăcătuirea este, o, Doamne.*
 
-O, tot cuvântul Tău de peste pământ și de peste om așteaptă să se împlinească, Doamne, căci nepăcătuirea va veni, că așa este scris, dar fă-i pe toți cei de pe pământ cu un ceas mai devreme să facă aceasta, ca să le dai și lor plată bună, Doamne, o, și să ai de ce să le dai. [/legatura_la_teme]
+*O, tot cuvântul Tău de peste pământ și de peste om așteaptă să se împlinească, Doamne, căci nepăcătuirea va veni, că așa este scris, dar fă-i pe toți cei de pe pământ cu un ceas mai devreme să facă aceasta, ca să le dai și lor plată bună, Doamne, o, și să ai de ce să le dai.* [/legatura_la_teme]
 
 — Voi, sfinți iubiți, Mă înso�țiți întru venirea Mea, iar înaintea Mea merg rugăciunile voastre, și iubirea din ele lucrează și va lăsa iubire în oameni, iubire pentru Dumnezeu în ei.
 

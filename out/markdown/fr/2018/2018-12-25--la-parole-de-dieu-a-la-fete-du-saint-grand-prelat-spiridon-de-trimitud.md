@@ -23,7 +23,7 @@ Oh, tu as été Mon serviteur sur la terre, grand sur le troupeau de Mon église
 
 Et maintenant Je t’ai pris auprès de Moi, à la table de Ma parole d’aujourd’hui, comme témoin du ciel, et voilà, nous travaillons.
 
-— Oh, notre Seigneur Pasteur, qu’il est grand le miracle de Ta parole sur le foyer du peuple roumain, dans cette ville bénie et dans cette cité qui est la Tienne! Je me tiens près de Toi comme témoin, et je m’y tiens dans l’humilité de l’esprit puisque Tu es grand, Seigneur, et Ton pouvoir comprend le ciel et la terre, oh, Créateur du monde! Oh, gloire à Toi, gloire à Toi dans les cieux et sur la terre, notre Seigneur Pasteur, que Ton fruit se montre et qu’elle fasse des merveilles Ta droite. Amen.
+*— Oh, notre Seigneur Pasteur, qu’il est grand le miracle de Ta parole sur le foyer du peuple roumain, dans cette ville bénie et dans cette cité qui est la Tienne! Je me tiens près de Toi comme témoin, et je m’y tiens dans l’humilité de l’esprit puisque Tu es grand, Seigneur, et Ton pouvoir comprend le ciel et la terre, oh, Créateur du monde! Oh, gloire à Toi, gloire à Toi dans les cieux et sur la terre, notre Seigneur Pasteur, que Ton fruit se montre et qu’elle fasse des merveilles Ta droite. Amen.*
 
 [legatura_la_teme id_capitol="3" id_subcapitol="4"]
 
