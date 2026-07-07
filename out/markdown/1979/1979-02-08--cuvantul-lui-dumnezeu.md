@@ -10,7 +10,7 @@ audio_file:
 
 ... Măi copii, nu fiţi, tată, răi, că Eu am fost bun chiar şi cu Iuda, care M-a vândut, şi când Mă judecau, Eu l-am chemat. Am trimis pe un ucenic de al Meu să-l cheme să-l iert, căci am ştiut de pierzarea sa că avea să se sinucidă. Dar n-a voit să vină, şi s-a dus şi s-a spânzurat. N-a voit să vină, că i-a fost ruşine. Ruşinea lui nu a fost de la Dumnezeu, căci când M-a vândut, nu i-a fost ruşine, dar când l-am chemat Eu, i-a fost ruşine.
 
-[legatura_la_teme id_capitol="6" id_subcapitol="2"]... Domnul Iisus a ursit să nu muriţi, şi să-L întâmpinaţi pe Domnul când va veni cu tot cerul Său. [/legatura_la_teme]
+[legatura_la_teme id_capitol="6" id_subcapitol="2"]... Domnul Iisus a ursit să nu muriţi, şi să-L întâmpinaţi pe Domnul când va veni cu tot cerul Său.[/legatura_la_teme]
 
 ... Când s-a făcut lucrarea prin acest vas, multe minuni am lucrat, multe miresme v-am arătat.
 

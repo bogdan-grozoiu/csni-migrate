@@ -16,7 +16,7 @@ Israele, mai avem un petec de mers, şi în acest timp vom trece ca printr-un ca
 
 Israele tată, poporul Meu, mulţi ani am călătorit cu tine. Am vorbit de aproape şi Mi-ai spus: *„Da, Te ascult“,* dar nimic n-ai făcut; ai fost mincinos. Israele, nădăjduieşte în Mine, fii bine cu Mine. Israele, în faţa poporului din trecut, în multe feluri M-am schimbat în faţa lor, dar în faţa ta nu M-am schimbat niciodată. Israele tată, când M-ai auzit prima dată, erai mult mai credincios şi mai cuminte ca azi, şi am zis că tu de la Mine nu vei pleca, şi am spus şi ucenicilor Mei: *„Aceştia sunt mai credincioşi ca voi“,* şi ei au plâns mult de acest lucru. De ce astăzi nu mai sunteţi aşa? De ce atunci eraţi mulţi, şi astăzi nu mai sunteţi decât ca iarba printre mărăcini, ici colea, câte un fir? Israele tată, în toate felurile am lucrat cu voi ca să cunoaşteţi pe Dumnezeu.
 
-[legatura_la_teme id_capitol="2" id_subcapitol="3"]... De aceea zic, creştine, nu mai face păcat, că nu mai ai unde să te mai speli, că Trupul şi Sângele din potir, se ia şi se întoarce înapoi la aleşii Săi. Bisericuţa, nu pentru lume se dărâmă, ci pentru tine, copilul Meu, ca să nu te mai duci tu. [/legatura_la_teme]
+[legatura_la_teme id_capitol="2" id_subcapitol="3"]... De aceea zic, creştine, nu mai face păcat, că nu mai ai unde să te mai speli, că Trupul şi Sângele din potir, se ia şi se întoarce înapoi la aleşii Săi. Bisericuţa, nu pentru lume se dărâmă, ci pentru tine, copilul Meu, ca să nu te mai duci tu.[/legatura_la_teme]
 
 ... Cu greu am coborât prin vasul Meu. Este zdrobit, nu de la sine, ci de la creştinii care fug de Mine.
 

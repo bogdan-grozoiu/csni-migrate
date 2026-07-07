@@ -18,9 +18,7 @@ O, fiilor, lucrul Meu este să-l scol pe om din păcat şi să fac pace între e
 
 *«Fericiţi făcătorii de pace!»*, aşa este scris. Pe aceia, măcar şi pentru aceasta îi voi numi fiii lui Dumnezeu, căci Eu am spus la cei zdrobiţi: *«Pace vouă!».* Numai cu păcatul nu trebuie omul să facă pace, iar dacă a făcut păcat, el trebuie să se roage Domnului şi să spună cu zdrobire de inimă, şi cu multă umilinţă să se roage şi să spună: *„Pe cei ce au făcut păcate din pricina mea şi au suferit de la ele, iartă-i, Doamne, aici, şi întru împărăţia Ta iartă-i, că eu mă căiesc şi-mi pare rău pentru mine şi pentru cel ce a păcătuit înaintea Ta prin păcatul meu cel asupra mea şi a lui, dar Tu vindecă şi iartă“.* Amin.
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Mai întâi grăiesc ţie, poporul Meu, despre durerea de peste pământul şi neamul român, că Eu, Domnul, am lucrarea cuvântului Meu în mijlocul lui şi dau să-Mi ocrotesc acest pământ. Omul însă cheamă mânia, îşi face rost de vină grea, iar vina atrage pedeapsa, că iată, în biserici şi pe cale e totul roşu, e pecetea lui antichrist, cel ce batjocoreşte cu lucrarea sa cerul şi pământul şi omul, căci roşul este semnul lui, roşu peste tot, precum este scris despre cel ce s-a născut roşu peste tot, despre Edom, cel ce lucrează împotriva credinţei, împotriva lui Dumnezeu.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Mai întâi grăiesc ţie, poporul Meu, despre durerea de peste pământul şi neamul român, că Eu, Domnul, am lucrarea cuvântului Meu în mijlocul lui şi dau să-Mi ocrotesc acest pământ. Omul însă cheamă mânia, îşi face rost de vină grea, iar vina atrage pedeapsa, că iată, în biserici şi pe cale e totul roşu, e pecetea lui antichrist, cel ce batjocoreşte cu lucrarea sa cerul şi pământul şi omul, căci roşul este semnul lui, roşu peste tot, precum este scris despre cel ce s-a născut roşu peste tot, despre Edom, cel ce lucrează împotriva credinţei, împotriva lui Dumnezeu.
 
 Iar Eu, Domnul, dau de ştire neamului român să-şi cureţe şi să nu-şi îmbrace bisericile şi locuinţele cu roşu, că atrage aceasta mânia Mea asupra semnului lui antichrist, omul fărădelegii, şi asupra ascultătorilor lui, care cer mânie pe pământ prin neascultarea de Dumnezeu. Iată-i pe cei trufaşi în neamul român, au umplut ţara de culoarea cea blestemată, de roşu, iar aceştia sunt vrăjmaşi, nu sunt fii, şi sunt cei ce vor să stingă pacea, căci mintea lor este numai la ei înşişi, numai să-şi strângă slavă, şi apoi bogăţie pentru ei. O, nu sunt aceştia binefăcătorii neamului român, ci sunt ei cei ce dau să urgisească această ţară.
 
@@ -40,9 +38,7 @@ Voi, cei credincioşi Domnului în neamul român, sculaţi-vă, treziţi-vă şi
 
 O, neam român, nu te juca cu soarta ta cea de azi şi cea de mâine şi cea de apoi, după ce Domnul va împărăţi peste tot! O, nu te juca, popor român! Eu, Domnul, te îndemn aceasta. Aruncă semnul cel cu roşu de pe vatra ta, ca să nu mai tragă la tine prăpădul, iar dacă nu poţi să crezi ce-ţi spun, fă ascultare de cuvântul cu care te povăţuiesc acum şi vei vedea adevărul cuvântului Meu, vei vedea pe vrăjmaşii dinăuntru şi din afară căzând cu zgomot ca să nu-ţi facă rău, ca să nu te tragă la pierzare când tu nu veghezi. Iar dacă nu vei asculta, Eu, Domnul, voi lucra cu pasul Meu şi cu oştirile cereşti de sfinţi ai acestui neam şi voi curăţi de minciună şi de omul fărădelegii vatra neamului român, pe care voiesc să pregătesc vreme de serbare cerească, de minune nemaiauzită până acum, şi vine aceasta pe vatra neamului român, căci Tatăl aici M-a trimis să vin, şi aici am aşezat izvorul cuvântului Meu, care curge acum, la sfârşit, peste pământ pentru înviere şi pentru viaţă, izvorul vieţii peste oameni.
 
-Iar neamurilor toate de pe pământ, Eu, Domnul, le spun: Pace vouă! Şi voi lucra peste ele după cuvântul Meu. Amin.
-
-[/legatura_la_teme]
+Iar neamurilor toate de pe pământ, Eu, Domnul, le spun: Pace vouă! Şi voi lucra peste ele după cuvântul Meu. Amin.[/legatura_la_teme]
 
 *— O, fă-mi intrarea în carte, Doamne. Sunt sosită dis-de-dimineaţă cu sfinţii la fântâna cea de sub ocrotirea mea şi dau să las dulce cuvânt la izvor, ca să fie el împărţit spre hrană şi spre creştere de sus peste poporul cuvântului Tău.*
 

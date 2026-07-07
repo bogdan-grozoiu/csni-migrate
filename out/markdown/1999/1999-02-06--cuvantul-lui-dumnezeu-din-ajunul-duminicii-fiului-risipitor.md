@@ -28,4 +28,4 @@ Omule, păcatul îţi spune ţie *„tată”* şi Eu văd şi aud din cer şi d
 
 O, greu îmi deschide omul! Omul nu Mă mai cunoaşte, că mulţi dumnezei au ieşit din om şi s-au aşezat peste el, dar Eu, ca un Creator şi ca un învăţător ce sunt, umblu cuvânt, umblu strigând de la o margine la alta, că vreau să-l fac pe om să se uite la Mine, şi apoi să întindă mâinile spre Mine şi să Mă ştie de Dumnezeu.
 
-M-am făcut Om din cer între oameni ca să-i fiu omului aproape şi să-i amintesc să-L iubească pe Dumnezeu din toată fiinţa, şi pe aproapele său ca pe el însuşi, căci am venit să-i fiu omului aproape şi să-l scol spre iubire şi să-l întorc în ţara iubirii şi să-l nasc pentru ea, pentru ţara lui cea din început. Amin, amin, amin. [/legatura_la_teme]
+M-am făcut Om din cer între oameni ca să-i fiu omului aproape şi să-i amintesc să-L iubească pe Dumnezeu din toată fiinţa, şi pe aproapele său ca pe el însuşi, căci am venit să-i fiu omului aproape şi să-l scol spre iubire şi să-l întorc în ţara iubirii şi să-l nasc pentru ea, pentru ţara lui cea din început. Amin, amin, amin.[/legatura_la_teme]

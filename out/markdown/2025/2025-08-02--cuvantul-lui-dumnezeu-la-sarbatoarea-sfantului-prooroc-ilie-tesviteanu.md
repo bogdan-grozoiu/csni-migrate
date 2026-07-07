@@ -34,7 +34,7 @@ O, stă cu nerăbdare proorocul Ilie lângă Mine, lângă gura Mea grăitoare c
 
 — Sun și tot sun, sună Domnul peste pământ și cheamă la El oamenii de peste tot.
 
-Veniți la apă! Am apă vie, veniți! Vă spăl cu ea tina de la păcatele voastre și vă dau cămășuțe albe de in ca și a sfinților Mei ca să vă găsesc ca pe ei, îmbrăcați, și nu goi. Amin. [/legatura_la_teme]
+Veniți la apă! Am apă vie, veniți! Vă spăl cu ea tina de la păcatele voastre și vă dau cămășuțe albe de in ca și a sfinților Mei ca să vă găsesc ca pe ei, îmbrăcați, și nu goi. Amin.[/legatura_la_teme]
 
 E zi de sărbătoare și-Mi las peste pământ cuvântul gurii Mele și Mă port cu el peste munți și peste ape, peste câmpii, peste oameni. Cu cuvântul vin, și cu el păstoresc, cu acest toiag de fier păstoresc.
 

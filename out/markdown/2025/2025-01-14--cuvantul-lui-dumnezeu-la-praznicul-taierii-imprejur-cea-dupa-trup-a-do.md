@@ -8,9 +8,7 @@ audio: https://noul-ierusalim.ro/audio/1733.mp3
 audio_file: 25.01.14.mp3
 ---
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Eu sunt Cel ce sunt, și-Mi am locașul și tronul în slava cea nevăzută. Sunt Cel ce am făcut cerul și pământul și omul. Calea Mea între cer și pământ este tainică, iar glasul Îmi face calea auzită, așa cum în rai omul cel zidit de mâna Mea Mă auzea, Îmi auzea umbletul și glasul, iar Eu Îmi tăinuiam Ființa, căci nu poate omul să vadă pe Dumnezeu și să rămână viu.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Eu sunt Cel ce sunt, și-Mi am locașul și tronul în slava cea nevăzută. Sunt Cel ce am făcut cerul și pământul și omul. Calea Mea între cer și pământ este tainică, iar glasul Îmi face calea auzită, așa cum în rai omul cel zidit de mâna Mea Mă auzea, Îmi auzea umbletul și glasul, iar Eu Îmi tăinuiam Ființa, căci nu poate omul să vadă pe Dumnezeu și să rămână viu.
 
 A venit vremea să-Mi las cuvântul peste pământ și peste om ca la început, și-Mi am sălaș de venire și carte în care-Mi este scris cuvântul, și te am țara Mea de venire acum, la sfârșit de timp, o, și-Mi este dulce în tine, și este dulce numele tău, țară română, și e plin cerul de numele tău, din pricina venirii Mele cuvânt pe pământ pe vatra ta.
 
@@ -58,9 +56,7 @@ Am grăit ție, neam român, ție și celor ce stau la cârmă pentru tine, dar 
 
 Pace din cer peste voi, popoarelor și mai-marilor de peste voi! Fericiți făcătorii de pace! Pace peste tot, că sunt multe lacrimi și multă pierdere de pace și de liniște!
 
-Suflarea Duhului Sfânt să așeze pace peste pământ și peste popoare! Tot timpul voi lăsa pace peste țara Mea de azi, dar și peste popoare, tot timpul voi rosti și voi aștepta să fie pace! Amin.
-
-[/legatura_la_teme]
+Suflarea Duhului Sfânt să așeze pace peste pământ și peste popoare! Tot timpul voi lăsa pace peste țara Mea de azi, dar și peste popoare, tot timpul voi rosti și voi aștepta să fie pace! Amin.[/legatura_la_teme]
 
 Voi, cei din cetatea cuvântului Meu, Mi-ați primit cuvântul, și îndreptați-l spre acolo unde el grăiește ca să lucreze apoi. Pace vouă la lucrul Meu cu voi! Fiți treji, fiți ochi și urechi pentru venirea Mea cuvânt peste pământ, căci v-am lucrat vouă urechi cu care să auziți de la Dumnezeu și să împărțiți acest mare dar, cuvântul lui Dumnezeu peste pământ, o, fiilor.
 

@@ -18,7 +18,7 @@ O, copii, ce să-i fac Eu spirtului? Eu duhovniceşte vorbesc. Ce să-i fac spir
 
 ... Vine focul şi mistuie totul şi se va face pământ nou, şi să nu te temi că te voi arde şi pe tine, dar să nu bei spirt. Crezi? Chiar dacă ai postit o lună, şi o dată ai băut spirt, vei fi mistuit de foc.
 
-[legatura_la_teme id_capitol="2" id_subcapitol="4"]... Tată, tată, curăţiţi-vă, spălaţi-vă, că nimic păcătos nu va intra în împărăţia Mea. Preoţii stau degeaba, nu au ce curăţi şi nu au ce hrăni. De ce-i lăsaţi să stea degeaba? O, tată, unde-or fi creştinii de altădată, care dădeau cu năvala? Unde-o fi Ioan de la Vladimireşti, care mărturisea mii şi mii într-o clipă? Unde-o mai fi acesta? Păi ce zici tu, n-o mai ieşi el odată la libertate? O ieşi când vor pieri fabricile de spirt şi când n-o mai fi acea cetate îmbuibată *(cetatea Babilonului, n.r.).* [/legatura_la_teme]
+[legatura_la_teme id_capitol="2" id_subcapitol="4"]... Tată, tată, curăţiţi-vă, spălaţi-vă, că nimic păcătos nu va intra în împărăţia Mea. Preoţii stau degeaba, nu au ce curăţi şi nu au ce hrăni. De ce-i lăsaţi să stea degeaba? O, tată, unde-or fi creştinii de altădată, care dădeau cu năvala? Unde-o fi Ioan de la Vladimireşti, care mărturisea mii şi mii într-o clipă? Unde-o mai fi acesta? Păi ce zici tu, n-o mai ieşi el odată la libertate? O ieşi când vor pieri fabricile de spirt şi când n-o mai fi acea cetate îmbuibată *(cetatea Babilonului, n.r.).*[/legatura_la_teme]
 
 ... Cum cântă cineva din muzica sa, aşa şi Eu cânt prin vasul Meu. Nu numai una i s-a dat să sufere, şi n-a rămas oscior să nu fie curăţit şi călit prin focul dumnezeiesc, ca să poată să ţină Duhul lui Dumnezeu, ca să nu se mândrească. Lucrează Dumnezeu ca să nu ştie ea.
 

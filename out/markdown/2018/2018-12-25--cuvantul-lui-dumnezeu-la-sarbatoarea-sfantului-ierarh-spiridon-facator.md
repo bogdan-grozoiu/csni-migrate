@@ -26,9 +26,7 @@ Te-am luat lângă Mine acum, la masa cuvântului Meu de azi martor din cer, și
 
 *— O, Doamne Păstor, mare este minunea cuvântului Tău pe vatra neamului român, în acest orășel binecuvântat, și în această cetate a Ta! Stau lângă Tine martor, și stau cu duhul sfios, că Tu ești mare, Doamne, iar puterea Ta e cât cerul și pământul, o, Făcătorule al lumii! O, slavă Ție, slavă Ție în cer și pe pământ, Doamne Păstor, iar rodul Tău să se arate, și să facă minuni dreapta Ta. Amin.*
 
-[legatura_la_teme id_capitol="3" id_subcapitol="4"]
-
-— Eu, Domnul Iisus Hristos, Mă fac cuvânt peste pământ din mijlocul sfinților Mei, cu care Mă port pe nori între cer și pământ întru venirea Mea. Vin să netezesc ogorul în urma furtunii care s-a ridicat dinspre locul numit Biserica Ortodoxă Română. O, iată, din locul de unde trebuie să se rostească pace peste pământ și peste oameni, s-a ridicat furtună peste turmă, iar Eu, Domnul, sunt Păstorul Cel cu mila în brațe și vin să păstoresc acolo unde s-a îndreptat lovitura ca să facă rană.
+[legatura_la_teme id_capitol="3" id_subcapitol="4"]— Eu, Domnul Iisus Hristos, Mă fac cuvânt peste pământ din mijlocul sfinților Mei, cu care Mă port pe nori între cer și pământ întru venirea Mea. Vin să netezesc ogorul în urma furtunii care s-a ridicat dinspre locul numit Biserica Ortodoxă Română. O, iată, din locul de unde trebuie să se rostească pace peste pământ și peste oameni, s-a ridicat furtună peste turmă, iar Eu, Domnul, sunt Păstorul Cel cu mila în brațe și vin să păstoresc acolo unde s-a îndreptat lovitura ca să facă rană.
 
 Amin, amin zic vouă, ierarhi și preoți ai cetății dâmbovițene pe vatra neamului român, am mai avut un arhiereu la cârma acestei cetăți și Mi-a lovit și el cetatea și pe cei din ea, cu gând să împrăștie necredință și să spulbere adevărul care curge peste cetatea Mea de mai bine de șaizeci de ani, și nu de acum de când merg înainte cu cei din urmă ai slavei cuvântului Meu din zilele acestea, iar arhiereul acela a lovit în el însuși dacă a lovit, și a sfârșit el lupta sfârșindu-se și el, dar Eu, Domnul, l-am miluit, căci prin pizma pe care el o năștea între oameni asupra locului Meu ales, el L-a vestit pe Dumnezeu Cuvântul, Trâmbița Care sună peste pământ, și Care a așteptat până ce Și-a făcut loc să iasă spre oameni.
 
@@ -92,6 +90,6 @@ O, îmbrăcați-vă în smerenie înaintea Mea și înaintea oamenilor, așa cum
 
 Iar voi, cei ce tainic vă hrăniți din izvorul Meu de cuvânt între cei ce sunt preoți și slujitori de altare în România Mea, o, fiți tainici, și luptați cu sfințenie, căci numai ea vă ține pe voi înaintea Mea între slujitorii bisericii, între cei ce se dau necredincioși pentru cuvântul Meu, cu care păstoresc acum. Și-Mi pun numele peste carte cu trimitere către cei cu care am grăit.
 
-Eu sunt Cel ce sunt, sunt Iisus Hristos, Păstorul celor credincioși, și am grăit slujitorilor bisericii de pe plaiul dâmbovițean, dâmbul viței, fiilor, iar cu voi este vița din dâmb, Eu, Domnul, pe vârf de munte sfânt, și se întregește împlinirea și deslușirea acestui cuvânt, plaiul dâmbovițean. [/legatura_la_teme]
+Eu sunt Cel ce sunt, sunt Iisus Hristos, Păstorul celor credincioși, și am grăit slujitorilor bisericii de pe plaiul dâmbovițean, dâmbul viței, fiilor, iar cu voi este vița din dâmb, Eu, Domnul, pe vârf de munte sfânt, și se întregește împlinirea și deslușirea acestui cuvânt, plaiul dâmbovițean.[/legatura_la_teme]
 
 Vă întăresc trupul și sufletul și duhul, fiilor, că ați stat cu greu sub povara Mea de peste voi. O, cereți Mie, cereți, fiilor, și Eu vă dau vouă când am mult de stat peste voi cu lucrul Meu. Eu sunt Păstorul, și am mereu de lucrat și de păstorit, o, fiilor. Amin, amin, amin.

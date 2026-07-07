@@ -20,7 +20,7 @@ Fiilor, fiilor, bine ați venit! V-ați adunat lângă Mine și pentru Mine, iar
 
 [legatura_la_teme id_capitol="6" id_subcapitol="3"]O, câtă deșertăciune se scurge de pe buzele tuturor pe pământ! Chiar și creștinii sunt vinovați de deșertăciunea grăirii, o, și câtă grăire ar fi să fie pe pământ cu oamenii și între oameni despre Scripturile care s-au scris de la Duhul Sfânt ca să se împlinească ele pe pământ!
 
-O, fiilor, nici cei mai destoinici învățați în cele ale înțelepciunii gândirii și grăirii și ale tainelor de sus pe pământ cu oamenii, o, nici unul nu știe ce este și ce înseamnă Dumnezeu, căci dacă ar ști s-ar afla, și n-ar mai grăi limba omenească atâta grăire în deșert, atât cuvânt gol și fără de preț. Cei ce știu pe pământ ce este și ce înseamnă Dumnezeu, aceia au taina lor, taina dintre Mine și ei și sunt destoinici pentru taine și pentru știința lor, și taină mare pe pământ este omul în care sălășluiește Domnul după firea Lui cu omul cel milos cu Domnul, cu Cel ce l-a zidit pe om. [/legatura_la_teme]
+O, fiilor, nici cei mai destoinici învățați în cele ale înțelepciunii gândirii și grăirii și ale tainelor de sus pe pământ cu oamenii, o, nici unul nu știe ce este și ce înseamnă Dumnezeu, căci dacă ar ști s-ar afla, și n-ar mai grăi limba omenească atâta grăire în deșert, atât cuvânt gol și fără de preț. Cei ce știu pe pământ ce este și ce înseamnă Dumnezeu, aceia au taina lor, taina dintre Mine și ei și sunt destoinici pentru taine și pentru știința lor, și taină mare pe pământ este omul în care sălășluiește Domnul după firea Lui cu omul cel milos cu Domnul, cu Cel ce l-a zidit pe om.[/legatura_la_teme]
 
 O, cine a știut atunci taina mamei Mele Fecioara, care M-a purtat în pântecele ei ca să Mă fac om? Cine atunci a putut citi inimioara ei durută când ea își tot ascundea rana inimii? O, cine a putut citi îndeajuns taina venirii Mele pe pământ, Dumnezeu venit din Tatăl ca să vin pe lume prin naștere din trupul fecioresc al mamei Mele dulce Mie?
 
@@ -36,7 +36,7 @@ Iată, fiilor, suspină pământul până și sub răceala de suflet a creștinu
 
 De aceea vă povățuiesc să aveți însoțire cu voi cartea de rugăciuni, crucea, și toate cele care țin de sufletul vostru, ca să nu căutați ce nu este al vostru, ci să aveți voi uneltele voastre, pe care nu trebuie să le împrumutați, sau să vă fie împrumutate, și așa vă veți cunoaște că știți ce este și ce înseamnă Dumnezeu și semnele că voi sunteți copiii Lui și că știți să lucrați acestea.
 
-O, fiilor, așa învăța mama Mea Fecioara, așa iubea și așa împlinea ea pe Domnul în ea și cu ea. O, să nu găsiți să spuneți că sunt și alții care au făcut și altfel, căci Eu vă învăț pe voi de la Mine, față de alții care făceau cum găseau ei de cuviință pentru viața lor cu Dumnezeu, căci ascultarea de Dumnezeu e mare, e mai mare, fiilor. [/legatura_la_teme]
+O, fiilor, așa învăța mama Mea Fecioara, așa iubea și așa împlinea ea pe Domnul în ea și cu ea. O, să nu găsiți să spuneți că sunt și alții care au făcut și altfel, căci Eu vă învăț pe voi de la Mine, față de alții care făceau cum găseau ei de cuviință pentru viața lor cu Dumnezeu, căci ascultarea de Dumnezeu e mare, e mai mare, fiilor.[/legatura_la_teme]
 
 Iată, v-am prins grămăjoară și v-am dat povețe sfinte. Nu vă încurcați, nu vă împotmoliți acum în ele. Nu să vă tulbur v-am grăit despre taine, ci ca să vă deprind să-L iubiți pe Domnul după cum Îi este Lui drag să fiți voi, că mama Mea Fecioara a ascultat, fiilor, și cu dor iubea și slujea ceea ce Eu îi aduceam să facă.
 

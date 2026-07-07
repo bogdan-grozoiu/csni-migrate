@@ -45,7 +45,7 @@ Oh, qu’allons-Nous faire, Mon Baptiseur? Comment amener à la crainte de Dieu 
 
 Moi, le Seigneur, J’ai parlé en ce jour au milieu de toi avec Jean Mon Baptiseur, oh, Mon peuple. Prends, Mon fils, cette parole et partage-la à tous qui se nourrissent du ciel avec toute la parole qui sort de Ma bouche au milieu de toi pour nourrir leurs âmes et purifier leurs corps. [legatura_la_teme id_capitol="6" id_subcapitol="3"]Oh, Mon peuple, l’homme a besoin de beaucoup de réprimande, Mon fils, de beaucoup d’enseignement, de beaucoup d’observations, car il est toujours en faute, mais cette bienfaisance ne lui plaît pas et ne fait pas de bien à son cœur, et malheur à ceux sans réprimande toujours envers eux, et qui ne cherchent pas quelqu’un pour les purifier de leur faute et la punir! Oh, ne fuis pas la réprimande, le fils, car c’est plus facile ainsi, c’est mieux comme ça pour toi, que lorsqu’elle viendra la grande douleur sur beaucoup d’hommes.
 
-Paix à toi, Mon peuple, il faut que tu aimes la justice car elle est la Mienne la justice, puisque l’homme ne l’a pas ni au moment où il a l’impression d’avoir raison contre un autre homme fautif! [/legatura_la_teme]
+Paix à toi, Mon peuple, il faut que tu aimes la justice car elle est la Mienne la justice, puisque l’homme ne l’a pas ni au moment où il a l’impression d’avoir raison contre un autre homme fautif![/legatura_la_teme]
 
 Paix à toi, Jérusalem, occupe-toi de la gloire de ce nom et de son œuvre, car il est grand le nom que Je t’ai donné à porter.
 

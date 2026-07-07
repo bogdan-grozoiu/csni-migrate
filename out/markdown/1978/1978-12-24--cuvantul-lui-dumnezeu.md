@@ -24,7 +24,7 @@ Ascultă, creştine, că e vai de tine dacă te vei bucura de soarta ta pe care 
 
 ... Mulţi creştini au lăsat arma creştină şi au luat arma păgână şi aşteaptă doar ordinul de folosinţă.
 
-[legatura_la_teme id_capitol="4" id_subcapitol="2"]... Această ţară românească se evaporă. De ce? Pentru că această ţară e o ţară sfântă, e un popor creştin, dar la numărătoare a fost una, şi acum e alta. [/legatura_la_teme]
+[legatura_la_teme id_capitol="4" id_subcapitol="2"]... Această ţară românească se evaporă. De ce? Pentru că această ţară e o ţară sfântă, e un popor creştin, dar la numărătoare a fost una, şi acum e alta.[/legatura_la_teme]
 
 ... Nu te văita dacă împăratul acesta de azi se va schimba. Nu te văita dacă se va dărâma căsuţa ta. Nu te văita dacă hăinuţa ta va arde. E scris, şi nu va trece până nu se va împlini. E scris că unul va sta în picioare şi nu va muri, şi altul va intra în mormânt. Nimeni nu va putea da zile celui ce intră în mormânt şi nimeni nu va putea lua zilele celui ce va sta în picioare până la venirea Mea.
 

@@ -30,9 +30,7 @@ O, ţara Mea de azi, o, neam român, Mă slăvesc prin cuvânt în mijlocul tău
 
 Fiilor, fiilor, fie-vă milă de Domnul şi purtaţi-L în inimă şi încălziţi-L în voi, ca să-I fie bine Domnului în voi. O, câtă durere am pentru fiecare om şi câtă milă şi duioşie pentru fiecare! Ca pe nişte flori de primăvară vă dăruiesc cuvintele Mele vouă. O, tot aşa să vi le dăruiţi şi voi unii altora dacă această bogăţie vine astăzi pe pământ.
 
-Eu, Domnul, voiesc să-l ajut pe om să facă voia Mea şi să nu mai calce peste ea, dar trebuie s-o cunoască şi să caute s-o cunoască. O, vino tu, neam român, vino în ajutorul Meu şi al tău! Căutaţi să-L cunoaşteţi pe Domnul în acest cuvânt, fii români, şi daţi-vă unii altora îndemnul spre înviere din păcat şi putere sfântă pentru aceasta. Eu aşa vă povăţuiesc în zi de praznic de Florii şi vă rog cu rugăminte sfântă, împliniţi în voi cuvântul Meu, fiilor. Şi acum, pace vouă! Eu, Domnul, vă spun: pace vouă!
-
-[/legatura_la_teme]
+Eu, Domnul, voiesc să-l ajut pe om să facă voia Mea şi să nu mai calce peste ea, dar trebuie s-o cunoască şi să caute s-o cunoască. O, vino tu, neam român, vino în ajutorul Meu şi al tău! Căutaţi să-L cunoaşteţi pe Domnul în acest cuvânt, fii români, şi daţi-vă unii altora îndemnul spre înviere din păcat şi putere sfântă pentru aceasta. Eu aşa vă povăţuiesc în zi de praznic de Florii şi vă rog cu rugăminte sfântă, împliniţi în voi cuvântul Meu, fiilor. Şi acum, pace vouă! Eu, Domnul, vă spun: pace vouă![/legatura_la_teme]
 
 O, şi ţie, popor al cuvântului Meu, pace ţie! Voiesc să grăiesc cu voi, fiilor, şi să vă învăţ mereu ascultarea. Voiesc să-Mi întăresc coborârea şi să vă întăresc pentru ea. Amin.
 

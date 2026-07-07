@@ -18,13 +18,13 @@ O, dar iată, iată câtă puțină statornicie cu Domnul au cei ce Mă află ș
 
 Iată ce multă putere are credința pentru cel ce o are pe ea cu statornicie în duhul și lucrarea lui! Iar în ziua aceasta de veghe sfântă voiesc să-Mi îndemn poporul spre Mine și să-i spun să aibă grijă mare de tot, mare ca să nu piardă pacea dintre Mine și el, că iată, ea vine de la înțelepciunea inimii și a faptelor credinței, nu din altceva vine nedespărțirea de Dumnezeu în vremi de bine sau în vremi de greu.
 
-[legatura_la_teme id_capitol="6" id_subcapitol="3"]O, fiule care vii să crezi și să Mă crezi, o, ai grijă de pacea dintre tine și Mine, că dacă nu ai înțelepciunea inimii ca să știi cum poți să ai și să stăruiești și să păstrezi cu bogăție pacea dintre tine și Mine, înseamnă că nu ai lucrătoare această înțelepciune, și trebuie să te apleci ca să fii ajutat de cei ce au înțelepciunea aceasta și să iei pentru tine de la ei, dar trebuie aplecare să ai. [/legatura_la_teme]
+[legatura_la_teme id_capitol="6" id_subcapitol="3"]O, fiule care vii să crezi și să Mă crezi, o, ai grijă de pacea dintre tine și Mine, că dacă nu ai înțelepciunea inimii ca să știi cum poți să ai și să stăruiești și să păstrezi cu bogăție pacea dintre tine și Mine, înseamnă că nu ai lucrătoare această înțelepciune, și trebuie să te apleci ca să fii ajutat de cei ce au înțelepciunea aceasta și să iei pentru tine de la ei, dar trebuie aplecare să ai.[/legatura_la_teme]
 
 O, pace vouă de la Mine vă dau, fiilor, că dacă luați de la voi sau unul de la altul, ajungeți la despărțire și la nejertfirea cea pentru credință, fiilor! O, cum să fac să vă învăț Eu pe voi dacă ați venit ca să fiți cu Mine și cu ai Mei și să fiți ai Mei până la sfârșit?
 
 [legatura_la_teme id_capitol="6" id_subcapitol="3"]O, fiilor, fiilor, Eu trebuie să am loc și stat în voi, căci voi nu știți singuri calea și lucrarea credinței în vremi de soare sau în vreme grea. Nu știți, fiilor, nu știți că pe calea Mea e soare, ca să nu faceți din voi nori și ceață peste vremea cea însorită. O, nu știți că pe calea voastră cu Mine sunt nori, sunt încercări, din care creștinii Mei trebuie să iasă biruitori de fiecare dată, ca să am ce să vă plătesc pentru vremea lucrului cel pentru viață cu Mine, fiilor.
 
-O, pace vouă, și întrebați-vă cu pace în voi, o, întrebați-vă pe voi înșivă dacă am ce să vă plătesc, dacă aduceți voi înaintea Mea lucru și fapte pentru plată bună, căci Eu am hotărât și am zis: *«Fiecare va fi judecat după faptele lui, faptele îl vor judeca, ele sunt cele ce judecă pe om»*! [/legatura_la_teme]
+O, pace vouă, și întrebați-vă cu pace în voi, o, întrebați-vă pe voi înșivă dacă am ce să vă plătesc, dacă aduceți voi înaintea Mea lucru și fapte pentru plată bună, căci Eu am hotărât și am zis: *«Fiecare va fi judecat după faptele lui, faptele îl vor judeca, ele sunt cele ce judecă pe om»*![/legatura_la_teme]
 
 O, pace vouă, fiilor, că vin sărbători cu mare prăznuire și pregătiți-vă pentru ele cu înțelepciune, cu iubire între frați, cu pace între Mine și voi!
 
@@ -32,7 +32,7 @@ Pace vouă, pace între voi, oricât tribut ar fi să plătiți pentru ea, pentr
 
 Nu se poate pace fără război pentru ea, fără lupta pentru pace. Mucenița Ecaterina a stârnit război cumplit pentru ca să așeze pacea Mea în cei păgâni cu inima și cu viața, și care nu aveau pacea, de vreme ce nu dădeau de la ei cele ce nu seamănă cu pacea cea împotriva păcatului prin slujirea la idoli, și care nu înțelegeau nimic cu toată înțelepciunea minții lor.
 
-O, fiilor, o, fiilor, pace vouă! Și nu vă credeți înțelepți pentru voi și pentru cei neînțelegători cu voi, dacă nu aveți pacea Mea și liniștea Mea și dragostea Mea în voi. Dragostea are legile ei, pe care trebuie să le știți pe dinafară așa cum v-am rugat, și ca să le puteți pune în lucru peste voi și între voi. Și [legatura_la_teme id_capitol="6" id_subcapitol="1"]iată mireasa Mea, mucenița Mea, dă ea să vă aducă în dar duhul înțelepciunii ei, darul sufletului ei, căci Eu am fost în ea acest dar. [/legatura_la_teme]
+O, fiilor, o, fiilor, pace vouă! Și nu vă credeți înțelepți pentru voi și pentru cei neînțelegători cu voi, dacă nu aveți pacea Mea și liniștea Mea și dragostea Mea în voi. Dragostea are legile ei, pe care trebuie să le știți pe dinafară așa cum v-am rugat, și ca să le puteți pune în lucru peste voi și între voi. Și [legatura_la_teme id_capitol="6" id_subcapitol="1"]iată mireasa Mea, mucenița Mea, dă ea să vă aducă în dar duhul înțelepciunii ei, darul sufletului ei, căci Eu am fost în ea acest dar.[/legatura_la_teme]
 
 *— O, cu ei, cu ei doresc să grăiesc, dulcele meu Domn Iisus, că mare putere și mare credință mi-a dat iubirea mea de Tine, căci ea mi-a dat, și nu s-a micșorat ea în încercări și în chinuri, ci s-a desăvârșit cu multul, Doamne, că multă pace îmi dădea iubirea de Tine și de toate făpturile care nu Te cunoșteau de Domn și de pace a sufletelor lor, și toate acestea le dăruiai prin lucrarea credinței și prin faptele ei, o, Doamne scump al celor ce mult Te iubesc în toată vremea lor pe pământ, atât de mult, o, atât de mult.*
 
@@ -40,7 +40,7 @@ O, fiilor, o, fiilor, pace vouă! Și nu vă credeți înțelepți pentru voi ș
 
 *Iar voi căutați-vă bine în cap, așa cum spune vorba despre păduchii de pe cap, o, căutați-vă capul și curățiți-l bine și țineți-l pe umeri ca să vă poată ajuta spre înțelepciunea iubirii și nu spre necredință sau spre cârtire pe cale, căci calea este sfântă, și tot sfinți trebuie să aibă pe ea Domnul, căci sfinții ajung la inima Domnului și Îl coboară la ei pe El și este cu ei Domnul pe pământ, și sunt ei pe pământ iubirea care zidește, așa cum am fost eu, de am zidit pe Dumnezeu în oameni și i-am dat rod Domnului pe ei.*
 
-*O, pace vouă! Așa să vă culcați și așa să vă sculați, plini de pace între voi și Domnul, între voi și voi, iar judecata lucrurilor e partea Domnului, precum partea voastră este iubirea de Dumnezeu și de frați, prin bucurii, ispite sau dureri.* [/legatura_la_teme]
+*O, pace vouă! Așa să vă culcați și așa să vă sculați, plini de pace între voi și Domnul, între voi și voi, iar judecata lucrurilor e partea Domnului, precum partea voastră este iubirea de Dumnezeu și de frați, prin bucurii, ispite sau dureri.*[/legatura_la_teme]
 
 *O, pace vouă! Pace și iar pace, și nu uitați, o, nu uitați voi acest îndemn! Amin.*
 
@@ -54,4 +54,4 @@ Pace vouă, mereu vă spun! Pace între voi cu orice preț, oricât ați da sau 
 
 O, pace și iubire, fiilor! Acestea le aștept în voi pentru Mine și pentru voi. Vin sărbătorile cu praznicele lor, nu uitați! O, nu uitați, cu pace să le întâmpinați, iar rugăciunea să aibă cale liberă dinspre voi spre Mine, că dacă în voi și între voi nu lucrează pacea ca punte de trecere în toată vremea cu mare și cu multă răbdare și umilință și iubire pentru ea, o, unde s-ar aduna rugăciunile voastre când le aduceți voi?
 
-Așadar, primiți mângâierea prin lucrarea păcii, și tot ce vine spre voi încredințați-vă că sunt știute de Mine, și nu vă sunt dăunătoare dacă le primiți ca de la Mine, așa cum știu Eu să vă lucrez mereu, și ca să vă pot păstra ai Mei până la sfârșit, până la ziua slavei Mele cu voi, o, fiilor. Amin, amin, amin. [/legatura_la_teme]
+Așadar, primiți mângâierea prin lucrarea păcii, și tot ce vine spre voi încredințați-vă că sunt știute de Mine, și nu vă sunt dăunătoare dacă le primiți ca de la Mine, așa cum știu Eu să vă lucrez mereu, și ca să vă pot păstra ai Mei până la sfârșit, până la ziua slavei Mele cu voi, o, fiilor. Amin, amin, amin.[/legatura_la_teme]

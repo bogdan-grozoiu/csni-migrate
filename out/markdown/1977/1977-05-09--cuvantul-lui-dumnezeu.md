@@ -8,11 +8,11 @@ audio:
 audio_file: 
 ---
 
-[legatura_la_teme id_capitol="3" id_subcapitol="2"]... Israele, să nu iei în deşert numele lui Dumnezeu, şi nici un lucru de al Său. Copilaşii Mei, unii spun că această cruce nu este adevărată şi nu este sfinţită şi o socotesc ca fiind blestemată. Să vă feriţi de acest lucru spus. Această sfântă cruce a fost şi mai înainte de Domnul Iisus, dar nu a fost blagoslovită, căci se răstigneau pe ea morţii de către legiuitori. Dar prin această cruce Domnul Iisus Hristos a iertat orice păcat, şi prin ea s-a zidit un pom cu poame dulci pentru toată lumea. Această sfântă cruce are putere să scoată omul din groapă aşa cum l-a scos pe Daniel din groapa cu lei, cum i-a scos din iad pe moşii şi strămoşii voştri. [/legatura_la_teme]
+[legatura_la_teme id_capitol="3" id_subcapitol="2"]... Israele, să nu iei în deşert numele lui Dumnezeu, şi nici un lucru de al Său. Copilaşii Mei, unii spun că această cruce nu este adevărată şi nu este sfinţită şi o socotesc ca fiind blestemată. Să vă feriţi de acest lucru spus. Această sfântă cruce a fost şi mai înainte de Domnul Iisus, dar nu a fost blagoslovită, căci se răstigneau pe ea morţii de către legiuitori. Dar prin această cruce Domnul Iisus Hristos a iertat orice păcat, şi prin ea s-a zidit un pom cu poame dulci pentru toată lumea. Această sfântă cruce are putere să scoată omul din groapă aşa cum l-a scos pe Daniel din groapa cu lei, cum i-a scos din iad pe moşii şi strămoşii voştri.[/legatura_la_teme]
 
 ... Este greu de cine a căzut după ce a auzit acest cuvânt sfânt, că nu are cine-l mai scoate. S-au întemeiat minciunile că nu mai poţi face nimic cu omul de azi, că are în el o mulţime de minciuni.
 
-[legatura_la_teme id_capitol="6" id_subcapitol="2"]Poporul Meu, am venit pentru tine ca să împlineşti ce este scris în Apocalipsă, că în vremea de apoi voi veni iarăşi şi voi face lucrare nouă, care nu a fost niciodată pe pământ. [/legatura_la_teme]
+[legatura_la_teme id_capitol="6" id_subcapitol="2"]Poporul Meu, am venit pentru tine ca să împlineşti ce este scris în Apocalipsă, că în vremea de apoi voi veni iarăşi şi voi face lucrare nouă, care nu a fost niciodată pe pământ.[/legatura_la_teme]
 
 ... Copilaşii Mei, vai de copiii care se nasc în vremurile de azi! Şi chiar tu, creştine, îl ţii lângă tine până la o mărime, şi atunci l-a luat satana de lângă tine şi a făcut din el slugă vrednică de el. Fericiţi părinţii care muncesc cu trudă să-şi ţină copiii lângă sine şi după acea mărime.
 

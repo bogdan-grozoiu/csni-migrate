@@ -19,7 +19,7 @@ Oh, My mother, We are now with your feast at the table with them, mother. We are
 
 [legatura_la_teme id_capitol="6" id_subcapitol="3"]Oh, let Us work the word of wisdom for man, mother, for the man has to know from God the work of the pure heart, and only after that he is supposed to know the things from God, how they work on earth, My mother.
 
-*— Yes, my Son, Jesus Christ, given to me by the Father to carry and to give Him birth as a Man on earth, yes, the man’s mind lacks its wisdom and God in man on earth. Let Us tell him, dear Son, let Us tell the man the mystery and the work of the pure heart, without which he cannot understand God with the people. Two thousand years ago, it was the same. The lack of the clean heart in those at that time was the reason why the people did not know You at that time. However, You worked and wrote on earth the work and the truth of Your coming from the Father to the people, but no one knew enough Your mercy for the people.* [/legatura_la_teme]*There was so much sufferance in Us then! We had only been suffering on earth since We were children, and the Father did His work and strengthen Us under it according to His will. Nevertheless, the man did not understand Your coming, he has not built in him a pure heart to be able to love You with it and to know You by Your coming.*
+*— Yes, my Son, Jesus Christ, given to me by the Father to carry and to give Him birth as a Man on earth, yes, the man’s mind lacks its wisdom and God in man on earth. Let Us tell him, dear Son, let Us tell the man the mystery and the work of the pure heart, without which he cannot understand God with the people. Two thousand years ago, it was the same. The lack of the clean heart in those at that time was the reason why the people did not know You at that time. However, You worked and wrote on earth the work and the truth of Your coming from the Father to the people, but no one knew enough Your mercy for the people.*[/legatura_la_teme]*There was so much sufferance in Us then! We had only been suffering on earth since We were children, and the Father did His work and strengthen Us under it according to His will. Nevertheless, the man did not understand Your coming, he has not built in him a pure heart to be able to love You with it and to know You by Your coming.*
 
 *Oh, there is so much pain on Us, but there is also comfort with it and with Us, dear Son. The coldness of the man’s heart burns within Us. You are the Creator of the heaven and earth, Lord Word, You are the Son of the heavenly Father, but the people are very cold in their heart. It is hard for a man to have in him a pure heart before God and towards his neighbors. Oh, the man does not have any part of this heavenly happiness by which he may be able to see God, Whom, those with a pure heart see, as You said about this mystery of seeing God inside of the man’s heart. (Matt: 5/8)*
 
@@ -41,15 +41,11 @@ Oh, My mother, We are now with your feast at the table with them, mother. We are
 
 You, sons from the citadel, you should persevere in prayer like My mother Virgin, because first of all, you have to do the work for heaven on earth. Warm yourselves under My love, sons! Have your thought and waiting fixed on Me, for I am in all of your things, I am with you and near you. Let us give to each other, and then you should take care of My fulfillment within you, sons!
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Oh, My today’s country, do not forget Me! Be a *„don`t-forget-me flower”* before Me, for you have a great heaven of confessors among those in heaven, and yours from heaven are praised because you have been My country for two thousand years and you are given to Me by My Father, and since then and up to this day I have been looking at you as at a priceless pearl, and I will bring to painful shame all those who have wanted to hurt you, to despise you, to put you down, My Father’s choice for Me, to have you as Mine, My house of coming to you in the end of the time, My country, My today’s flower.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Oh, My today’s country, do not forget Me! Be a *„don`t-forget-me flower”* before Me, for you have a great heaven of confessors among those in heaven, and yours from heaven are praised because you have been My country for two thousand years and you are given to Me by My Father, and since then and up to this day I have been looking at you as at a priceless pearl, and I will bring to painful shame all those who have wanted to hurt you, to despise you, to put you down, My Father’s choice for Me, to have you as Mine, My house of coming to you in the end of the time, My country, My today’s flower.
 
 Oh, wake up, you, Romanian sons! Receive the Holy Spirit, take Him to know how to choose with Him those who will stay for you at the helm of the ship!
 
-Oh, Father, My Father, let the Holy Spirit give to all the Romanian sons to know, to work and to become wise from above, from heaven!
-
-[/legatura_la_teme]
+Oh, Father, My Father, let the Holy Spirit give to all the Romanian sons to know, to work and to become wise from above, from heaven![/legatura_la_teme]
 
 And you, sons of My coming as word over the earth, watch in your prayers, sons. The power is with God not with the people, even if the people may thing that they have the power.
 

@@ -13,9 +13,7 @@ In the name of the Father and of the Son and of the Holy Spirit; it is in this n
 
 Oh, peace to you, to those who are receiving Me when My voice is speaking from above so that you may set Me as word in My today’s book!
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Oh, and peace to you, Romanian land and people! Here I have set the tabernacle of My coming as word over the earth as My Father has sent Me to come again, **(Apoc: 21/3)**, and how am I not supposed to listen to Him and come?
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Oh, and peace to you, Romanian land and people! Here I have set the tabernacle of My coming as word over the earth as My Father has sent Me to come again, **(Apoc: 21/3)**, and how am I not supposed to listen to Him and come?
 
 I have come and I keep coming on earth for almost 70 years, oh, I and find unbelief, just as I said two thousand years ago that I would come and I would not find faith for My coming. **(Luke: 18/8)**
 
@@ -31,9 +29,7 @@ When I started to teach My disciples to know that I would be rejected by the eld
 
 Oh, Romanian people, oh, sons, do not be ashamed with God, with the sign of the holy cross. You have been a Christian people for two thousand years like no other Christian people on earth. Be proud with the sign of the holy cross! ou are the first people of My Gospel shared by My disciples at that time. *(Through the Saint Apostle Andrew, r.n.).* Be proud now too, at the end, for you were chosen since that time to be My house of coming now, after two thousand years, when I am coming again with the saints and with the angels above this blessed people for the faith in the beginning and at the end, for the beginning of My church needs to have a way with faith to the end, up to now when I, the Lord, am coming to renew everything, as it is written, for My church to be again like it was at its beginning, **(Apoc: 21/5)** and not as it has become to be a servant to My enemy antichrist for all those who do not want Me on earth with the people and keep on casting Me aside so that I may not stand in the way of those who love lawlessness and sin; however, I am coming to bring the lying and lawlessness on the end and to set the holy life on earth, for the earth is crying from the fire on it, because it is fire the sin that burns in man and around him and all over where the man who loves sin goes, and that is why no one wants Me to be too; nevertheless, I am Who I am and how should I not be if I am Who I am?
 
-Therefore, peace to you, Romanian people and land, and stay under the blessing of the Father, of the Son and of the Holy Spirit, and do not be ashamed of the cross, with the sign of the Son of Man, and take from My spring into your midst, the word of My mouth and also learn the life of a saint, for the sinners do not love holiness, but rather sin, but you are My people and that of your holy and faithful ancestors, those who have the cross on their forehead and in front of them, both in hard and good times, oh, and do not forget what and who you are, Romanian people! I, the Lord, am speaking to you this in the name of the Father, of the Son and of the Holy Spirit.
-
-[/legatura_la_teme]
+Therefore, peace to you, Romanian people and land, and stay under the blessing of the Father, of the Son and of the Holy Spirit, and do not be ashamed of the cross, with the sign of the Son of Man, and take from My spring into your midst, the word of My mouth and also learn the life of a saint, for the sinners do not love holiness, but rather sin, but you are My people and that of your holy and faithful ancestors, those who have the cross on their forehead and in front of them, both in hard and good times, oh, and do not forget what and who you are, Romanian people! I, the Lord, am speaking to you this in the name of the Father, of the Son and of the Holy Spirit.[/legatura_la_teme]
 
 I am giving down fresh blessing over the citadel of My word in the midst of the Romanian people and all over My work in it and through it over the earth, for the river of life is running from here all over, as it is written! **(Apoc: 22/1-2)**
 

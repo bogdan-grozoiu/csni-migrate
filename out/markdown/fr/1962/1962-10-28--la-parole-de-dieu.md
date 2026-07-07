@@ -11,4 +11,4 @@ audio_file:
 
 La sixième trompette, le feu du Saint-Esprit
 
-[legatura_la_teme id_capitol="2" id_subcapitol="4"]Oh, les fils, autrefois, Israël est passé à travers l’eau, mais maintenant, qu’est-ce qu’on va faire quand nous devrons passer par le feu? car celle par laquelle Je vous annonce c’est la sixième trompette. Mes paroles ne sont pas pour les mauvais esprits, mais pour ceux qui accomplissent la parole que vous entendez aujourd’hui. La parole d’aujourd’hui c’est la porte, et il n’y a aucune autre porte pour entrer dans Mon royaume. [/legatura_la_teme]
+[legatura_la_teme id_capitol="2" id_subcapitol="4"]Oh, les fils, autrefois, Israël est passé à travers l’eau, mais maintenant, qu’est-ce qu’on va faire quand nous devrons passer par le feu? car celle par laquelle Je vous annonce c’est la sixième trompette. Mes paroles ne sont pas pour les mauvais esprits, mais pour ceux qui accomplissent la parole que vous entendez aujourd’hui. La parole d’aujourd’hui c’est la porte, et il n’y a aucune autre porte pour entrer dans Mon royaume.[/legatura_la_teme]

@@ -14,7 +14,7 @@ Ierusalime, Capernaume, Israele, vei auzi trâmbiţele, şi când vei auzi, să 
 
 Poporul Meu, am să vorbesc cu tine în limbă străină, că vor veni neamurile străine pe care tu nu le-ai cunoscut.
 
-[legatura_la_teme id_capitol="3" id_subcapitol="4"]... Spală-te bine de păcat, că mai e câte un preoţel care nu s-a închinat la idolii plini de păcat, care nu s-a închinat celui de azi, şi stă ascuns şi plânge pentru moartea de azi şi strigă la Mine din cămara sa: *„Mai e mult, Doamne?“.* [/legatura_la_teme]
+[legatura_la_teme id_capitol="3" id_subcapitol="4"]... Spală-te bine de păcat, că mai e câte un preoţel care nu s-a închinat la idolii plini de păcat, care nu s-a închinat celui de azi, şi stă ascuns şi plânge pentru moartea de azi şi strigă la Mine din cămara sa: *„Mai e mult, Doamne?“.*[/legatura_la_teme]
 
 ... Să crezi, mamă şi tată, cu adevărat să crezi că vei pierde copilul şi tânăra din casă. Îi vei pierde prin neascultare, că te uiţi la ei şi nu te înduri să-i dojeneşti sau să-i baţi când se găsesc cu haina de mişel, că ţii la el mai mult ca la Mine. Ce vei da pentru păcatul acesta? O, n-ai voit să-l dojeneşti şi l-ai lăsat să se sinucidă.
 

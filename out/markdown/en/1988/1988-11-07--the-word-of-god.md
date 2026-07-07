@@ -9,4 +9,4 @@ audio:
 audio_file: 
 ---
 
-[legatura_la_teme id_capitol="4" id_subcapitol="2"]… The people are going to see what is there, to Jerusalem, but the new Jerusalem is here, you Christians, and you shall see miracles. The world sees the Jerusalem of My ordeals, but the new Jerusalem is here. [/legatura_la_teme]
+[legatura_la_teme id_capitol="4" id_subcapitol="2"]… The people are going to see what is there, to Jerusalem, but the new Jerusalem is here, you Christians, and you shall see miracles. The world sees the Jerusalem of My ordeals, but the new Jerusalem is here.[/legatura_la_teme]

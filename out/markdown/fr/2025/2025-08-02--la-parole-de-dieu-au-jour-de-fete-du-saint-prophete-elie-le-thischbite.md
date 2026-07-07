@@ -35,7 +35,7 @@ Oh, le prophète Elie se tient avec impatience près de Moi, près de Ma bouche 
 
 — Je sonne encore et encore, Il sonne le Seigneur au-dessus de la terre et Il appelle à Lui les hommes de partout.
 
-Venez à l’eau! J’ai de l’eau vive, venez! Je vous lave avec elle la boue provenant de vos péchés, et Je vous donne des chemises blanches de lin, comme celles de Mes saints, pour que Je vous trouve habillés comme eux, et pas nus. Amen. [/legatura_la_teme]
+Venez à l’eau! J’ai de l’eau vive, venez! Je vous lave avec elle la boue provenant de vos péchés, et Je vous donne des chemises blanches de lin, comme celles de Mes saints, pour que Je vous trouve habillés comme eux, et pas nus. Amen.[/legatura_la_teme]
 
 On a jour de fête et Je laisse au-dessus de la terre la parole de Ma bouche et Je Me porte avec elle à travers des montagnes et des eaux, des champs et des hommes. C’est avec la parole que Je viens, et c’est avec elle que Je pais, avec cette verge de fer Je pais.
 

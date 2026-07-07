@@ -12,7 +12,7 @@ audio_file:
 
 ... Fiule, n-am venit să-ţi spun sfârşitul tău sau care va fi lucrul tău în timpul sfârşitului, ci am venit să-ţi spun să fii viteaz şi învingător în toate şi să păstoreşti bine poporul Meu în vremurile grele, şi să nu zici: *„Na-vă apă de la mine!“,* ci să fii înţelept. Astăzi oiţele stau încurcate în felurite lucruri şi nu mai are cine să se ducă să scoată oiţa încurcată, că păstorul e păzit de lupi şi nu poate ieşi să meargă la oiţe.
 
-[legatura_la_teme id_capitol="6" id_subcapitol="2"]... Copilaşul Meu, învaţă bine legea creştină, învaţă bine să stai de vorbă cu Mine, că vei sta de vorbă cu cel mai învăţat împărat. Nu vei fi dus de nimeni legat, şi Eu am să-ţi poruncesc: *„Fiule, mergi! Fiule, mergi, dar mergi cum merge apa, toată ziua şi toată noaptea.“,* şi tu, fiule, vei merge şi ziua, şi noaptea; şi tu, fiule, vei lucra şi ziua, şi noaptea. [/legatura_la_teme]
+[legatura_la_teme id_capitol="6" id_subcapitol="2"]... Copilaşul Meu, învaţă bine legea creştină, învaţă bine să stai de vorbă cu Mine, că vei sta de vorbă cu cel mai învăţat împărat. Nu vei fi dus de nimeni legat, şi Eu am să-ţi poruncesc: *„Fiule, mergi! Fiule, mergi, dar mergi cum merge apa, toată ziua şi toată noaptea.“,* şi tu, fiule, vei merge şi ziua, şi noaptea; şi tu, fiule, vei lucra şi ziua, şi noaptea.[/legatura_la_teme]
 
 Scrie pe hârtie şi fii secret, că moşii şi strămoşii voştri aveau bordeie şi lucrau ascuns. Mintea ta să nu fie în pâine, mintea ta să nu fie în castron, mintea ta să nu fie în cămaşă sau în lux, ci mintea ta să fie în carte.
 
@@ -20,11 +20,11 @@ Scrie pe hârtie şi fii secret, că moşii şi strămoşii voştri aveau bordei
 
 [legatura_la_teme id_capitol="6" id_subcapitol="2"]... Fiule, învaţă bine cartea, că nu vei mai merge cu cartea, şi vei merge cu mintea; şi nu vei mai merge cu geanta, şi vei merge cu toiagul.[/legatura_la_teme]
 
-... Un singur război a fost, şi rămăşiţa lui e la sfârşit, şi nu voi vă veţi lupta, ci se va lupta cerul. Nu vă înfricoşaţi. Arma care este împotriva voastră, se va întoarce împotriva celor care o fac. [legatura_la_teme id_capitol="3" id_subcapitol="1"]Să nu credeţi poveştile din ziar şi din cărţile din afară, ci să credeţi ce a scris Dumnezeu în cărţile sfinte. [/legatura_la_teme]
+... Un singur război a fost, şi rămăşiţa lui e la sfârşit, şi nu voi vă veţi lupta, ci se va lupta cerul. Nu vă înfricoşaţi. Arma care este împotriva voastră, se va întoarce împotriva celor care o fac. [legatura_la_teme id_capitol="3" id_subcapitol="1"]Să nu credeţi poveştile din ziar şi din cărţile din afară, ci să credeţi ce a scris Dumnezeu în cărţile sfinte.[/legatura_la_teme]
 
 ... Mai e un pic şi fiecare va începe să înoate pe Dunăre, şi ţine minte că mulţi se vor îneca. Vai de tine, creştine care ai stat cu Mine şi n-ai învăţat să înoţi! că nu ţi se pune nimic din trecut. Învăţaţi bine legea, învăţaţi pe copii legea, ca să ştie şi ei cine nu-i lasă să bea, nu mămica, nu tăticul. Să ştie şi ei cine nu-i lasă să săvârşească beţie sau curvie. Copilaşii Mei, aveţi copii măricei. Nu-i mai îngrămădiţi în uzine şi în lume. Aveţi fii şi fiice. Nu-i mai îndemnaţi să ia serviciu în lumea cea rea, că nu e bine să fie copilul tău fără Dumnezeu. Aţi auzit? Munceşte tu, tată şi mamă, dacă poţi să ţii piept vieţii tale. Cum a ieşit tineretul vostru din şcoală, l-aţi trimis la altă şcoală, fără să Mă întrebaţi pe Mine. Ce vreţi să faceţi, tată, cu copiii voştri? Rău, tată, nu ştii ziua şi ceasul când va suna trâmbiţa, şi copilul tău nu este cu Dumnezeu.
 
-[legatura_la_teme id_capitol="3" id_subcapitol="4"]... Nu s-a pomenit nici în Vechiul, nici în Noul, preotul să joace mingea. [/legatura_la_teme]
+[legatura_la_teme id_capitol="3" id_subcapitol="4"]... Nu s-a pomenit nici în Vechiul, nici în Noul, preotul să joace mingea.[/legatura_la_teme]
 
 ... Israele, vine sfârşitul! Să nu te rătăceşti. Israele, vine lumea înspăimântată, din răsărit, din miazăzi şi din miazănoapte. Când strigam la tine, râdeai de Mine.
 
@@ -42,6 +42,6 @@ Opreşte-te, lume! Opreşte-te, lume, că la Mine nu este bine, nu este de tine.
 
 Fiţi pricepuţi, că am sosit unde nu v-aţi gândit. Fiţi pricepuţi şi înţelepţi. Puneţi mâna pe carte. Nu lăsaţi cartea pe masă, că vin hoţii şi o fură. Nu lăsaţi cărţile pe masă, şi ascundeţi-le, tată, căci odată cu desfiinţarea meşterilor duhovniceşti, şi cărţile se desfiinţează, şi vai de tine, creştine care nu ştii o rugăciune! Vai de tine care nu vei şti o rugăciune şi care nu vei şti să îngrijeşti viaţa pe care o trăieşti, că vin meşterii falşi la tine şi te iau sub învăţătura lor. Mulţi meşteri se vor schimba în hăinuţa ta ca să nu se cunoască a fi meşteri. Fericit acela care a învăţat de la Domnul acest lucru.
 
-... Ai dorit să porţi un copil la şcoala de preoţie. Copilul tău, fiule, cât a fost la tine, a fost creştin, dar acolo, la şcoala de preoţie, s-a făcut păgân. [legatura_la_teme id_capitol="3" id_subcapitol="4"]Şcoala de preoţi se învaţă astăzi după lume, nu după Mine. Pe vremea moşilor şi strămoşilor, nu slujea preotul cu ceas la mână, şi nici după ceas, ci după har slujea. [/legatura_la_teme]
+... Ai dorit să porţi un copil la şcoala de preoţie. Copilul tău, fiule, cât a fost la tine, a fost creştin, dar acolo, la şcoala de preoţie, s-a făcut păgân. [legatura_la_teme id_capitol="3" id_subcapitol="4"]Şcoala de preoţi se învaţă astăzi după lume, nu după Mine. Pe vremea moşilor şi strămoşilor, nu slujea preotul cu ceas la mână, şi nici după ceas, ci după har slujea.[/legatura_la_teme]
 
 ... Sunteţi obligaţi de Domnul Iisus să căutaţi lacrimi pentru rugăciune, căci vine vremea, cu un gram de lacrimi să speli o albie de rufe, pentru tot neamul viu şi răposat. Şi mai umblaţi şi mai căutaţi şi înţelepciune, că moşii şi strămoşii n-au luat înţelepciunea cu ei, ci căutaţi-o.

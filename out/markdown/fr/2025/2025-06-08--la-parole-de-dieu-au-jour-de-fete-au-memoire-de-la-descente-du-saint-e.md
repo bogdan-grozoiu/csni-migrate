@@ -9,9 +9,7 @@ audio: https://noul-ierusalim.ro/audio/364fr.mp3
 audio_file: 25.06.08-fr.mp3
 ---
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Le nuage de la gloire de Ma venue se tient au-dessus de la terre roumaine et Je laisse Ma parole dans son livre d’aujourd’hui, en jour de fête de Pentecôte et J’ai comme accompagnateurs les neuf ciels avec toute la stratification de gloire, et elles Me servent les puissances célestes et angéliques, et Moi, Je viens et Je travaille Ma venue et Je l’annonce à travers la terre Moi-Même, alors que Je viens dans les fêtes pour paître, car Je suis Pasteur et J’ai nom merveilleux, c’est La Parole de Dieu ce merveilleux nom qui est le Mien.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Le nuage de la gloire de Ma venue se tient au-dessus de la terre roumaine et Je laisse Ma parole dans son livre d’aujourd’hui, en jour de fête de Pentecôte et J’ai comme accompagnateurs les neuf ciels avec toute la stratification de gloire, et elles Me servent les puissances célestes et angéliques, et Moi, Je viens et Je travaille Ma venue et Je l’annonce à travers la terre Moi-Même, alors que Je viens dans les fêtes pour paître, car Je suis Pasteur et J’ai nom merveilleux, c’est La Parole de Dieu ce merveilleux nom qui est le Mien.
 
 Je suis Celui Qui est. Je suis le Fils et la Parole du Père, et le Père Me donne du travail sur la terre, entre les hommes avec la parole comme au début de la création de Dieu, et voilà, avant l’aube, paix à vous, à ceux de la cité qui faites Mon accueil quand Je viens!
 
@@ -49,6 +47,4 @@ Montrez-vous au grand pouvoir, ceux qui dirigez correctement le pays roumain chr
 
 Oh, paix à vous et multipliez la paix, fils roumain! Frappez l’obscurité, les fils, pour ne pas augmenter! Entendez-vous?
 
-Paix au peuple roumain! Amen, amen, amen.
-
-[/legatura_la_teme]
+Paix au peuple roumain! Amen, amen, amen.[/legatura_la_teme]

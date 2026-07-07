@@ -22,7 +22,7 @@ audio_file:
 
 ... Iată, trâmbiţa Mea prin care grăiesc, e distrusă, că dacă ar fi un om pământesc, nu s-ar mai folosi de acest obiect, şi l-ar curma. Dar Domnul Iisus nu face aşa, şi Se foloseşte mereu de trâmbiţa Sa; o pansează, o spală pe răni, o îngrijeşte şi de dânsa Se foloseşte. Vai de cine nu ascultă învăţătura sfântă şi aduce durere multă acestor oase zdrobite, tată! Crezi? Vedeţi voi, odată, când se va sfârşi această viaţă, ce este? căci Dumnezeu Îşi va face planul Său şi Îşi va arăta toată mărirea Sa.
 
-[legatura_la_teme id_capitol="7" id_subcapitol="1"]... Tată, nu te mai uita la mortul care se îngroapă, că va fi zi când nu se vor mai îngropa morţii şi va fi că într-o clipită de ceas se vor trezi şi unii şi alţii. [/legatura_la_teme]
+[legatura_la_teme id_capitol="7" id_subcapitol="1"]... Tată, nu te mai uita la mortul care se îngroapă, că va fi zi când nu se vor mai îngropa morţii şi va fi că într-o clipită de ceas se vor trezi şi unii şi alţii.[/legatura_la_teme]
 
 N-ai văzut niciodată pe diavolul în bisericuţă, dar Domnul vede diavoli mulţi. Tu n-ai văzut, că şade ascuns, tată. [legatura_la_teme id_capitol="2" id_subcapitol="3"]O, ce mai plâng îngerii deasupra catapetesmei când văd atâtea capre în bisericuţe! Ascultă, creştine: capre, nu făptură omenească, ci capre. Plânge Maica Domnului, plânge cu suspine adânci că a ajuns bisericuţa ca templul cel de atunci când se neguţătorea în el. Nu mai e un Domn Iisus în trup să mai gonească duhurile necurate cu biciul din această casă sfântă.
 

@@ -14,7 +14,7 @@ audio_file:
 
 ... Suntem în drum. Uită-te bine la vremea de acum şi la vremea ce vine, căci acum stăpâneşte un om, şi în vremea care vine şi stă în faţă, alt om, dar omul acela nu va fi ca omul de acum. Acela nu va lucra cu sapa şi cu târnăcopul, ci va lucra cu toată puterea Mea. Va da la o parte toate trupurile întinate şi tot ce se află în drum spre rău, şi va face un drum foarte bun pentru creştini. De ar sta în faţa sa toate puterile duhurilor rele, toate vor fi nimicite. Israele, ţine minte aceste cuvinte.
 
-[legatura_la_teme id_capitol="6" id_subcapitol="2"]... Ce a fost cu Moise? Ce a fost cu Avraam? Ce a fost cu Ilie, ? Ce a fost cu Noe? Voi sunteţi mai mult decât aceştia, măi tată. Sunteţi cei de pe urmă, sunteţi sfârşitul acestui veac. [/legatura_la_teme]
+[legatura_la_teme id_capitol="6" id_subcapitol="2"]... Ce a fost cu Moise? Ce a fost cu Avraam? Ce a fost cu Ilie, ? Ce a fost cu Noe? Voi sunteţi mai mult decât aceştia, măi tată. Sunteţi cei de pe urmă, sunteţi sfârşitul acestui veac.[/legatura_la_teme]
 
 ... În curând se va da pe faţă că un singur Dumnezeu este şi o singură lucrare şi un singur plan este.
 

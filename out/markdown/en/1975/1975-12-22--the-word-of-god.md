@@ -15,7 +15,7 @@ audio_file:
 
 I told you many times to learn to sing David’s psalms.
 
-… You live in a time when there is war in your houses. A husband kills his wife secretly. A wife kills her husband, and that happens because the end is coming. [legatura_la_teme id_capitol="2" id_subcapitol="3"]It is heard that there is not a grain of faith, not a grain of priesthood nor even a grain of little church. Yes. It will be deserted because there is no one to minister. [/legatura_la_teme]
+… You live in a time when there is war in your houses. A husband kills his wife secretly. A wife kills her husband, and that happens because the end is coming. [legatura_la_teme id_capitol="2" id_subcapitol="3"]It is heard that there is not a grain of faith, not a grain of priesthood nor even a grain of little church. Yes. It will be deserted because there is no one to minister.[/legatura_la_teme]
 
 … It is heard through the world that the Christians will perish. Do not believe that. Do not be alarmed, for these rumors come from an unclean spirit. The rumor has been all over the earth, but it is written that all the sinners will perish of their own accord, because it has been prophesied a thousand times about the destruction of sinners and they have not been afraid. However, you will lie down, and when you get up, you will no longer see the one who has blasphemed you, you will no longer see the one who has sold you, and you will not know his place anymore. As in a dream, the sinners will perish, that God can no longer bear.
 

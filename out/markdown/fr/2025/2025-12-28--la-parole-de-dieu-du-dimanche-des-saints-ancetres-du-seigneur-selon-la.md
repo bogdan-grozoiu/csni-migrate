@@ -33,11 +33,9 @@ Je Me prépare toujours de la nourriture de parole pour partager, pour paître, 
 
 Oh, combien aimerais-Je paître, conseiller, éclairer et que beaucoup prennent de levain de Mon enseignement, au moins de ceux qui ont la chance de croire, et de chercher ensuite d’agir avec les œuvres de la foi, avec ses nombreuses œuvres pour la bâtisse de l’homme nouveau, selon Mon visage, et Ma ressemblance.
 
-J’essaie d’élargir peu à peu la contrée de l’éternité sur la terre entre les hommes. Je suis tout dépourvu des hommes de la terre pour cette marche vers Ma contrée de direction pastorale et vers ma table avec les saints, avec lesquels Je viens élargir la région et la marche et l’appel au-dessus de la terre, oh, et Je suis dépourvu de travailleurs, de ceux qui aiment Dieu et leur marche avec Lui et avec l’accomplissement de Ses ordres pour les fils de Dieu entre les fils des hommes, qui ne sursautent pas face aux abîmes où ils peuvent tomber.
+J’essaie d’élargir peu à peu la contrée de l’éternité sur la terre entre les hommes. Je suis tout dépourvu des hommes de la terre pour cette marche vers Ma contrée de direction pastorale et vers ma table avec les saints, avec lesquels Je viens élargir la région et la marche et l’appel au-dessus de la terre, oh, et Je suis dépourvu de travailleurs, de ceux qui aiment Dieu et leur marche avec Lui et avec l’accomplissement de Ses ordres pour les fils de Dieu entre les fils des hommes, qui ne sursautent pas face aux abîmes où ils peuvent tomber.[/legatura_la_teme]
 
-[/legatura_la_teme][legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Oh, J’ai la nostalgie de la Roumanie, Je l’ai, Mon Père, elle Me manque, la Roumanie, Ma première contrée Me manque, et J’ai la nostalgie d’un empire céleste sur sa terre! Oh, à quelle voix, à quelle parole pourrais-Je crier vers les fils de ce peuple, que J’aime dès la création du monde et jusqu’aujourd’hui, afin qu’ils aient comme leur œuvre l’amour de Dieu, afin qu’ils sentent son goût et sa douceur?
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Oh, J’ai la nostalgie de la Roumanie, Je l’ai, Mon Père, elle Me manque, la Roumanie, Ma première contrée Me manque, et J’ai la nostalgie d’un empire céleste sur sa terre! Oh, à quelle voix, à quelle parole pourrais-Je crier vers les fils de ce peuple, que J’aime dès la création du monde et jusqu’aujourd’hui, afin qu’ils aient comme leur œuvre l’amour de Dieu, afin qu’ils sentent son goût et sa douceur?
 
 Tu Me manques, Mon pays du début! Je t’ai signé Moi-Même le Mien avec Mon séjour sur ta terre à la création du monde. Je veux partager avec toi Mon envie sainte pour toi et Je viens vers toi, viens toi aussi vers Moi avec envie sainte! C’est l’envie sainte celle qui maintient en vie l’homme et lui donne de l’espoir. L’envie sainte c’est la nourriture vivante de l’âme qui espère et vit par l’envie sainte.
 
@@ -45,9 +43,7 @@ Je souhaite de toi, Mon pays celui du début, au bord duquel Je Me suis tenu et 
 
 Elle Me manque la Roumanie, J’ai la nostalgie du début à la fin et la fin souhaite le debout, oh, et que personne ne s’étonne plus du fait que Je viens en parole sur la terre dans ce pays. En tous les dimanches Je vais Me rappeler de Mon premier dimanche sur la terre et avec nostalgie et soupires Je cherche ce souvenir et Je Me fais Pasteur sur toi, terre et peuple roumain, et Je te dis en jour de dimanche: Que la lumière soit!
 
-Venez et prenez de la lumière, fils de la Roumanie! Oh, que tu es grande, Roumanie, et combien petite tu es restée pour Dieu de toute que tu es! Tu Me manques, toi et ton entièrement sous Mon amour, car tu es Mon pays du début et celui de la fin, lequel Me manque.
-
-[/legatura_la_teme]
+Venez et prenez de la lumière, fils de la Roumanie! Oh, que tu es grande, Roumanie, et combien petite tu es restée pour Dieu de toute que tu es! Tu Me manques, toi et ton entièrement sous Mon amour, car tu es Mon pays du début et celui de la fin, lequel Me manque.[/legatura_la_teme]
 
 Et maintenant, paix à vous, ceux qui M’ouvrez pour que J’entre dans la cite de Ma parole, que Je laisse Mon œuvre de Pasteur dans le livre et que Je sois partagée partout! Je vais vous éclaircir le mystère de Ma sortie avec vous dans la ville avec l’esprit du Noël, les fils de la cité. Je vous montrerai la mesure avec laquelle J’ai mesuré et ce que J’ai mesuré et ce que J’ai cueilli pour mettre dans le livre, les fils. C’est pourquoi observez mon parler avec vous, et ensuite votre parler avec Moi, car d’un part et de l’autre on travaille l’amour et il se transforme en parole et se fait don, les fils.
 

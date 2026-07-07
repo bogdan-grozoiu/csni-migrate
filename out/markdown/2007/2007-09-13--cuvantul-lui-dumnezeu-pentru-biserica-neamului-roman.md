@@ -36,4 +36,4 @@ Cine are urechi, să audă ceea ce Duhul a grăit bisericii neamului român. Ami
 
 Sfârşesc cuvântul Meu peste turma bisericii neamului român.
 
-Eu sunt Cel ce sunt. Amin, amin, amin. [/legatura_la_teme]
+Eu sunt Cel ce sunt. Amin, amin, amin.[/legatura_la_teme]

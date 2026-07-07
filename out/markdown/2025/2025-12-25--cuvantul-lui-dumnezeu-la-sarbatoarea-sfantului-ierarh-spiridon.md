@@ -20,7 +20,7 @@ Să se înduioșeze omul cel nemulțumit de multe și să-și aducă aminte de M
 
 Și acum, fiilor, vă veți pregăti cu duhul Crăciunului și cu ieslea cuvântului Meu, care se naște la voi ca să Se împartă Domnul peste pământ prin voi, și iată, vine praznicul nașterii Mele cu timpul lui din calendarul creștinesc și vom petrece în cântări de colinde, și toate de la voi sunt bucurie și mângâiere pentru Noi, cei din cer, fiilor, iar cerul stă tot timpul aproape nedespărțit aici la voi și cu voi, precum umbra vă însoțește pe voi pe cale cu soare, fiilor.
 
-Binecuvântate să vă fie vremea și lucrul vostru până la praznicul nașterii Mele, și toate să fie bucurii de la voi pentru Noi, cei din cer, și pentru cei de pe pământ, căci se duce vestea petrecerilor Mele cu voi și merg spre căutare după voi cei de pe pământ care Mă știu cu voi în petreceri sfinte, fiilor. [/legatura_la_teme]
+Binecuvântate să vă fie vremea și lucrul vostru până la praznicul nașterii Mele, și toate să fie bucurii de la voi pentru Noi, cei din cer, și pentru cei de pe pământ, căci se duce vestea petrecerilor Mele cu voi și merg spre căutare după voi cei de pe pământ care Mă știu cu voi în petreceri sfinte, fiilor.[/legatura_la_teme]
 
 Eu vă doresc vederi cerești să aveți și să împărțiți cerul pe pământ, măi fiilor, o, că frumoasă este veșnicia, și din tainele ei luăm și împărțim peste pământ, numai să aibă cine să caute după ea cu dor și cu credință, o, că e tare greu să-l poată avea Dumnezeu pe om de partea celor din cer pe pământ, fiilor.
 

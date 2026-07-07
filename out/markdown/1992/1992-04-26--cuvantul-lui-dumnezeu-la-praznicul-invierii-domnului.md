@@ -28,7 +28,7 @@ Susţine cu a Ta mână coroana română!”.
 
 *Iubiţii mei, va veni bucuria cea adevărată şi nu vor mai fi ochi care încătuşează lucrul Domnului şi bucuriile Domnului. Mama Gigi vă cuprinde. Şi, iarăşi, pentru toţi cei buni ai ei, ea rosteşte iar: Hristos a înviat! Pace vouă!*
 
-*Pace unsului României! Pace inimii lui îndurerate, căci este plină de durere inima lui!* [/legatura_la_teme]
+*Pace unsului României! Pace inimii lui îndurerate, căci este plină de durere inima lui!*[/legatura_la_teme]
 
 *Pace peste voi toţi, şi peste lucrul Domnului de la voi! Hristos a înviat! Adevărat a înviat! Amin, amin, amin.*
 
@@ -54,7 +54,7 @@ Hristos a înviat, rege al României! Bun venit, iubitul Meu! Hristos a înviat,
 
 Eu sunt; Eu, Cel ce am înviat din moarte în vremea trupului Meu după ce trupul Meu a căzut pe cruce. Eu sunt, iubitul Meu. O, eşti plin de bucurie îndurerată, eşti plin de durere, preaiubitul Meu, dar vine, tată, vremea ta, vine, dar Eu îţi spun că a şi venit. Vin zorile Ierusalimului cel nou peste România, dar Eu îţi spun că au şi venit. Vor veni prooroci şi magi de la mari depărtări ca să vadă lucrul Duhului Sfânt, Care lucrează şi Se vede lucrând peste România. Dar Eu îţi spun că au şi venit ca să întrebe şi să se bucure de împlinirile cele noi.
 
-Iată, iubitul Meu, rostesc cuvânt la ieslea cuvântului Meu şi ai fost purtat spre Mine prin rugăciunile cele de aici. Am aici pe micuţii Mei, şi fericit cel ce primeşte pe aceşti micuţi ai Mei, căci pe Mine Mă primeşte acela. [/legatura_la_teme]
+Iată, iubitul Meu, rostesc cuvânt la ieslea cuvântului Meu şi ai fost purtat spre Mine prin rugăciunile cele de aici. Am aici pe micuţii Mei, şi fericit cel ce primeşte pe aceşti micuţi ai Mei, căci pe Mine Mă primeşte acela.[/legatura_la_teme]
 
 Am adus la locul ei poarta Domnului; am adus-o, preaiubitul Meu, prin minuni am adus-o, căci duhul rău cunoştea taina ei şi pusese stăpânire peste ea şi blestem peste ea, dar am adus-o prin credinţa şi lucrarea celui ce o cântă pe România, celui ce-i cântă României cântarea cântărilor. Am adus-o. L-am trimis prin cuvânt şi a ridicat poarta Domnului, poarta prin care vei intra tu cu glorie, preaiubitul Meu. Aşa este scris în Scripturi, că *«aceasta se va numi poarta Domnului şi va intra pe ea Domnul, şi va intra pe ea regele celei binecuvântate».* Este scris despre această cetate care străjuieşte prin înălţimea ei cerească peste cetatea Ierusalimului nou, care se coboară de la Dumnezeu. Aşa este scris, că ea se va numi cu numele Domnului şi i se va spune: *„Acolo este Domnul”.* Proorocii care au scris această Scriptură saltă şi se bucură întru cele cereşti. Bucură-te şi tu! Eu voi lucra curând, că iată că am atâţia care nu şi-au plecat grumajii în faţa lui Baal.
 

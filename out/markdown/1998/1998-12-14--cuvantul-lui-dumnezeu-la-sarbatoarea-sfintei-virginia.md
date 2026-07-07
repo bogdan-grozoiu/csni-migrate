@@ -104,4 +104,4 @@ Toate sfârşitu-s-au! Mă întorc spre începutul cel dintâi şi încep de und
 
 Iar voi, străjerii Mei din grădină, luaţi această carte şi ridicaţi-o deasupra capetelor voastre, căci voi sunteţi unşii Mei pentru Scripturile cele de apoi. Coborâţi-o apoi pe jertfelnicul cel de foc şi pecetluiţi-o cu Duhul Meu Cel Sfânt, pe Care vi-L trimit vouă din ceruri. Luaţi-o şi trimiteţi-o de aici şi până la toate marginile la toţi capii pământului şi la cei îngâmfaţi. Toţi păstorii de suflete şi de trupuri să se aplece, că-i aplec Eu să audă cartea judecăţii proorocului cel mincinos. Toate sfârşitu-s-au! Sfârşitu-s-a şi minciuna lui, căci i-am dezvelit-o şi am pus-o înaintea lui. Amin, amin, amin.
 
-La începutul şi la sfârşitul cărţii acestea, zic: Pace vouă! Pace vouă! Pace vouă! Eu sunt Cel ce sunt, fiilor. Pace zic celor ce slujesc poruncilor Mele, iar celor ce le calcă pe ele, război le zic! Amin, amin, amin. [/legatura_la_teme]
+La începutul şi la sfârşitul cărţii acestea, zic: Pace vouă! Pace vouă! Pace vouă! Eu sunt Cel ce sunt, fiilor. Pace zic celor ce slujesc poruncilor Mele, iar celor ce le calcă pe ele, război le zic! Amin, amin, amin.[/legatura_la_teme]

@@ -94,4 +94,4 @@ Glasul Meu este ca vuietul apelor mari, şi din gura Mea iese sabie ascuţită, 
 
 Acum, fiilor, îl slobozesc pe cel ce l-am adus în faţa bisericii ca să mărturisească lucrarea Mea cu voi, şi îl aşez în pace, iar el aşa îmi spune: *„Acum slobozeşte pe robul Tău, Doamne, că am văzut cu ochii sufletului meu mântuirea pe care Tu ai pregătit-o înaintea noroadelor pentru luminarea lor, şi pentru slava numelui Tău şi a poporului Tău cel sfânt, şi pentru venirea Ta, Doamne. Amin.”*
 
-Am scris această carte Eu, Domnul, şi o pecetluiesc. Amin. Pecetea Mea, aceasta este: Tatăl, Fiul şi Duhul Sfânt. Amin, amin, amin. [/legatura_la_teme]
+Am scris această carte Eu, Domnul, şi o pecetluiesc. Amin. Pecetea Mea, aceasta este: Tatăl, Fiul şi Duhul Sfânt. Amin, amin, amin.[/legatura_la_teme]

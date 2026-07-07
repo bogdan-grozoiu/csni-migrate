@@ -58,4 +58,4 @@ Acest cuvânt sunt Eu, Cel ce sunt, și semnez acum cartea Mea spre voi cu numel
 
 Iisus Hristos, *Cuvântul lui Dumnezeu.*
 
-Amin, amin amin. [/legatura_la_teme]
+Amin, amin amin.[/legatura_la_teme]

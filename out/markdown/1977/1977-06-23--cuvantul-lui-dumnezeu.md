@@ -10,7 +10,7 @@ audio_file:
 
 ... Uite vremea, uite-o, tată, bate din pinteni, crezând natura că a câştigat toată suflarea de azi. Mai sunt câteva zile în care poate soarele să încălzească, şi după aceea o înăbuşă pe această natură. Natură se cheamă aceasta care nu e cu Dumnezeu şi stă împotriva Duhului lui Dumnezeu şi L-a alungat cum alungă un bogat pe un argat.
 
-[legatura_la_teme id_capitol="6" id_subcapitol="3"]... Zic ţie, Israele, nu sluji şi duhului, şi trupului. Trupul să fie mai mic ca duhul. Duhul să fie o împărăţie peste trup, ca să conducă trupul la calea sfântă. Vai de trupul acela în care duhul a trăit batjocorit şi hulit! [/legatura_la_teme]
+[legatura_la_teme id_capitol="6" id_subcapitol="3"]... Zic ţie, Israele, nu sluji şi duhului, şi trupului. Trupul să fie mai mic ca duhul. Duhul să fie o împărăţie peste trup, ca să conducă trupul la calea sfântă. Vai de trupul acela în care duhul a trăit batjocorit şi hulit![/legatura_la_teme]
 
 ... Copilaşii Mei, să ştiţi că vine vremea foarte grea când se va pune pe spinarea ta greutatea poftelor trupului tău. Nu Eu o pun, şi n-ai să poţi s-o duci, şi ai să cazi prăbuşit.
 
@@ -26,9 +26,9 @@ De ce nu te gândeşti că dacă nu erai cu Mine nu mai erai astăzi? Câte ocă
 
 Copilaşii Mei, nu vă daţi vremii de azi. Nu vă vindeţi vremii de azi viaţa. Nu te bucura că te va înălţa, căci adevărat grăiesc: cum a căzut Lucifer, vei cădea şi tu.
 
-[legatura_la_teme id_capitol="2" id_subcapitol="6"]... Fiule, ai văzut biserică socialistă? Nu a fost de când e veacul. De acum încolo va fi socialistă. Preotul îşi va schimba poporul din credincios în socialist. Va scoate omul din biserică şi îl va duce la muncă. Îl cere socialistul, îl cere republica, şi să ştii că nu vei putea să duci greutatea aceasta. Şi a fost ca să vină aceasta pentru necredinţa ortodoxului care se duce în biserică să se întâlnească cu prietenul sau cu prietena, ori să se uite la tine, creştine, să vadă cum te prezinţi tu, ca să aibă ce duce aceluia care l-a pus iscoadă pentru viaţa ta. De aceea zic: vreme necredinciosă.
+[legatura_la_teme id_capitol="2" id_subcapitol="6"]... Fiule, ai văzut biserică socialistă? Nu a fost de când e veacul. De acum încolo va fi socialistă. Preotul îşi va schimba poporul din credincios în socialist. Va scoate omul din biserică şi îl va duce la muncă. Îl cere socialistul, îl cere republica, şi să ştii că nu vei putea să duci greutatea aceasta. Şi a fost ca să vină aceasta pentru necredinţa ortodoxului care se duce în biserică să se întâlnească cu prietenul sau cu prietena, ori să se uite la tine, creştine, să vadă cum te prezinţi tu, ca să aibă ce duce aceluia care l-a pus iscoadă pentru viaţa ta. De aceea zic: vreme necredinciosă.[/legatura_la_teme]
 
-[/legatura_la_teme][legatura_la_teme id_capitol="3" id_subcapitol="4"]... Tată, nu şi-a aşteptat timpul de la Dumnezeu acela *(Iustin, n.r.)*. Nu s-a uitat la viaţa sa să vadă: are meritul să fie aşa? Şi s-a dus cu cerere şi a cerut cu multă rugăminte ca să fie pus în această treaptă.[/legatura_la_teme]
+[legatura_la_teme id_capitol="3" id_subcapitol="4"]... Tată, nu şi-a aşteptat timpul de la Dumnezeu acela *(Iustin, n.r.)*. Nu s-a uitat la viaţa sa să vadă: are meritul să fie aşa? Şi s-a dus cu cerere şi a cerut cu multă rugăminte ca să fie pus în această treaptă.[/legatura_la_teme]
 
 ... Toate M-am făcut pentru voi. La toate M-am făcut mic şi M-am smerit ca să te smeresc pe tine, dar tot nu este bine, că te mai uiţi înapoi, frate şi soră, te mai uiţi înapoi. Şi zic: nu te mai uita, că aşa s-a uitat femeia lui Lot şi s-a făcut stâncă de piatră. Chiar dacă ştii că e mama ta sau tatăl tău, nu te uita înapoi. Lasă pe tatăl tău şi pe mama ta şi pe fraţii tăi, că dacă vor vrea, vor veni şi ei; şi ia aminte la părintele Avraam, că i-a spus Dumnezeu: *«Ieşi din casa părinţilor tăi şi din rudeniile tale şi din pământul tău!».* Aşa îţi zic şi ţie: ieşi! Că dacă ai veni cu această îmbrăcăminte în locul Meu, tot cerul şi îngerii ar fugi de tine şi s-ar îngrozi. Ieşi din rădăcina ta şi din casa ta şi mergi în pământul pe care ţi l-a dat Dumnezeu ca să trăieşti.
 
@@ -42,7 +42,7 @@ Copilaşii Mei, nu vă daţi vremii de azi. Nu vă vindeţi vremii de azi viaţa
 
 ... Nu a fost de când e veacul ziua zilelor voastre de un ceas. Iute, iute vine noaptea, dar voi nu cunoaşteţi. Păi când cunoaşteţi voi aceste lucruri? Când vă uitaţi la ele ca să le vedeţi?
 
-... Să nu ia copiii voştri răutatea lui Esau. [legatura_la_teme id_capitol="2" id_subcapitol="6"]Această vreme de azi este vremea lui Esau, cum s-a purtat el cu fratele său, Iacob. Dar Dumnezeu a luat din mâna lui întâietatea şi i-a dat-o lui Iacob. Ce ziceţi, a fost cu drept? Esau se uita la tâlhărie. Cer din partea voastră să puneţi în lucru şi în judecată şi în rumegare această lucrare. [/legatura_la_teme]
+... Să nu ia copiii voştri răutatea lui Esau. [legatura_la_teme id_capitol="2" id_subcapitol="6"]Această vreme de azi este vremea lui Esau, cum s-a purtat el cu fratele său, Iacob. Dar Dumnezeu a luat din mâna lui întâietatea şi i-a dat-o lui Iacob. Ce ziceţi, a fost cu drept? Esau se uita la tâlhărie. Cer din partea voastră să puneţi în lucru şi în judecată şi în rumegare această lucrare.[/legatura_la_teme]
 
 ... Mulţi dintre cei ce au mâncat la această masă sunt învăţaţi să mănânce şi altă masă şi se amestecă tot, ca într-un butoi. Cine mănâncă la această masă, să nu o amestece cu cea lumească. Cine mănâncă la masa Mea, s-o ţină bine, că mare păcat are de se duce şi la altă masă.
 
@@ -60,7 +60,7 @@ Florile Mele, nu vă cere Domnul averea voastră. Nu v-am cerut avere, dar v-am 
 
 ... Pe malurile apelor e scris un nume pocit: *„litoral“.* Şi pe acel mal sunt numai despuiaţi şi despuiate. E libertate la aceştia. Numai tu, creştine, n-ai libertate. Cum să mai aibă soarele lumina când îi vede pe aceştia? că s-a dat libertatea la lucrurile necurate şi s-a închis libertatea la lucrurile curate şi blestemul dumnezeiesc îi va ajunge pe aceştia care au interzis lucrurile curate.
 
-[legatura_la_teme id_capitol="3" id_subcapitol="4"]Vă anunţă Domnul: mulţi copii de ai Mei vor să dea copiii la şcoala de preoţi. Interzis! Interzis! Interzis! că nu iese preot, ci iese purcel, iese purcel. Nu mănâncă mâncare din care mânca sfântul Nicolae la şcoala sa, şi acum mănâncă chimicale. [/legatura_la_teme]Şi ce mănâncă atunci, va mânca întotdeauna, va mânca ce a mâncat în şcoală, nu ce a mâncat la mama şi la tatăl său.
+[legatura_la_teme id_capitol="3" id_subcapitol="4"]Vă anunţă Domnul: mulţi copii de ai Mei vor să dea copiii la şcoala de preoţi. Interzis! Interzis! Interzis! că nu iese preot, ci iese purcel, iese purcel. Nu mănâncă mâncare din care mânca sfântul Nicolae la şcoala sa, şi acum mănâncă chimicale.[/legatura_la_teme]Şi ce mănâncă atunci, va mânca întotdeauna, va mânca ce a mâncat în şcoală, nu ce a mâncat la mama şi la tatăl său.
 
 ... Dacă ai fi credincios, n-ai mai dori să te căsătoreşti, şi nici fii şi fiice n-ai mai dori, pentru că ţi-i ia vremea aceasta. Te-ai scrie în cartea unor fii feciori şi fecioare.
 

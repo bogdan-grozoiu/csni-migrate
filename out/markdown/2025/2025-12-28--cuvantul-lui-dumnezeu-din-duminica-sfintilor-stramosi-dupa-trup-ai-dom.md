@@ -32,11 +32,9 @@ Iată, lucrarea Mea de Păstor e dulce. Vorbirea Mea cu omul e multă. Trebuie s
 
 O, cât aș vrea de mult să păstoresc, să povățuiesc, să deslușesc și să ia mulți din aluatul învățăturii Mele, măcar cei care au parte să creadă, și apoi să caute ei cu lucrările credinței, cu multele ei lucrări pentru zidirea omului cel nou, după chipul și asemănarea Mea!
 
-Dau să-Mi lărgesc pic cu pic tărâmul veșniciei pe pământ între oameni. Sunt atât de lipsit de oamenii de pe pământ pentru acest mers spre tărâmul Meu de păstorire și spre masa Mea cu sfinții cu care vin să-Mi lărgesc tărâmul și mersul și strigarea peste pământ, o, și sunt lipsit de lucrători, de cei ce iubesc pe Dumnezeu și mersul lor cu El și cu împlinirea poruncilor Lui pentru fiii lui Dumnezeu între fiii oamenilor, care nu tresar în față cu prăpăstiile în care dau să cadă.
+Dau să-Mi lărgesc pic cu pic tărâmul veșniciei pe pământ între oameni. Sunt atât de lipsit de oamenii de pe pământ pentru acest mers spre tărâmul Meu de păstorire și spre masa Mea cu sfinții cu care vin să-Mi lărgesc tărâmul și mersul și strigarea peste pământ, o, și sunt lipsit de lucrători, de cei ce iubesc pe Dumnezeu și mersul lor cu El și cu împlinirea poruncilor Lui pentru fiii lui Dumnezeu între fiii oamenilor, care nu tresar în față cu prăpăstiile în care dau să cadă.[/legatura_la_teme]
 
-[/legatura_la_teme][legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-O, Mi-e dor de România, Mi-e dor, Tată, Mi-e dor de ea, de tărâmul Meu cel dintâi Mi-e dor, și Mi-e dor de împărăție cerească pe meleagul ei! O, cu ce glas, cu ce cuvânt să mai strig spre fiii acestui neam drag Mie de la facerea lumii și până azi, ca să aibă ei de lucrare a lor dragostea de Dumnezeu și să-i simtă gustul și dulceața ei?
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]O, Mi-e dor de România, Mi-e dor, Tată, Mi-e dor de ea, de tărâmul Meu cel dintâi Mi-e dor, și Mi-e dor de împărăție cerească pe meleagul ei! O, cu ce glas, cu ce cuvânt să mai strig spre fiii acestui neam drag Mie de la facerea lumii și până azi, ca să aibă ei de lucrare a lor dragostea de Dumnezeu și să-i simtă gustul și dulceața ei?
 
 Mi-e dor de tine, țara Mea cea dintâi! Te-am însemnat Eu Însumi a Mea cu statul Meu pe plaiul tău la facerea lumii. Voiesc să împart cu tine dorul Meu de tine și vin spre tine, și vino spre Mine cu dor! Dorul este ceea ce îl ține în viață pe om și îi dă speranță. Dorul este hrana vie a sufletului care nădăjduiește și trăiește prin dor.
 
@@ -44,9 +42,7 @@ Mi-e dor de tine, țara Mea cea de la început, pe al cărei țărm am stat și 
 
 Mi-e dor de România, Mi-e dor de început la sfârșit, și îi este dor sfârșitului de început, o, și să nu se mai mire nimeni de ce vin Eu cuvânt pe pământ în această țară. În toate duminicile Îmi voi aminti de duminica Mea cea dintâi pe pământ, și cu dor însuspinat caut după această amintire și Mă fac Păstor peste tine, pământ și neam român, și spun în zi de duminică: Să fie lumină!
 
-Veniți de luați lumină, fii ai României! O, ce mare ești, Românie, și ce mică ai rămas pentru Dumnezeu din câtă ești! Mi-e dor de tine și de întregirea ta sub dragostea Mea, căci tu ești țara Mea cea de la început și cea de la sfârșit, de care-Mi este dor.
-
-[/legatura_la_teme]
+Veniți de luați lumină, fii ai României! O, ce mare ești, Românie, și ce mică ai rămas pentru Dumnezeu din câtă ești! Mi-e dor de tine și de întregirea ta sub dragostea Mea, căci tu ești țara Mea cea de la început și cea de la sfârșit, de care-Mi este dor.[/legatura_la_teme]
 
 Și acum, pace vouă, celor ce-Mi deschideți ca să intru în cetatea cuvântului Meu și să-Mi las lucrarea de Păstor în carte și să fiu împărțit peste tot! Vă voi desluși taina despre ieșirea Mea cu voi în oraș cu duhul Crăciunului, fiilor din cetate. Vă voi arăta măsura cu care am măsurat și ce am măsurat și ce am cules ca să punem în carte, fiilor. De aceea căutați spre vorbirea Mea cu voi, și apoi spre vorbirea voastră cu Mine, căci de o parte și de alta se lucrează iubirea și se face cuvânt și se dăruiește, fiilor.
 

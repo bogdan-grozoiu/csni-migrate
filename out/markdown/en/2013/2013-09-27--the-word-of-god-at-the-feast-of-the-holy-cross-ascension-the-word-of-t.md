@@ -9,9 +9,7 @@ audio:
 audio_file: 
 ---
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-I am the messenger of My Father, the God Sabaoth, and I am coming as word on the earth over the Romanian people, the word of glory, peace and truth.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]I am the messenger of My Father, the God Sabaoth, and I am coming as word on the earth over the Romanian people, the word of glory, peace and truth.
 
 I am the Son of the Father, I am true God of true God. Two thousand years ago, the Father sent Me on earth to become a visible Man among people and to prove Myself as His Son and to believe in Me all those to whom it will be given from the Father to believe, and now, in the end of the time, My Father has sent Me again as word on the earth.
 
@@ -65,6 +63,4 @@ The Father and the Son have spoken thorough the Holy Spirit to the Romanian peop
 
 Amen, amen I say to you. Love and believe in My coming to you, Romanian sons. This river of word, coming out of My mouth, is known by the heart and carried then by the comfort and the power by those who take from it to their healing.
 
-I come soon. I always come as word of watch and glory upon you, Romanian people. Light the candle, and this is how you are to stay before Me when I come to you, for I love you and I wait for you to bless always your destiny from Me and I wait for you to come and to be; furthermore, I always wait for you to be and then to be eternally, to be a new heaven and a new earth, a new beginning, by all the springs that flow upon you and water you from heaven, oh, My country, My today’s country. Amen, amen, amen.
-
-[/legatura_la_teme]
+I come soon. I always come as word of watch and glory upon you, Romanian people. Light the candle, and this is how you are to stay before Me when I come to you, for I love you and I wait for you to bless always your destiny from Me and I wait for you to come and to be; furthermore, I always wait for you to be and then to be eternally, to be a new heaven and a new earth, a new beginning, by all the springs that flow upon you and water you from heaven, oh, My country, My today’s country. Amen, amen, amen.[/legatura_la_teme]

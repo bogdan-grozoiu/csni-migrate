@@ -22,7 +22,7 @@ V-am spus mereu: puneţi acoperământ pe cap, că pentru cârpa aceasta sau pen
 
 ... Învăţaţi rugăciunile pe dinafară, că veţi călători din ţară în ţară şi puntea voastră va fi rugăciunea şi postul. Faceţi rugăciune pentru întoarcerea păcătoşilor şi numiţi pe cei adormiţi. Să meargă rugăciunea voastră din neam în neam. Fiilor, sunt mulţi creştini în lagăre. Rugaţi-vă pentru ei, că rugăciunea creştinilor îi scoate, descuie lacătele, şi creştinii ies afară.
 
-[legatura_la_teme id_capitol="2" id_subcapitol="4"]... O, tată, trâmbiţa Mea e mică, e mică. Dacă aş sufla prin ea cu toată puterea Mea, nu ar ţine, s-ar face fărâme. [/legatura_la_teme]
+[legatura_la_teme id_capitol="2" id_subcapitol="4"]... O, tată, trâmbiţa Mea e mică, e mică. Dacă aş sufla prin ea cu toată puterea Mea, nu ar ţine, s-ar face fărâme.[/legatura_la_teme]
 
 ... Fiţi creştini, dar nu aşa: voi să fiţi creştini, şi copiii voştri să nu fie. Nu voi să vă rugaţi, şi copiii voştri să fie la joacă.
 

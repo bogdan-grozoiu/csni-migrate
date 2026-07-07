@@ -17,7 +17,7 @@ Oh, revenez-vous, Mes enfants, car nous monterons la montagne, en haut avec beau
 
 Oh, réveillez-vous! Ne vous enivrez pas de ce temps. Oh, toi homme ivre de ce temps, toi qui jettes et troubles tes yeux! Il vaut mieux les sortir que de t’arriver ça. Oh, combien de chrétiens ont vu de leurs propres yeux et sont resté dans le monde. Il est pardonné de sortir tes yeux que de rester dans le monde, car celui-ci c’est un temps fou.
 
-[legatura_la_teme id_capitol="8" id_subcapitol="5"]Encore une fois Je te dis que nous monterons la montagne avec beaucoup de moutons, et nous entendrons ce que nous n’avons jamais entendu et nous verrons ce que nous n’avons jamais vu, et les chrétiens seront comme les étoiles là où nous serons. [/legatura_la_teme]
+[legatura_la_teme id_capitol="8" id_subcapitol="5"]Encore une fois Je te dis que nous monterons la montagne avec beaucoup de moutons, et nous entendrons ce que nous n’avons jamais entendu et nous verrons ce que nous n’avons jamais vu, et les chrétiens seront comme les étoiles là où nous serons.[/legatura_la_teme]
 
 Je suis venu sur la terre pour bâtir la maison et t’enrichir, car l’œuvre que Je fais avec vous est grande. Oh, les fils, priez de ne pas la perdre, car beaucoup viennent à Moi sec et Me demandent de les donner.
 

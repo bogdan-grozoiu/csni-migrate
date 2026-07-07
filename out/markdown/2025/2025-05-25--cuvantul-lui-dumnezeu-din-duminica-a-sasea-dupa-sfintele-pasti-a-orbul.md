@@ -8,9 +8,7 @@ audio: https://noul-ierusalim.ro/audio/1756.mp3
 audio_file: 25.05.25.mp3
 ---
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Duhul lui Dumnezeu este Stăpân şi Împărat în cer şi pe pământ şi cârmuieşte sus şi jos şi cârmuieşte lumea, iar Eu, Domnul Iisus Hristos, sunt Cuvântul Tatălui, Cuvântul lui Dumnezeu între cer şi pământ şi fac cunoscută lucrarea Duhului Sfânt prin cuvânt rostit şi Mă port pe deasupra pe nor, iar pe pământ se scrie acest cuvânt și păstoresc cu el, căci sunt Păstor.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Duhul lui Dumnezeu este Stăpân şi Împărat în cer şi pe pământ şi cârmuieşte sus şi jos şi cârmuieşte lumea, iar Eu, Domnul Iisus Hristos, sunt Cuvântul Tatălui, Cuvântul lui Dumnezeu între cer şi pământ şi fac cunoscută lucrarea Duhului Sfânt prin cuvânt rostit şi Mă port pe deasupra pe nor, iar pe pământ se scrie acest cuvânt și păstoresc cu el, căci sunt Păstor.
 
 Și cum adică acest cuvânt purtat pe nor și așezat în cartea sa din zilele acestea? Amintesc din Scripturi grăirea Mea cu Adam în rai și auzea acesta glasul Meu și grăia cu Mine când îi grăiam lui. Moise Mi-a auzit glasul în vâlvătaie de foc pe munte și Mi-a scris cuvântul pe care îl auzea când Eu îi grăiam lui. Ilie proorocul Îmi auzea foșnetul și glasul cuvântului Meu aproape lui și a rămas scris pe pământ cuvântul lui Dumnezeu cu omul. La fel proorocii și regii lui Israel, apostolii și sfinții apoi în lucrarea Mea cu ei pe pământ, și Mă descopeream lor prin cuvânt, prin vedenie și prin darurile Duhului Sfânt și-Mi lăsam pe pământ lucrarea și cârmuiam, așa cum și în zilele acestea Îmi las glasul peste pământul român și-Mi este scris cuvântul și merge el și se vestește și cârmuiește și aduce spre știre planul lui Dumnezeu, plan scris, după care îngerii lucrează împlinind, și iată șaptezeci de ani de cuvânt, ca râul care curge deasupra neamului român și adapă pământul și omul și facerea toată după planul cel de sus, căci toate așteaptă și ascultă de la Dumnezeu Făcătorul să vină toate, căci din cer cârmuiește Domnul, nu de pe pământ este cârmuirea, iar pe pământ se dă luptă de împotrivire între om și Dumnezeu, fiindcă omul nu are minte din cer, și are din sine, și cu ea intră în luptă de împotrivire asupra Domnului și pierde omul de fiecare dată, bietul de el, și iată, iată, nu este altă formă de cârmuire cu alt fel de nume, ci numai conducerea cea de la Dumnezeu este cea care cârmuiește și biruiește, oricât de mare ar da să stea omul care se vrea mare peste oameni. O, dar cum să fie mare cel care acum este, iar mâine nu mai este și piere odată cu mărirea lui, iar Eu, Domnul, sunt Cel veșnic ca și cuvântul Meu? Amin.
 
@@ -34,9 +32,7 @@ De aceea Eu, Iisus Hristos, Păstor pentru voi de la Tatăl trimis cu carte scri
 
 Asumați-vă greșelile de până acum și dați loc păcii între voi și Mine, între voi și voi, că nu e nimeni să nu fie greșit, fiilor, și de aceea păcatele asumate sunt spre iertarea lor și spre împăcarea cu Dumnezeu, ca să vină de la El binele cel așteptat să vină peste acest neam.
 
-O, pace vouă, și faceți pace între frați, ca toți să fie una și să vină binecuvântarea cea mare peste neamul român! Iar și iar, pace vouă, o, fiilor, și păstrați-vă întru ea! Amin.
-
-[/legatura_la_teme]
+O, pace vouă, și faceți pace între frați, ca toți să fie una și să vină binecuvântarea cea mare peste neamul român! Iar și iar, pace vouă, o, fiilor, și păstrați-vă întru ea! Amin.[/legatura_la_teme]
 
 Acum Mă aplec cu recunoștință vouă, celor ce-Mi faceți intrarea cuvântului Meu în cetate ca să-l puneți pe cale și să meargă el acolo unde bate ca să intre.
 

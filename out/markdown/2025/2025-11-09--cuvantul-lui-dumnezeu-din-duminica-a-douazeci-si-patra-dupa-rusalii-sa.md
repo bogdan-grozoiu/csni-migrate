@@ -8,9 +8,7 @@ audio: https://noul-ierusalim.ro/audio/1795.mp3
 audio_file: 25.11.09.mp3
 ---
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-În zi de duminică Îmi așez în cartea Mea cea de azi cuvântul Meu de Păstor și grăiesc cu cei de pe pământ în numele Tatălui și al Fiului și al Sfântului Duh, și numele Meu se cheamă *Cuvântul lui Dumnezeu* și fericiți sunt cei ce aud și cred că vine Domnul pe pământ cuvânt ca să facă din oameni fii ai lui Dumnezeu prin iubirea și credința cu care ei întâmpină venirea Mea de la Tatăl ca să-i călăuzesc spre Tatăl, să-i trag pe ei la Tatăl Meu și al lor.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]În zi de duminică Îmi așez în cartea Mea cea de azi cuvântul Meu de Păstor și grăiesc cu cei de pe pământ în numele Tatălui și al Fiului și al Sfântului Duh, și numele Meu se cheamă *Cuvântul lui Dumnezeu* și fericiți sunt cei ce aud și cred că vine Domnul pe pământ cuvânt ca să facă din oameni fii ai lui Dumnezeu prin iubirea și credința cu care ei întâmpină venirea Mea de la Tatăl ca să-i călăuzesc spre Tatăl, să-i trag pe ei la Tatăl Meu și al lor.
 
 O, cum să nu vin și să-i spun întunericului să-i facă loc luminii, facerii din nou a lumii? Să fie lumină! Așa a fost întâiul Meu grai și cuvânt, după ce a făcut Dumnezeu sfat pentru facerea cerului și a pământului și a omului și a toate câte pentru om le-a zidit Dumnezeu prin cuvânt. Tot prin cuvânt vin și stau iarăși pe pământ și grăiesc să se facă și să se arate făgăduința împlinită a Scripturii de cer nou și de pământ nou, căci poate, oare, să treacă neîmplinită această făgăduință a cuvântului Meu?
 
@@ -46,6 +44,4 @@ Cu durere vă grăiesc, cu durere rămân, cu durere las cuvânt scris spre voi 
 
 Eu sunt, și rămân cu venirea Mea pe pământul român și înnoiesc iar și iar cuvântul Meu și spun, iar și iar spun că tot omul care se va înveșmânta cu cămășuța de creștin se va numi român. Amin.
 
-Și acum, pace cerească peste cetatea cuvântului Meu de pe meleagul pământului român, în care cartea Mea stă deschisă și se așează în ea tot cuvântul gurii Mele ca mărturie peste pământ, o, și așa Se vestește Dumnezeu de la margini la margini cu slava Sa, cu cuvântul Său pe plaiul românesc, țara Mea cea de la sfârșit de timp. Amin, amin, amin.
-
-[/legatura_la_teme]
+Și acum, pace cerească peste cetatea cuvântului Meu de pe meleagul pământului român, în care cartea Mea stă deschisă și se așează în ea tot cuvântul gurii Mele ca mărturie peste pământ, o, și așa Se vestește Dumnezeu de la margini la margini cu slava Sa, cu cuvântul Său pe plaiul românesc, țara Mea cea de la sfârșit de timp. Amin, amin, amin.[/legatura_la_teme]

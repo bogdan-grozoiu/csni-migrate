@@ -82,6 +82,6 @@ Pace vouă, dar și fericirea celor ce cred v-o dăruiesc vouă! Eu sunt Cel ce 
 
 Iubirea strigă pe ulițe să vină oamenii spre ea, căci Hristos vine și vine, precum este scris.
 
-Îmi așez numele pe epistola Mea cea de azi. Sunt Iisus Hristos, Domnul Cel înviat a treia zi din mormânt, după făgăduința cea scrisă în Scripturi să se împlinească, și ea s-a împlinit. [/legatura_la_teme]
+Îmi așez numele pe epistola Mea cea de azi. Sunt Iisus Hristos, Domnul Cel înviat a treia zi din mormânt, după făgăduința cea scrisă în Scripturi să se împlinească, și ea s-a împlinit.[/legatura_la_teme]
 
 Amin, amin, amin.

@@ -22,7 +22,7 @@ audio_file:
 
 ... Domnul Iisus spune că va fi o zi când va trage pomul din poartă la Sine şi nu va mai fi în lume. Nu huli pe cel ce te-a bulgărit, că vei fi tras cu toate ale tale în grădina Mea. Ştiu durerea ta. E scrisă în costiţa Mea. Toată durerea ta e scrisă pe trupul Meu. De aceea am venit după tine şi plâng mereu.
 
-[legatura_la_teme id_capitol="3" id_subcapitol="1"]... Oiţele Mele, puneţi mâna pe Scriptură, că se coboară cei care se duc la lună şi la stele şi stau cu voi şi vă arată minciuna. Să nu ziceţi cum că luna şi soarele sunt lucruri străine de Mine. Să nu zici că ei au intrat pe poarta cerului şi nu au găsit pe nimeni. Acestea sunt minciuni. [/legatura_la_teme]
+[legatura_la_teme id_capitol="3" id_subcapitol="1"]... Oiţele Mele, puneţi mâna pe Scriptură, că se coboară cei care se duc la lună şi la stele şi stau cu voi şi vă arată minciuna. Să nu ziceţi cum că luna şi soarele sunt lucruri străine de Mine. Să nu zici că ei au intrat pe poarta cerului şi nu au găsit pe nimeni. Acestea sunt minciuni.[/legatura_la_teme]
 
 ... Păstraţi slujba şi viaţa cu Mine. Nu mai lucraţi sărbătorile şi duminica, fiilor. Trăiţi cu frică, tată, că uite, aveţi vecini pe lângă casă care lucrează duminica. Aveţi lume care nu mai ţine sărbătorile, şi o să vină urgia de la Mine, dar nu vă speriaţi, că peste tine nu vine dacă vei păstra acestea cu Mine. Israele, ascultă, tată, că Dumnezeu a pornit cu multă durere asupra acestui popor care lucrează duminicile. Înarmaţi-vă bine, Să nu fie în inimile voastre nimic care să vă înspăimânte, chiar de ţi-e soră, chiar de ţi-e mamă, că Dumnezeu a pornit cu rău împotriva celui rău, că Dumnezeu nu mai poate răbda lucrarea rea.
 
@@ -32,7 +32,7 @@ Creştina care are soţul la serviciu, să muncească şi pentru soţul ei pentr
 
 ... Mă duc, tată, că am un ucenic, pe iubitul vostru frate Zaharia, care e în cumpănă, nu în cumpănă de moarte. Ştii cum stau îngeraşii în casa lui? Cum stă şi găteşte cineva mireasa. E durere grea pe casa sa şi pe fiul acesta. Printre îngeraşii care sunt în casa lui, e şi surioara lui. Dacă veţi putea, să daţi şi voi pe la el până va pleca. Pregătiţi muzica pentru plecarea sa, dar să nu o luaţi unul în jos şi altul în sus. Tată, fiecare din copiii lui Zaharia să fie luaţi de creştini, că se fac răi.
 
-[legatura_la_teme id_capitol="7" id_subcapitol="3"]... Eu sunt Domnul Iisus Hristos. Nu sunt în trup, dar nu mai e mult şi voi veni în trup, şi în trup voi despărţi veacurile: pământesc, de cel duhovnicesc. Voi face un veac nou, care nu se va mai schimba şi nici nu se va mai tulbura. [/legatura_la_teme]
+[legatura_la_teme id_capitol="7" id_subcapitol="3"]... Eu sunt Domnul Iisus Hristos. Nu sunt în trup, dar nu mai e mult şi voi veni în trup, şi în trup voi despărţi veacurile: pământesc, de cel duhovnicesc. Voi face un veac nou, care nu se va mai schimba şi nici nu se va mai tulbura.[/legatura_la_teme]
 
 ... Copilaşii Mei duhovniceşti, să fiţi desăvârşiţi, să grăiţi adevărul pe pământ: ce e nu, nu; ce e da, da. Feriţi-vă de nedreptate şi de strâmbătăţi. Nu vă împrieteniţi cu păgânul, nu fi prieten cu el, căci păgânului nu-i place creştinul, ci te face prieten să te tragă în viaţa maghiară. Precum mama a purtat grijă de voi, aşa şi Eu port grija poporului Meu, de hrana duhovnicească.
 
@@ -50,7 +50,7 @@ Fiţi stăpâni pe viaţa voastră. Nu lăsaţi pe nimeni să vă stăpânească
 
 Copilaşii Mei, vedeţi voi lumea aceasta? Cu cât e ea de rea împotriva ta, cu atât, în vremea de pe urmă, va veni la tine şi îţi va cere tămăduire şi lumină, dar nu mai păcătuiţi. Să nu mai răsară nici o lăstară, să zvârli rădăcina păcatului. De aceea mulţi s-au întors de la Mine în lume, că n-au scos din inimă rădăcina şi a ieşit din nou păcatul şi s-au dus.
 
-[legatura_la_teme id_capitol="6" id_subcapitol="2"]... Fiţi desăvârşiţi. Vine vremea să te trimit să pui mâna pe acela care zace în pat, şi se va scula; şi să te rogi pentru orbi, şi se vor tămădui, ca să vadă puterea rugăciunii. Vine vremea să te duci la lagărul de deţinuţi şi să pui mâna pe lacăt, şi să se desfacă. Vine vremea, copilul Meu, că fiecare îşi va lucra meseria sa, dintre cei credincioşi. [/legatura_la_teme]
+[legatura_la_teme id_capitol="6" id_subcapitol="2"]... Fiţi desăvârşiţi. Vine vremea să te trimit să pui mâna pe acela care zace în pat, şi se va scula; şi să te rogi pentru orbi, şi se vor tămădui, ca să vadă puterea rugăciunii. Vine vremea să te duci la lagărul de deţinuţi şi să pui mâna pe lacăt, şi să se desfacă. Vine vremea, copilul Meu, că fiecare îşi va lucra meseria sa, dintre cei credincioşi.[/legatura_la_teme]
 
 Nu vă temeţi de aceştia care vă poreclesc şi care vă zic că vă ucid. Nu vă temeţi. Aceştia sunt vorbitori de basme şi făcători de rele, care vor pieri.
 

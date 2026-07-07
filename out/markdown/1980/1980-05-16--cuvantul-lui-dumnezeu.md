@@ -16,9 +16,9 @@ Poporul Meu, arma ta e crucea Mea. Poporul Meu, gloria ta e credinţa în lucrar
 
 ... O, iubitul Meu, să fii ca o lumânare de ceară curată din stupul Meu.
 
-[legatura_la_teme id_capitol="7" id_subcapitol="3"]Copilaşii Mei, nu risipiţi ceea ce v-am dăruit de douăzeci şi cinci de ani, că va veni ziua şi ceasul, cum M-am arătat lui Cleopa şi lui Luca, aşa Mă voi arăta şi vouă, şi nici unul nu veţi fi lipsiţi de a vedea acest trup care a fost răstignit. [/legatura_la_teme]
+[legatura_la_teme id_capitol="7" id_subcapitol="3"]Copilaşii Mei, nu risipiţi ceea ce v-am dăruit de douăzeci şi cinci de ani, că va veni ziua şi ceasul, cum M-am arătat lui Cleopa şi lui Luca, aşa Mă voi arăta şi vouă, şi nici unul nu veţi fi lipsiţi de a vedea acest trup care a fost răstignit.[/legatura_la_teme]
 
-O, tată, ce zi măreaţă a fost ieri! O, poporul Meu iubit, întru care am binevoit să Mă fac cunoscut! Am învăţat popoare întregi, şi iată ce am luat: patru piroane şi o coroană de spini, şi am mai luat o suliţă în coastă. [legatura_la_teme id_capitol="7" id_subcapitol="3"]Fericit cel ce va bea din izvorul acesta. [/legatura_la_teme]
+O, tată, ce zi măreaţă a fost ieri! O, poporul Meu iubit, întru care am binevoit să Mă fac cunoscut! Am învăţat popoare întregi, şi iată ce am luat: patru piroane şi o coroană de spini, şi am mai luat o suliţă în coastă. [legatura_la_teme id_capitol="7" id_subcapitol="3"]Fericit cel ce va bea din izvorul acesta.[/legatura_la_teme]
 
 O, poporul Meu, vă roagă Dumnezeu să dispară dintre voi ura, duşmănia, gelozia, mândria, încăpăţânarea, lăcomia de avere, că vor veni de la răsărit şi de la apus persoane care vor să stea aproape de lucrarea Mea. Cine să le facă lor casă? că nu mai au pământ să facă, fiindcă l-a luat Gog. Dă-le tu din acoperământul tău, că însutit vei avea şi nu te vei mai văita că n-ai loc în casa ta. Ce-Mi foloseşte Mie că am adus copii în locul acesta, şi între voi e duşmănie? Copilaşii Mei, dacă eraţi cu Mine, Îmi deschideaţi uşa de prima dată şi spuneaţi: *„Intră, frate, că nu la mine, ci la Domnul intri“.* Să dai slavă lui Dumnezeu că au venit lângă tine creştini! Dar câţi aveţi casă, de la nici unul n-am auzit: *„Vreau şi eu, Doamne, să primesc pe robul Tău sub acoperământul meu“.* Nu, tată, voi căutaţi avere bogată. Cu bani ai dat, cu bani voi da. În dar ai dat, în dar vei lua.
 

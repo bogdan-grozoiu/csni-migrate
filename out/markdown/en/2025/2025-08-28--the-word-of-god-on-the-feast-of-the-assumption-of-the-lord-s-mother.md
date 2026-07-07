@@ -9,9 +9,7 @@ audio: https://noul-ierusalim.ro/audio/1089en.mp3
 audio_file: 25.08.28-en.mp3
 ---
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-I am entering the book with a word of wakefulness and comfort, with a word of creation and light, the Lord is entering with a table of words and a holy feast.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]I am entering the book with a word of wakefulness and comfort, with a word of creation and light, the Lord is entering with a table of words and a holy feast.
 
 I am coming to you, My country of today, Romanian country. Oh, peace to you, My country! The Lord is becoming in you a light over the whole earth, beloved. My Word is the light, and I have within you, My youngest people, who share My light over the earth, and on this day I am walking with a retinue of saints and angels, and I am entering with a heavenly feast for My Virgin mother, I am entering the citadel with a table of words, for two thousand years ago, on this day, I had fulfilled her longing for My mother and I took her up to Me and to the Father, and I gave her a beautiful gift, which the Father gave Me, after I had finished My suffering on the cross, and the Father gave you to Me as the country of My coming at the end of time; however, I gave My mother to watch over you and to carry you towards God and to mark with guard from above the borders and your vineyard, My country, and I told her that you are the country of My coming with the saints at the end of time and with the new creation of the world, oh, and there must first be light, and with it I work the new creation, as in the beginning, when My word was the light and everything appeared through word, through light, and behold, the word is light, and My word makes its way over the earth and illuminates the light of My word in the darkness, and the darkness cannot overcome it, the darkness cannot face the light, oh, and that is why the Lord comes to earth as word, the light and the new creation come and can light over the darkness, it can, the Lord can work. Amen.
 
@@ -41,6 +39,4 @@ Now, the blessing of today's feast is shared with you, those gathered at My tabl
 
 May the Romanian country be glorified among the nations, My little fish, whose fins were torn from her body, but she has remained My little fish, My love, My beauty, My sign, My longing for her after seven thousand years, since I, the Lord, stood on her land and spoke all the words for the creation of heaven and earth, and all that came into being through the word, and then the creation of man from the clay of this land, and whose secret I, the Lord, have discovered upon the earth now at the end of time.
 
-Peace to you, Romanian people, My country! With you I am beginning My new sunrise, and soon, soon, the night will no longer descend upon you, and you will be My light upon the earth, for I am light upon you, I am the word of the creation of the world anew, I am your Shepherd, and you are My land on earth, My home, My coming, you are My love from the end of time, you are comfort, you are and will always be a comfort everywhere and over everything soon, soon, oh, My country of today. Amen, amen, amen.
-
-[/legatura_la_teme]
+Peace to you, Romanian people, My country! With you I am beginning My new sunrise, and soon, soon, the night will no longer descend upon you, and you will be My light upon the earth, for I am light upon you, I am the word of the creation of the world anew, I am your Shepherd, and you are My land on earth, My home, My coming, you are My love from the end of time, you are comfort, you are and will always be a comfort everywhere and over everything soon, soon, oh, My country of today. Amen, amen, amen.[/legatura_la_teme]

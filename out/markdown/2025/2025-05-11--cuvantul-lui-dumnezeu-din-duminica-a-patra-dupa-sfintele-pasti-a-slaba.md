@@ -8,9 +8,7 @@ audio: https://noul-ierusalim.ro/audio/1754.mp3
 audio_file: 25.05.11.mp3
 ---
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Bat, și Mi se deschide și intru în cetatea cuvântului Meu pe vatra neamului român și ies cuvânt scris și vestesc izbăvirea cea de la Mine, căci Eu sunt Domnul Dumnezeul tău, o, țară română, țara Mea cea de la început de timp și cea de la sfârșit de timp a Mea, iar soarta ta din toate vremile și soarta ta cea de azi este în mâna Mea și nu pot să te las de sub aripile Mele ocrotitoare peste tine și de aceea te țin cuprinsă ca pe comoara Mea cea dragă și-ți vestesc viitor ceresc și îl așez pic cu pic peste tine și vor privi la tine popoare și limbi și toți cei care află pic cu pic de slava Mea de peste tine și vei sta învăluită în lumina cea necreată, și sub care nu se mai distinge lumina cea făcută de om pentru vreme de noapte, o, și te vei arăta cu strălucire și vor ști popoarele că ești țara Mea, țara strălucirii, țara venirii Mele cuvânt peste pământ acum, la sfârșit de timp.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Bat, și Mi se deschide și intru în cetatea cuvântului Meu pe vatra neamului român și ies cuvânt scris și vestesc izbăvirea cea de la Mine, căci Eu sunt Domnul Dumnezeul tău, o, țară română, țara Mea cea de la început de timp și cea de la sfârșit de timp a Mea, iar soarta ta din toate vremile și soarta ta cea de azi este în mâna Mea și nu pot să te las de sub aripile Mele ocrotitoare peste tine și de aceea te țin cuprinsă ca pe comoara Mea cea dragă și-ți vestesc viitor ceresc și îl așez pic cu pic peste tine și vor privi la tine popoare și limbi și toți cei care află pic cu pic de slava Mea de peste tine și vei sta învăluită în lumina cea necreată, și sub care nu se mai distinge lumina cea făcută de om pentru vreme de noapte, o, și te vei arăta cu strălucire și vor ști popoarele că ești țara Mea, țara strălucirii, țara venirii Mele cuvânt peste pământ acum, la sfârșit de timp.
 
 Iar în ziua aceasta de duminică, duminica cea de dinaintea tragerii la sorți ca să se arate cel ce va sta la cârmă pentru tine, iată, te așez sub binecuvântarea Tatălui și a Fiului și a Sfântului Duh și-ți țes cu sfinții veșmânt de biruință de la Dumnezeu pentru tine și vor fi rușinați cei ce te-au robit și te-au vestit căzută, dar tu vei sta cu fruntea sus, țara Mea, o, și de aceea, pace ție iar și iar, pace peste tine și peste duhul tău, popor român! O, ridică-te și biruiește! Biruieşte-l pe tatăl minciunii și pe slujitorii lui, iar tu scutură-ți jugul și mărește-L pe Domnul Dumnezeul tău, Care Se slăvește peste tine prin cuvânt împlinit, că tu ai nume nou de Nou Ierusalim, de noua Mea țară și eşti țara venirii Domnului cuvânt pe pământ acum, la sfârșit de timp.
 
@@ -40,6 +38,6 @@ Nu e timp de slăbănogire, ci e vremea să te ridici și să mergi și să te v
 
 Amin, amin zic vouă, fii ai poporului român, voiesc să Mă aplec vouă ca să vă mulțumesc pentru ascultare, după ce ziua cea de cumpănă va trece și va aduce biruință. Dar și acum, mai înainte cu o săptămână Mă aplec înaintea voastră ca să vă aplecați cu Mine înaintea Tatălui și să spunem odată toți, iar și iar să spunem: Tată, o, Tată, fă-ne ascultători să fim și dă-ne nouă din cer, dă-ne Duhul Tău și nu-L lua de la noi pentru greșelile noastre și dăruiește-ne izbăvire după voia Ta!
 
-Iar Eu, Domnul Iisus Hristos, binecuvintez și spun: Pace vouă, fii români! Vă dau din cer și vă îndemn pe voi: Rămâneți, o, rămâneți întru iubirea Mea! Amin, amin, amin.
+Iar Eu, Domnul Iisus Hristos, binecuvintez și spun: Pace vouă, fii români! Vă dau din cer și vă îndemn pe voi: Rămâneți, o, rămâneți întru iubirea Mea! Amin, amin, amin.[/legatura_la_teme]
 
-[/legatura_la_teme][legatura_la_teme id_capitol="4" id_subcapitol="4"][/legatura_la_teme]
+[legatura_la_teme id_capitol="4" id_subcapitol="4"][/legatura_la_teme]

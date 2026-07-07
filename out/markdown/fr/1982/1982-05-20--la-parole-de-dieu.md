@@ -15,4 +15,4 @@ La Parole de la trompette de Dieu pour la repentance du monde. Les gardiens de l
 
 ... Cachez ces lettres, ne vendez pas ces lettres, car elles viennent d'en haut, du Seigneur, pas du tombeau, pas des morts. Celui qui vendra, tombera sous la condamnation de Judas l’Iscariote.
 
-[legatura_la_teme id_capitol="1" id_subcapitol="4"]... Cette couverture en cachette, qui est la mienne, là où je vous ai laissé, est et sera comme un objet saint par lequel le Seigneur a accompli son œuvre, et elle vous sera d'une grande utilité, tout comme l'arche l'était à Noé, si vous travaillerez selon la volonté de Dieu. [/legatura_la_teme]
+[legatura_la_teme id_capitol="1" id_subcapitol="4"]... Cette couverture en cachette, qui est la mienne, là où je vous ai laissé, est et sera comme un objet saint par lequel le Seigneur a accompli son œuvre, et elle vous sera d'une grande utilité, tout comme l'arche l'était à Noé, si vous travaillerez selon la volonté de Dieu.[/legatura_la_teme]

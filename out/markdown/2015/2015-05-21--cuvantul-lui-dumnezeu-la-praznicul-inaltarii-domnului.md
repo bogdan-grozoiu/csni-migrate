@@ -8,9 +8,7 @@ audio: https://noul-ierusalim.ro/audio/1273.mp3
 audio_file: 15.05.21.mp3
 ---
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-În zi de praznic de înălțare a Mea la Tatăl, Eu, Domnul Iisus Hristos, sunt plin de cuvânt și sunt plin de dor ca să-l grăiesc, că M-am vestit acum câteva zile că voi grăi cuvântul Meu cel pentru neamul român, și amintesc acestui popor că s-au scurs șaizeci de ani de când cuvântul gurii Mele se face carte pe vatra românească și merge cartea Mea peste pământ și vestește acest timp al școlii cerești, coborâtă din slavă cu Învățătorul ei peste oameni, căci Mi-am ridicat un popor pe care l-am hrănit cu cuvântul gurii Mele în tot acest timp, și l-am așezat să facă voia Mea și să fie el casa Mea, ca să vin cuvânt pe pământ la cei ce cred în minunea acestei vremi, în venirea Mea cuvânt între oameni ca să le spun lor că sunt cu graiul Meu peste pământ și să le aduc lumină, căci am spus la prima Mea venire acum două mii de ani că Eu sunt Lumina lumii, iar acum împlinesc, ca și atunci când lucram peste pământ lucrarea pentru care am venit de la Tatăl trimis, salvarea omului.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]În zi de praznic de înălțare a Mea la Tatăl, Eu, Domnul Iisus Hristos, sunt plin de cuvânt și sunt plin de dor ca să-l grăiesc, că M-am vestit acum câteva zile că voi grăi cuvântul Meu cel pentru neamul român, și amintesc acestui popor că s-au scurs șaizeci de ani de când cuvântul gurii Mele se face carte pe vatra românească și merge cartea Mea peste pământ și vestește acest timp al școlii cerești, coborâtă din slavă cu Învățătorul ei peste oameni, căci Mi-am ridicat un popor pe care l-am hrănit cu cuvântul gurii Mele în tot acest timp, și l-am așezat să facă voia Mea și să fie el casa Mea, ca să vin cuvânt pe pământ la cei ce cred în minunea acestei vremi, în venirea Mea cuvânt între oameni ca să le spun lor că sunt cu graiul Meu peste pământ și să le aduc lumină, căci am spus la prima Mea venire acum două mii de ani că Eu sunt Lumina lumii, iar acum împlinesc, ca și atunci când lucram peste pământ lucrarea pentru care am venit de la Tatăl trimis, salvarea omului.
 
 Pun masă de cuvânt pe vatra neamului român și chem la masă cu Mine fiii acestui neam, și binecuvintez din dreapta Tatălui grăirea Mea de azi, o, și binecuvintează și Tatăl tot lucrul cuvântului Meu în zi de praznic de Înălțare, zi de amintire sfântă, căci Eu, Domnul Iisus Hristos, precum M-am înălțat, tot așa și vin, și iată, vin pe nori, precum este scris.
 
@@ -46,9 +44,7 @@ Sfârșesc cuvântul Meu, și împuternicesc fiii neamului român să creadă î
 
 Așez numele Meu când Îmi sfârșesc grăirea.
 
-Iisus Hristos, Cuvântul lui Dumnezeu. Amin.
-
-[/legatura_la_teme]
+Iisus Hristos, Cuvântul lui Dumnezeu. Amin.[/legatura_la_teme]
 
 ***
 

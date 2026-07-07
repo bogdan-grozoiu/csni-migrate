@@ -36,4 +36,4 @@ Tatăl Meu, iată-Mă unde sunt! Sunt cu cei pe care-i am de la Tine, că Tu i-a
 
 *Eu sunt aici. Eu şi sfinţenia Mea. Eu şi cei ce stau întru voia Mea.*
 
-*Pace vouă, iubiţii Mei! Binecuvântată să fie, şi zi de praznic veşnic să fie această zi care este din zilele Domnului, din zilele cerului, şi vor fi de acum încolo zile noi de serbare cu cerul. Duhul Treimii Dumnezeieşti să rămână peste acest aşezământ sfânt, şi va fi odihna lui Dumnezeu acest cort dumnezeiesc. Amin, amin, amin.* [/legatura_la_teme]
+*Pace vouă, iubiţii Mei! Binecuvântată să fie, şi zi de praznic veşnic să fie această zi care este din zilele Domnului, din zilele cerului, şi vor fi de acum încolo zile noi de serbare cu cerul. Duhul Treimii Dumnezeieşti să rămână peste acest aşezământ sfânt, şi va fi odihna lui Dumnezeu acest cort dumnezeiesc. Amin, amin, amin.*[/legatura_la_teme]

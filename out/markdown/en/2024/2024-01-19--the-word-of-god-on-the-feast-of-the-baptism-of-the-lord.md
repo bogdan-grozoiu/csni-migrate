@@ -39,7 +39,7 @@ Oh, I have the citadel of My word on the Romanian land and I come after man and 
 
 All the saints have brought their work to God, and you, those who place My voice in the book and put it on the path to people, you, sons, bring the word of My mouth to the earth, and all those in heaven help you and work with you.
 
-[legatura_la_teme id_capitol="5" id_subcapitol="6"]Oh, sing to the Lord, sons, sing and dance with shouts of holy joy! Give glory to the Lord, for Whom you live on earth among men! In the love of God may My wedding feast be with you! Howl and shout for joy and sound the timbrels and confess this joy from edge to edge, so that the sons of men may also learn the joy of holy love for Christ! Give all your love to Him alone in your feast with Him, to Him alone, sons! With great humility rejoice in Him, with a gentle and humble spirit carry the Lord towards you! [/legatura_la_teme]
+[legatura_la_teme id_capitol="5" id_subcapitol="6"]Oh, sing to the Lord, sons, sing and dance with shouts of holy joy! Give glory to the Lord, for Whom you live on earth among men! In the love of God may My wedding feast be with you! Howl and shout for joy and sound the timbrels and confess this joy from edge to edge, so that the sons of men may also learn the joy of holy love for Christ! Give all your love to Him alone in your feast with Him, to Him alone, sons! With great humility rejoice in Him, with a gentle and humble spirit carry the Lord towards you![/legatura_la_teme]
 
 And now it is the feast of Epiphany, rejoice and make the Lord rejoice among you, oh, for holy joys, the reward of My saints, sons, are sorely lacking on earth.
 

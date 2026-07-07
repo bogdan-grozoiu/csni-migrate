@@ -10,9 +10,7 @@ audio_file: 16.06.05.mp3
 
 *(Mesajul Domnului către neamul român)*
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Din zori și până în zori Eu, Domnul, stau de veghe în ziua aceasta deasupra pământului român și în mijlocul acestui neam peste tot și suflu peste țară duh de veghe să aibă acest neam în această zi.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Din zori și până în zori Eu, Domnul, stau de veghe în ziua aceasta deasupra pământului român și în mijlocul acestui neam peste tot și suflu peste țară duh de veghe să aibă acest neam în această zi.
 
 Sunt cu oștiri cerești de sfinți și cu cete îngerești peste tot în țara românilor, care au de dat în ziua aceasta răspuns la întrebare, căci se trage la sorți pentru cârmuitori peste cetățile țării și nu e de stat în nepăsare, ci e de ieșit la război, de vreme ce fiii acestui neam fac jocul puterii în ziua aceasta, dar Eu, Domnul, Mă amestec în jocul lor și stau de veghe cu mare grijă și suflu trezie și ridicare la luptă pentru toți fiii români cu drept de răspuns, căci vrăjmașii de la mijloc se vor stăpâni pe mai departe peste țară și trebuie să se scoale țara la veghe, nu la privit din părți, și trebuie înțelepciunea cea de sus s-o aleagă acum neamul român și să-și stârnească unii altora românii ieșirea la luptă și să nu lase țara fără veghe din partea lor.
 
@@ -48,6 +46,4 @@ Las pacea Mea peste neamul și pământul român, dar lângă pace scriu război
 
 O, neam român, cântă-ți imnul deșteptării și ocrotește-ți soarta și lasă cuvântul Meu să poată peste tine și lasă-te să poți prin cuvântul Meu cel plin de putere. O, pace ție în vreme de război! Pace duhului tău prin duhul înțelepciunii de sus acum, în ziua aceasta a cuvântului tău pentru țară.
 
-Numele Meu este *Cuvântul lui Dumnezeu*, iar numele tău este Țara Domnului, Țara strălucirii, țara Mea cea de azi, țara românilor, căci cuvântul Meu este lumină mare, iar Eu, Domnul, atât cât sunt în lume Lumină a lumii sunt, precum este scris. Amin, amin, amin.
-
-[/legatura_la_teme]
+Numele Meu este *Cuvântul lui Dumnezeu*, iar numele tău este Țara Domnului, Țara strălucirii, țara Mea cea de azi, țara românilor, căci cuvântul Meu este lumină mare, iar Eu, Domnul, atât cât sunt în lume Lumină a lumii sunt, precum este scris. Amin, amin, amin.[/legatura_la_teme]

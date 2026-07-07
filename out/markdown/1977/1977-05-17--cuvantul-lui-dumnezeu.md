@@ -26,7 +26,7 @@ Vine vremea ca toată noaptea să stai în rugăciune, că ziua n-ai timp, că v
 
 Are femeia sau bărbatul dorinţa să meargă braţ la braţ pe drum. Tată, duhovniceşte nu este voie să mergi braţ la braţ pe drum. Mergi împreună cu soţul sau cu soţia, dar de ce nu s-ar putea să mergi alăturea? De ce numai la braţ?
 
-[legatura_la_teme id_capitol="2" id_subcapitol="3"]... Floricelele Mele, să doriţi să vă sfinţiţi, că au început să se dărâme bisericuţele, unde se punea masa pentru cei aleşi ai Mei. S-au surpat în toată ţara aproape trei mii de bisericuţe, care putea să nu se întâmple aşa, dar s-a întâmplat pentru păcat, că a intrat lucru spurcat şi le-a întinat. [/legatura_la_teme]
+[legatura_la_teme id_capitol="2" id_subcapitol="3"]... Floricelele Mele, să doriţi să vă sfinţiţi, că au început să se dărâme bisericuţele, unde se punea masa pentru cei aleşi ai Mei. S-au surpat în toată ţara aproape trei mii de bisericuţe, care putea să nu se întâmple aşa, dar s-a întâmplat pentru păcat, că a intrat lucru spurcat şi le-a întinat.[/legatura_la_teme]
 
 ... Nu fiţi minciună, că minciuna se pedepseşte. Fii adevăr, fii desăvârşit ca un sfânt; că v-a pus nume această lume: „sfinţi“, dar voi sunteţi păcătoşi. A venit vestea la cerul sfânt că pe această stradă sunt sfinţi. Amin. Aşa să fie. Să nu fiţi minciună. Toată suflarea să se oprească şi să se plece în faţa voastră.
 

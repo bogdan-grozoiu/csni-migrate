@@ -29,7 +29,7 @@ Keep with Your hand the Romanian crown!”.
 
 *My loved ones, the true joy will come and there shall no longer be eyes to shackle the Lord’s thing and joys. Mother Gigi* (Verginica, r.n.) *embraces you. And, again, for all the good ones that belong to her, she also says: Christ is risen! Peace to you!*
 
-*Peace to the anointed one of Romania! Peace to his painful heart, for his heart is full of pain!* [/legatura_la_teme]
+*Peace to the anointed one of Romania! Peace to his painful heart, for his heart is full of pain!*[/legatura_la_teme]
 
 *Peace over you all, and over the Lord’s thing from you! Christ is risen! He is truly risen! Amen, amen, amen”.*
 

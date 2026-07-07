@@ -38,7 +38,7 @@ Lumea stă în păcate cu toți fiii ei, iar păcatul alungă rugăciunea și da
 
 Când într-un cămin de creștini nu dăinuiesc rugăciunea și pacea dragostei pentru statul Meu cu cei din casa aceea, Eu nu mai am părtășie cu ei, iar îngerii stau departe neputincioși sub nemulțumiri și neînțelegeri și nedragoste și duh de judecată între frați, și-și pierd mintea oricât ar găsi ei cu cale că au minte, o, și nu știu ei că numai dragostea cea pentru cer poate să păstreze frații nedespărțiți, dar iată, duhul trufiei lucrează fin și îl judecă pe om în locul lui Dumnezeu și se face omul judecător, și e păcat așa.
 
-*O, Doamne, ai pus mereu povață în cuvânt, iar eu privesc tot timpul peste toți cei ce cred venirea Ta și aș vrea să-i călăuzesc în parte dacă se poate, sau laolaltă călăuzire și fiecare să ia de pe masă pentru sine, căci fără povață sau veghe din cer nu poate nimeni să se păstreze fiu al lui Dumnezeu, fiu al cuvântului Tău.* [/legatura_la_teme]
+*O, Doamne, ai pus mereu povață în cuvânt, iar eu privesc tot timpul peste toți cei ce cred venirea Ta și aș vrea să-i călăuzesc în parte dacă se poate, sau laolaltă călăuzire și fiecare să ia de pe masă pentru sine, căci fără povață sau veghe din cer nu poate nimeni să se păstreze fiu al lui Dumnezeu, fiu al cuvântului Tău.*[/legatura_la_teme]
 
 *Iată însă, sunt dintre cei ce cred, dar care-și fac planuri pentru viața cea vremelnică în lume și-și pierd grija pentru veșnicia care vine curând ca să cuprindă pe fiii ei care o așteaptă prin trăirea cea pentru ea, și nu pentru cea vremelnică, din care omul nu rămâne cu nimic ca și toată lumea care-și strânge să aibă, dar pentru pieire strânge tot ce lucrează ea să aibă.*
 

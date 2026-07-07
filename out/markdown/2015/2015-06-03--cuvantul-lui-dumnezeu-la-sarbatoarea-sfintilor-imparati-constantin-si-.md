@@ -20,7 +20,7 @@ E zi de sărbătoare între cei din cer în această zi. Au cetele cerești săr
 
 *O, eu am fost împărat pe pământ și mi-a trimis Hristos de lucru și am lucrat pentru El și pentru cei care-L iubeau pe El pe pământ, și am fost răsplătit în cer pentru lucrul adus Domnului în vreme de durere pentru El și pentru ai Săi de pe pământ.*
 
-*Creștin înseamnă să crezi că totul vine de la El și să înțelegi aceasta, și să nu închizi Domnului ușa când bate ca să-I deschizi, ci, din contra, să fii gata în toată clipa să-L servești pe El, pe Cel ce a făcut cerul și pământul și omul, căci El are lucrul Său pe pământ tot timpul.* [/legatura_la_teme]
+*Creștin înseamnă să crezi că totul vine de la El și să înțelegi aceasta, și să nu închizi Domnului ușa când bate ca să-I deschizi, ci, din contra, să fii gata în toată clipa să-L servești pe El, pe Cel ce a făcut cerul și pământul și omul, căci El are lucrul Său pe pământ tot timpul.*[/legatura_la_teme]
 
 *O, iată, nu sunt creștini creștinii, de vreme ce nici mai-marii de peste ei nu sunt creștini cu inima din ei și cu credința și cu fapta credinței, și mai degrabă cei mărunți sunt mai mult decât cei mari creștini cu frică de Dumnezeu, că fără frică de Dumnezeu nu poate nimeni să aleagă de cale a sa pe Domnul. Când Domnul m-a cerut să-I lucrez, eu I-am lucrat, dar mulți s-au dat atunci mai creștini decât creștinii, iar păcatul fățărniciei a căzut peste mulți dintre cei cu vază între oameni, vrând ei să fie în față ca după o ispravă de toată ziua, dar n-au căutat aceștia să fie creștini cu inima și cu fapta, ci numai cei adevărați cu inima au avut parte de izbânda cea de la Dumnezeu, o, și câtă erezie era pe pământ în vremea aceea!*
 

@@ -22,7 +22,7 @@ O, fiule ales şi uns de cuvântul Meu peste vremea aceasta a venirii Mele a dou
 
 Tu eşti martorul Meu cel credincios. Sunt doisprezece ani de când cuvântul tău mărturiseşte de lângă această piatră pietricica cea albă pe care am voit s-o dau în dar bisericii lumii din care Eu te-am ales al Meu şi te-am mărit pentru credinţa ta, ca să dau prin tine mâna la toţi cei care ar fi voit să se facă prin sfinţenie fii ai lui Dumnezeu şi apostoli ai cuvântului Meu care vine cu norii şi care este luat de cele patru vânturi şi dus de la margini la margini, ca să vină spre acest munte al Meu neamurile pământului şi să primească slava Mea spre sfinţenia lor, căci sfinţenia este sfârşitul lumii. Amin.
 
-Tu eşti în lanţuri de atâta vreme, dar Eu îţi trimit în taină pe Duhul Sfânt Mângâietorul şi te înfăşor cu ocrotirea Lui şi îţi spun: pace ţie şi fericire ţie că rabzi până la plinirea răbdării, până voi depărta pe toţi vrăjmaşii Mei şi ai tăi, fie prin învierea, fie prin osândirea lor, căci Eu grăiesc acest cuvânt ca să-l împlinesc, Amin. [/legatura_la_teme]
+Tu eşti în lanţuri de atâta vreme, dar Eu îţi trimit în taină pe Duhul Sfânt Mângâietorul şi te înfăşor cu ocrotirea Lui şi îţi spun: pace ţie şi fericire ţie că rabzi până la plinirea răbdării, până voi depărta pe toţi vrăjmaşii Mei şi ai tăi, fie prin învierea, fie prin osândirea lor, căci Eu grăiesc acest cuvânt ca să-l împlinesc, Amin.[/legatura_la_teme]
 
 O, bucuraţi-vă, voi, sfinţi şi îngeri, care veniţi cu Mine din slavă, căci Tatăl Ne dă sărbătoare nouă pentru ziua de slavă a sărbătorii de azi şi Se slăveşte cu cuvântul Său prin Fiul Său. Amin.
 

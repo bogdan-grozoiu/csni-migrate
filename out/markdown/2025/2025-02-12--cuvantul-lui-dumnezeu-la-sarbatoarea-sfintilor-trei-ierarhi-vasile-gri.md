@@ -8,9 +8,7 @@ audio: https://noul-ierusalim.ro/audio/1736.mp3
 audio_file: 25.02.12.mp3
 ---
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Se deschid cerurile și vine pe pământ cuvântul lui Dumnezeu pe vatra neamului român.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Se deschid cerurile și vine pe pământ cuvântul lui Dumnezeu pe vatra neamului român.
 
 Sunt Domnul Iisus Hristos și cobor cu slavă, iar slava Mea este cuvântul și adun sub el pe cei de pe scaunele de veghe ale țării, o, că le grăiesc lor de o vreme și au de dat răspuns lui Dumnezeu, Care le grăiește lor în zile de grea încercare peste neamul român și le spune lor așa:
 
@@ -46,6 +44,4 @@ Am luat aminte cuvântul rostit pentru țară înaintea lui Dumnezeu, căci a fo
 
 O, binecuvântată să fii tu între popoare, țară română, iar cine pe tine te va binecuvânta pe pământ nu-și va pierde plata, că tu ești fata Mea frumoasă, ești mângâierea Mea cea de la Tatăl, și vei fi lumina Mea peste popoare precum Eu sunt.
 
-Pace ție! Ai nume mare, țara Mea. Ești țara cuvântului lui Dumnezeu peste pământ. Amin, amin, amin.
-
-[/legatura_la_teme]
+Pace ție! Ai nume mare, țara Mea. Ești țara cuvântului lui Dumnezeu peste pământ. Amin, amin, amin.[/legatura_la_teme]

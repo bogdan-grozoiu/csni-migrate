@@ -13,6 +13,4 @@ Le conseil pour amener le roi Michel et l'esprit de repentir sur l'administratio
 
 [legatura_la_teme id_capitol="3" id_subcapitol="4"]... Et tant que ne viendra pas celui qui va travailler selon la volonté de Dieu et mettra la Roumanie en lumière, je ne M'apaiserai pas.
 
-.. Oh, Sanhédrin d'aujourd'hui, Je t'ai gardé à la tête de l'Église avant, mais Je t'ai gardé pour que tu appartiennes à Dieu pour toujours, et que tu ne t'assieds pas contre Lui. Voulez-vous être comme le Sanhédrin qui M’a mis sur la croix dans l’ancienne Jérusalem?
-
-[/legatura_la_teme]
+.. Oh, Sanhédrin d'aujourd'hui, Je t'ai gardé à la tête de l'Église avant, mais Je t'ai gardé pour que tu appartiennes à Dieu pour toujours, et que tu ne t'assieds pas contre Lui. Voulez-vous être comme le Sanhédrin qui M’a mis sur la croix dans l’ancienne Jérusalem?[/legatura_la_teme]

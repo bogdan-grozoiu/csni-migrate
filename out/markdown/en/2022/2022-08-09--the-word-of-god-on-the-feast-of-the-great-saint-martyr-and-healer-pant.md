@@ -31,9 +31,7 @@ Listen My people, listen all the time to each My word for you which is to be ful
 
 Sons, sons, be joy, healing and power on the way with the Lord for each other, and these especially for My descending to you. Give to each other holy comforts and you will be comforted. Be full of Christ, as it is hard without the Lord and that the sons of the world may not know this, but let them hear from Me that I am telling you these and let them seek to be full of God, as satan with his walking and his much fruit rule on earth, and people do no longer see the way to life, as it is hidden, and satan keeps on hiding it from the people’s face and mind and he shows them only the way to hell.
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Oh, sons of men, keep away from the things coming out of the hell! But you are to keep away from them, Romanian sons! Stand up against satan and wage war against him, for you are marked with the seal of the Holy Trinity, the Father, the Son and the Holy Spirit, and God’s kingdom has nothing in this world but only in the Christians’ heart who keep the way from the beginning of My church without it changing.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Oh, sons of men, keep away from the things coming out of the hell! But you are to keep away from them, Romanian sons! Stand up against satan and wage war against him, for you are marked with the seal of the Holy Trinity, the Father, the Son and the Holy Spirit, and God’s kingdom has nothing in this world but only in the Christians’ heart who keep the way from the beginning of My church without it changing.
 
 Oh, mark yourselves all the time with the sign of the holy cross, Romanian sons! Whenever satan and his servants appear, make the sign of the cross, Romanian sons, crossing the three fingers of your right hand and mark your forehead, your chest and shoulders with the sign of the holy Trinity, of the holy cross, and you will see great miracles and you will also see satan’s mourning, for the evil spirit burns like fire before the holy cross, and let it be your healing from the traps full of danger caused by satan on the way over the men’s sons; however, you are Romanians, and you have to appear that you are on God’s side and so that satan may see this.
 
@@ -41,6 +39,4 @@ Now, peace to you! The cross and its power are the victory of the good and faith
 
 Peace to you, Romanian sons! Strengthen under watch your country with the power of the holy cross! Love your country, love the Lord your God and be awake against the opposing spirit, as God teaches you this!
 
-Oh, peace to you, blessing to you, victory through the cross to you, sons of the Romanian people, now and forever, oh, sons! Amen, amen, amen.
-
-[/legatura_la_teme]
+Oh, peace to you, blessing to you, victory through the cross to you, sons of the Romanian people, now and forever, oh, sons! Amen, amen, amen.[/legatura_la_teme]

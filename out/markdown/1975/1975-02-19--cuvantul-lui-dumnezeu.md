@@ -14,7 +14,7 @@ audio_file:
 
 Fiilor, pe pământ sunt mulţi creştini, dar sunt numai pe jumătate creştini, şi pe jumătate sunt păgâni. De ce? Când este vorba de rugăciune, când este vorba de post sau când este vorba de o milostenie sau de bisericuţă sau de alte fapte bune, le vine greu. Aceşti creştini sunt numai cu numele, dar sunt bogaţi în lucrurile rele.
 
-[legatura_la_teme id_capitol="7" id_subcapitol="3"]... Veniţi la Mine, copilaşii Mei, veniţi şi auziţi cuvântul Meu! Veniţi să-L vedeţi pe Dumnezeu, că va veni vremea să-L vedeţi pe Dumnezeu în trup cât mai staţi voi pe pământ. Veniţi ca să auziţi cuvântul Său, căci cerul s-a deschis şi Domnul S-a aprins de dorul tău. [/legatura_la_teme]
+[legatura_la_teme id_capitol="7" id_subcapitol="3"]... Veniţi la Mine, copilaşii Mei, veniţi şi auziţi cuvântul Meu! Veniţi să-L vedeţi pe Dumnezeu, că va veni vremea să-L vedeţi pe Dumnezeu în trup cât mai staţi voi pe pământ. Veniţi ca să auziţi cuvântul Său, căci cerul s-a deschis şi Domnul S-a aprins de dorul tău.[/legatura_la_teme]
 
 ... De ce jeliţi voi morţii care pleacă de pe pământ de la voi şi îi petreceţi până la groapă? O, tată, copilaşii Mei, nu mai petreceţi morţii care sunt în păcate, ci petreceţi morţii care I-au slujit lui Dumnezeu, că aceia pleacă de pe pământ la cer.
 

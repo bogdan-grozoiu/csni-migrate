@@ -37,6 +37,6 @@ Oh, paix à vous, serviteurs d’églises, mais recevez la parole de Dieu en vou
 
 Oh, derrière Moi, satan, derrière Moi, toi, l’antéchrist! Va aux terres désertes, et liasse le peuple chrétien, car il est le peuple de Dieu, l’Eternel Vivant! Sois sage, car Moi, le Seigneur Jésus-Christ, Je t’ordonne cela, et toi tu devras l’obéir. Amen.
 
-Oh, paix à toi, peuple de Ma parole, au milieu duquel Je parle à toi et à ceux vers qui elle se dirige pour être travaillée. Amen. [/legatura_la_teme]
+Oh, paix à toi, peuple de Ma parole, au milieu duquel Je parle à toi et à ceux vers qui elle se dirige pour être travaillée. Amen.[/legatura_la_teme]
 
 Paix à toi, église du peuple roumain, car Je t’offre de la foi sainte, pour ta victoire avec Moi en ces jours, et pour Ma gloire, la gloire de Dieu au milieu de toi. Amen, amen, amen.

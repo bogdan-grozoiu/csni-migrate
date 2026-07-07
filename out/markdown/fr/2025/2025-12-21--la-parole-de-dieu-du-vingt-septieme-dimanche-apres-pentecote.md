@@ -11,9 +11,7 @@ audio_file: 25.12.21-fr.mp3
 
 Je suis le Bon Pasteur, J’ai voix et parole et Je souhaite travailler l’œuvre de Pasteur et c’est pour cela que Je viens sur la terre voix et parole, pour qu’elle soit écrite Ma parole et que je paisse avec elle les brebis que le Père Me donne pour les conduire à Mon pâturage et au Père, et de Sa main personne ne peut les prendre, comme il est écrit, et voilà, en jour de dimanche Je mets dans le livre la parole et Je la donne comme nourriture à Mes brebis qui marchent après Moi, car elles connaissent Ma voix et Me déclarent comme leur Pasteur venu du ciel, pour accomplir Mon obéissance envers le Père, et ceux qui ne croient pas, ils n’ont pas la possibilité de croire si elles ne sont pas de Mes brebis, qui connaissent Ma voix et suivent Ma trace pour les nourrir, pour les protéger contre les loups et leur enseigner la marche auprès de leur Pasteur.
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Paix sur toi Mon pays que Je pais avec grande envie céleste, car cette envie grandit beaucoup quand elle est nourrie par l’esprit de la charité.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Paix sur toi Mon pays que Je pais avec grande envie céleste, car cette envie grandit beaucoup quand elle est nourrie par l’esprit de la charité.
 
 Ma paix et Mon amour Je te les donne encore et encore Mon pays celui depuis toujours le Mien, depuis le temps où J’ai demeuré sur la terre et J’ai bâti l’homme de ta glaise, depuis lors et jusqu’aujourd’hui le Mien, et c’est pour cela que Mon envie est grande, que depuis sept mille ans Je désire unir le début avec la fin et J’ai envie de venir sur la terre et parler de la nouvelle création du monde, dont on écrit dans les Ecritures de venir et d’exister cet accomplissement, et toi tu es Mon pays désiré et Je suis ton Pasteur et soleil brillant sept fois plus, comme il est écrit, et Je suis la lumière du monde, Mon pays, car Ma parole était et elle est la lumière qui brille dans l’obscurité en éclairant, oh, et elle se fâche cette obscurité inhabituée avec la lumière au-dessus d’elle, mais la lumière vient si le temps de venir est arrivé, et elle vient et viendra pour éclaircir l’obscurité, qui s’éloigne de la lumière et se cache en cachant tant de mensonge sous elle, tant de méchanceté, tant de refroidissement, tant d’hypocrisie, tout cela l’œuvre de l’obscurité dévoilée par le travail de la lumière, par Ma venue en parole de Pasteur aux hommes sur la terre.
 
@@ -41,6 +39,4 @@ Sur la terre tout est à l’envers, car c’est ainsi quand les hommes sont eux
 
 Que la lumière soit! Voilà Mon œuvre de Pasteur venu du Père aux hommes, et Je laisse la grâce de Ma parole au-dessus du pays de Mon retour du Père et Je dis:
 
-Paix à toi, Mon pays roumain! Elle vient à toi la lumière du monde, Il vient le Seigneur et Il éclaire ta terre, et on va voir de partout Sa lumière, la lumière du monde, Jésus-Christ sous Son nouveau nom, *la Parole de Dieu* sur ton foyer, oh, Mon pays, celui d’aujourd’hui le Mien. Amen, amen, amen.
-
-[/legatura_la_teme]
+Paix à toi, Mon pays roumain! Elle vient à toi la lumière du monde, Il vient le Seigneur et Il éclaire ta terre, et on va voir de partout Sa lumière, la lumière du monde, Jésus-Christ sous Son nouveau nom, *la Parole de Dieu* sur ton foyer, oh, Mon pays, celui d’aujourd’hui le Mien. Amen, amen, amen.[/legatura_la_teme]

@@ -14,4 +14,4 @@ Dumnezeu vrea să iasă la lumină cu conducerea Sa. Dumnezeu vrea să fie cunos
 
 [legatura_la_teme id_capitol="4" id_subcapitol="5"]... Acum, Dumnezeu are un pic de lucru, ca pe ai Săi să-i pregătească şi pe vrăjmaşul să-l cucerească, şi aceasta se face cu dureri. Vreau să ies la lumină cu conducere dumnezeiască, să fie cunoscută pe tot pământul lucrarea lui Dumnezeu. Până n-o ieşi conducătorul care să conducă pe placul lui Dumnezeu, nu se linişteşte ţara.
 
-Toţi preoţii care slujesc bisericuţele pentru pântece şi pentru bani, nici unul nu va rămâne. [/legatura_la_teme]
+Toţi preoţii care slujesc bisericuţele pentru pântece şi pentru bani, nici unul nu va rămâne.[/legatura_la_teme]

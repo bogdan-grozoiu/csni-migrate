@@ -9,9 +9,7 @@ audio:
 audio_file: 
 ---
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-With an angelic suite and with groups of saints I am descending over the earth My Spirit and Word.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]With an angelic suite and with groups of saints I am descending over the earth My Spirit and Word.
 
 Shall I say who I am? I am Who I am. I am the Son of God the Father, and I am His Word. I am Jesus Christ, the Lord, and I have been writing Myself down on the hearth of the Romanian land for more than fifty years and I have been working more and more, however, not as much as the man who opposes Me and who keeps on being confused in his language, in his blind fight and in his work, with which he tries to plunder the flock like a wolf hungry after the sheep, that has its den into the deep, in its darkness.
 
@@ -101,6 +99,4 @@ I am Who I am. I am Jesus Christ, the Son of God the Father, and I am His Word o
 
 Peace, peace over the earth!
 
-Peace, peace on earth as in heaven! Amen, amen, amen.
-
-[/legatura_la_teme]
+Peace, peace on earth as in heaven! Amen, amen, amen.[/legatura_la_teme]

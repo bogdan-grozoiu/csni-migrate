@@ -28,9 +28,9 @@ Copiilor, pentru voi am certat pe împărat, şi i-am zis: *«Nu vă atingeţi d
 
 ... Copiii Mei, fiţi ai Scripturii, fiţi ai cerului.
 
-[legatura_la_teme id_capitol="6" id_subcapitol="1"]... Omule care ai femeie, trăieşte cu ea ca şi când n-ai avea femeie. Şi zic femeii: femeie, trăieşte cu bărbatul tău ca şi când n-ai avea bărbat. [/legatura_la_teme][legatura_la_teme id_capitol="3" id_subcapitol="4"]
+[legatura_la_teme id_capitol="6" id_subcapitol="1"]... Omule care ai femeie, trăieşte cu ea ca şi când n-ai avea femeie. Şi zic femeii: femeie, trăieşte cu bărbatul tău ca şi când n-ai avea bărbat.[/legatura_la_teme]
 
-... O, tată, preotul de altădată nu schimba hăinuţa sa, dar acum am întâlnit preot în haine la fel cu lumea. Am întâlnit preot cu ceas la mână şi cu fundă la gât. [/legatura_la_teme]
+[legatura_la_teme id_capitol="3" id_subcapitol="4"]... O, tată, preotul de altădată nu schimba hăinuţa sa, dar acum am întâlnit preot în haine la fel cu lumea. Am întâlnit preot cu ceas la mână şi cu fundă la gât.[/legatura_la_teme]
 
 Copilaşii Mei care porniţi să Mă căutaţi, toţi poftiţi serviciu. Eu nu vă opresc de la serviciu; căutaţi. Voi nu ştiţi. Vă e frică de foame şi de sărăcie, dar moşii şi strămoşii voştri au iubit sărăcia. Eu nu vă opresc de la serviciu, dar vă spun că pe lângă serviciu aţi pierdut lucrul Meu. O, dacă te-aş şti prea vrednic, aş zice: du-te la serviciu, că nu Mă tem că pieri. Da, şi Eu am avut serviciu şi meserie, şi lucram împreună cu tatăl Meu la fierăstrău, şi mama Mea torcea şi Mă ţinea şi nu a căzut niciodată.
 

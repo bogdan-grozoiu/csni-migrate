@@ -39,7 +39,7 @@ Mes enfants bien-aimés, avec beaucoup de souffrance et beaucoup de larmes payé
 
 … Il n'y a rien, rien, du bout du doigt jusqu'au bout des pieds, il n'y a rien de sain dans ce corps dont je Me sers. Et les entrailles, et la cervelle dans la tête, et l'estomac, tout est pourri, trempé dans l’eau. C'est comme une éponge avec laquelle on s’essuie la poussière des chaussures, c'est à ce point que tout est trempé en elle. Et il reste encore peu de temps, et cette vie s'éteindra, car elle est amèrement partout frappée.
 
-[legatura_la_teme id_capitol="7" id_subcapitol="3"]... Beaucoup d'entre vous n'auront pas de mort, et beaucoup, au moment où le Seigneur apparaîtra dans Sa gloire, seront couchés sur le dos, endormis dans leur maison. Et alors on criera: *«Hosanna, Fils de Dieu!».* [/legatura_la_teme]
+[legatura_la_teme id_capitol="7" id_subcapitol="3"]... Beaucoup d'entre vous n'auront pas de mort, et beaucoup, au moment où le Seigneur apparaîtra dans Sa gloire, seront couchés sur le dos, endormis dans leur maison. Et alors on criera: *«Hosanna, Fils de Dieu!».*[/legatura_la_teme]
 
 … Je te le répète, Mon fils: il y a beaucoup de chrétiens dans l'usine, et dans cette usine il y a aussi des chiens et des agneaux vêtus de peaux de loup. Ne vous asseyez pas à table avec des esprits impurs, ne buvez pas de l'eau d'un vase contenant des esprits impurs. Votre nourriture et votre comportement doivent être spéciaux. Je dirais, si c'est possible, travaillez de chez vous et si ce n'est pas possible, je vous demande: pouvez-vous porter deux sacs? C'est-à-dire un pour Gog et un autre pour Dieu?
 

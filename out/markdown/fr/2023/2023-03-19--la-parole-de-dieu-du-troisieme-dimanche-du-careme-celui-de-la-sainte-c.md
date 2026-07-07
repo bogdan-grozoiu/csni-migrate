@@ -11,9 +11,7 @@ audio_file: 23.03.19-fr.mp3
 
 Au nom du Père et du Fils et du Saint-Esprit, c’est en ce nom que Moi, le Seigneur, J’ai établi il y a deux mille ans la consécration par le signe de la sainte croix du peuple chrétien, qui Me suit par le renoncement à soi, pour que Je sois pour lui vrai Dieu de vrai Dieu, car c’est par la croix que Je Me suis fait connu comme venu du ciel pour être né Homme sur la terre, et Je suis venu, et J’ai passé par la mort pour ressusciter ensuite afin qu’on prenne connaissance de la première venue du Seigneur, et qu’on attende ensuite Ma deuxième venue, dont J’avais dit qu’elle sera accomplie, et qu’on bâtira le ciel nouveau et la terre nouvelle et la nouvelle Jérusalem, et c’est dès lors que J’ai mis sur le front de la terre et du peuple roumain Mon nouveau nom, *la Parole de Dieu*, et le nom de la nouvelle cité, celui de la nouvelle Jérusalem, qui vient avec Moi d’auprès de Dieu, et J’ai dit: *«Nous faisons toutes les choses nouvelles»*. Amen.
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Oh, que la paix soit avec vous, avec ceux qui Me faites l’accueil lorsque Ma voix parle de votre dessus, pour que vous Me mettiez en parole dans Mon livre d’aujourd’hui!
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Oh, que la paix soit avec vous, avec ceux qui Me faites l’accueil lorsque Ma voix parle de votre dessus, pour que vous Me mettiez en parole dans Mon livre d’aujourd’hui!
 
 Oh, paix à toi, terre et peuple roumain! C’est ici que J’ai mis la tente de Ma venue en parole au-dessus de la terre, si le Père M’a envoyé afin de venir de nouveau, et Moi, comment pourrais-J e ne pas obéir au Père et ne pas venir?
 
@@ -33,13 +31,11 @@ Oh, peuple roumain, oh, les fils, que vous n’ayez pas honte avec Moi, avec le 
 
 Paix à toi, donc, terre et peuple roumain, et tiens-toi sous la bénédiction du Père et du Fils et du Saint-Esprit et n’aies pas honte avec la croix, avec le signe du Fils de l’Homme, et prends de Ma source de ton milieu la parole de Ma bouche et apprends la vie de saint, car les pécheurs n’aiment pas la sainteté, mais c’est le péché qu’ils aiment, mais toi tu es Mon peuple et celui de tes ancêtres saints et fidèles, ceux avec la croix sur leur front et devant eux au bien et au mal, oh, et n’oublie pas ce que tu es et qui tu es, peuple roumain!
 
-C’est Moi, le Seigneur, Qui te dit tout cela au nom du Père et du Fils et du Saint-Esprit. Amen.
-
-[/legatura_la_teme]
+C’est Moi, le Seigneur, Qui te dit tout cela au nom du Père et du Fils et du Saint-Esprit. Amen.[/legatura_la_teme]
 
 Fraiche bénédiction Je descends sur la cité de Ma parole du milieu du peuple roumain et sur tout Mon travail actif en elle, et par elle au-dessus de la terre, car c’est d’ici qu’elle coule la rivière de la vie en toutes directions, comme il est écrit!
 
-[legatura_la_teme id_capitol="5" id_subcapitol="6"]Je bénis Moi, le Seigneur, le travail saint pour l’élaboration du livre de l’histoire de Ma parole sur le foyer du peuple roumain! Que rien ne remplace l’attention pour la construction de ce témoignage, et c’est pour cela, avec toutes les puissances célestes en travail, on bénit par le Père, le Fils et le Saint-Esprit la sortie à la lumière de Ma difficile marche par Ma trompette Virginie, dès sa naissance et jusqu’à vous, fils qui portez Ma venue, laissée par elle pour que vous la portiez plus loin, car Je suis Celui Qui vient, et vous êtes ceux qui Me recevez et qui travaillez pour la distribution de Ma parole au-dessus de la terre! [/legatura_la_teme]
+[legatura_la_teme id_capitol="5" id_subcapitol="6"]Je bénis Moi, le Seigneur, le travail saint pour l’élaboration du livre de l’histoire de Ma parole sur le foyer du peuple roumain! Que rien ne remplace l’attention pour la construction de ce témoignage, et c’est pour cela, avec toutes les puissances célestes en travail, on bénit par le Père, le Fils et le Saint-Esprit la sortie à la lumière de Ma difficile marche par Ma trompette Virginie, dès sa naissance et jusqu’à vous, fils qui portez Ma venue, laissée par elle pour que vous la portiez plus loin, car Je suis Celui Qui vient, et vous êtes ceux qui Me recevez et qui travaillez pour la distribution de Ma parole au-dessus de la terre![/legatura_la_teme]
 
 Paix à vous, les fils! C’est l’Esprit Saint Qui vous veille, Qui vous inspire de Dieu, et vous, soyez aimants de ceux du ciel, qui vous veillent!
 

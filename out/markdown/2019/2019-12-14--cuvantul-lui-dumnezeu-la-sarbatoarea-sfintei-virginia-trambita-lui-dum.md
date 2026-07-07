@@ -50,7 +50,7 @@ O, Verginica, Mea, Ne-am strâns în ziua ta de serbare cu toate cele trei zile 
 
 *Unul pentru altul, asta înseamnă veghea cea sfântă, fiilor. Pe Domnul nu trebuie să te superi ca pe om, ci primește totul ca de la Dumnezeu fără să te superi, căci Domnul știe cu ce te poate vindeca, iar dacă sufletele se vor vindeca vor veni spre bine și trupurile, că Domnul va da, căci dacă-i ceri unui om să se roage pentru tine te ia în spate cu suferința ta și se îmbolnăvește și el ca și tine, dar sufletul îi rămâne tot bolnav, tot ca și trupul, și mai bine este să-l rogi pe cel bolnav să-și lase păcatele, de la care vin suferințe apoi peste trup.*
 
-*O, fiilor, ce mult v-aș învăța! O, stați cu Domnul și învățați de la El iubirea de Dumnezeu și de frați, și altă fericire să nu doriți voi cu nici un chip, fiilor.* [/legatura_la_teme]
+*O, fiilor, ce mult v-aș învăța! O, stați cu Domnul și învățați de la El iubirea de Dumnezeu și de frați, și altă fericire să nu doriți voi cu nici un chip, fiilor.*[/legatura_la_teme]
 
 *Așa i-am învățat, Doamne, pe ei acum, și m-au privit oaspeții cei cerești, cu care am venit la masa amintirilor Noastre, iar Noi lucrăm peste ei sus și jos mângâierea, o, Doamne.*
 

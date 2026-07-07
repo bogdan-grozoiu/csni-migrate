@@ -8,9 +8,7 @@ audio: https://noul-ierusalim.ro/audio/1760.mp3
 audio_file: 25.06.08.mp3
 ---
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Norul slavei venirii Mele stă deasupra pământului român și-Mi las cuvântul în cartea sa cea de azi în zi de praznic de Rusalii și am însoțitori cele nouă ceruri cu toate straturile de slavă și-Mi stau în slujire puterile cerești și îngerești, și Eu vin și-Mi lucrez venirea și Mi-o vestesc peste pământ Eu Însumi când vin în sărbători ca să păstoresc, căci sunt Păstor și am nume minunat, *Cuvântul lui Dumnezeu* este acest nume minunat al Meu.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Norul slavei venirii Mele stă deasupra pământului român și-Mi las cuvântul în cartea sa cea de azi în zi de praznic de Rusalii și am însoțitori cele nouă ceruri cu toate straturile de slavă și-Mi stau în slujire puterile cerești și îngerești, și Eu vin și-Mi lucrez venirea și Mi-o vestesc peste pământ Eu Însumi când vin în sărbători ca să păstoresc, căci sunt Păstor și am nume minunat, *Cuvântul lui Dumnezeu* este acest nume minunat al Meu.
 
 Eu sunt Cel ce sunt. Sunt Fiul și Cuvântul Tatălui și-Mi dă Tatăl de lucru pe pământ între oameni cu cuvântul ca la începutul facerii lui Dumnezeu, și iată, mai înainte de zori, pace vouă, celor din cetate care-Mi faceți primirea când vin!
 
@@ -48,6 +46,4 @@ Ieșiți în față voi, cei care cârmuiți curat țara română creștină și
 
 O, pace vouă și înmulțiți pacea, fii români! Loviți întunericul, fiilor, ca să nu se înmulțească! Auziți?
 
-Pace poporului român! Amin, amin, amin.
-
-[/legatura_la_teme]
+Pace poporului român! Amin, amin, amin.[/legatura_la_teme]

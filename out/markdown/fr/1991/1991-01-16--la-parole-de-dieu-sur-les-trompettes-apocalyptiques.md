@@ -29,4 +29,4 @@ Mes fils bien-aimés, soyez Mes vrais fils, comme Je suis le vrai Fils de Mon P�
 
 ...Paix à vous, foi à vous et union entre Moi et vous à travers ce lien céleste qui n'a jamais été travaillé auparavant dans la nation d'Israël, mais aimez l'œuvre de Dieu! Paix et union vivante, comme au début de même à la fin! Paix et amour, comme au ciel, aussi sur la terre!
 
-Que la paix soit avec vous, Mes bien-aimés! Amen, amen, amen. [/legatura_la_teme]
+Que la paix soit avec vous, Mes bien-aimés! Amen, amen, amen.[/legatura_la_teme]

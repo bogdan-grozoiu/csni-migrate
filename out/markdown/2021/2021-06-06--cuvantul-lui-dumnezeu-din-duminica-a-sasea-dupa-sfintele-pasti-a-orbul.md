@@ -14,7 +14,7 @@ Hai să așezăm în carte hrană pentru suflet, pentru minte, pentru credința 
 
 Și acum lucrăm, fiilor, iar după amintirea lucrării lui Dumnezeu în vreme, este astăzi așezată de părinți în calendar duminica a șasea după Sfintele Paști, și cu ea amintirea lucrării Mele cea pentru vindecarea orbului din naștere, o, și nu pot să nu stau arhiereu cuvântător în mijlocul bisericii și să grăiesc peste mintea celor de pe pământ, care au cunoștință despre lucrările lui Dumnezeu scrise atunci, când se săvârșeau, și luate în cunoștință până acum.
 
-[legatura_la_teme id_capitol="6" id_subcapitol="3"]O, fiilor, ce lucrare mare este credința în cele ce nu se văd și sunt! Nu este om mai înțelept ca și cel ce crede de la Dumnezeu ceea ce el nu vede, dar crede și primește pe Dumnezeu prin credință când Domnul vestește lucrările Sale. [/legatura_la_teme]
+[legatura_la_teme id_capitol="6" id_subcapitol="3"]O, fiilor, ce lucrare mare este credința în cele ce nu se văd și sunt! Nu este om mai înțelept ca și cel ce crede de la Dumnezeu ceea ce el nu vede, dar crede și primește pe Dumnezeu prin credință când Domnul vestește lucrările Sale.[/legatura_la_teme]
 
 O, ce mari sunt cei ce cred pe cele de la Dumnezeu, fiilor, ce mari! Cei umiliți din firea lor, sau pentru păcatele lor, doar aceia M-au primit și M-au urmat apoi, atunci și apoi și acum, iar cei trufași n-au dat să Mă primească și să Mă urmeze și să-Mi fie ucenici cu care să umblu și să lucrez din mijlocul lor și să-Mi fie ei martori apoi ai minunii lui Dumnezeu pe pământ și ai lucrărilor minunate ale lui Dumnezeu.
 
@@ -34,7 +34,7 @@ O, Eu de aceea vin acum cuvânt pe pământ, că vin să-l povățuiesc pe om î
 
 Omul care-și lucrează voia sa nu are mintea sănătoasă, că are în ea simțământul vinovăției pentru voia sa, are fără să știe, iar mintea îi este slăbănogită și nu-l ajută dacă este slăbănogită. O, de aceea ar fi bine să știe omul ce vrea și ce alege, căci voia lui îl ține în nehotărâre, îl ține în stăpânirea sa însăși pe om, și omul lucrează păcatul și se roagă apoi lui Dumnezeu pentru iertare. O, dacă el n-ar mai păcătui nu s-ar mai ruga pentru iertarea păcatelor lui și s-ar ruga numai pentru voia Mea în el.
 
-O, fiilor, o, fiilor, omul nu poate să se dea lui Dumnezeu pentru că nu poate să se lepede de voia sa și de lucrarea voii sale, și de aceea nu poate fi un fiu supus lui Dumnezeu, iar dacă nu poate, el rămâne în voile sale pe mai departe, chiar dacă știe de la Mine voia Mea cea pentru el. El însă se voiește stăpân pe voia sa, iar Eu trebuie să-i spun lui mereu ceea ce vreau de la el să facă el pe pământ. [/legatura_la_teme]
+O, fiilor, o, fiilor, omul nu poate să se dea lui Dumnezeu pentru că nu poate să se lepede de voia sa și de lucrarea voii sale, și de aceea nu poate fi un fiu supus lui Dumnezeu, iar dacă nu poate, el rămâne în voile sale pe mai departe, chiar dacă știe de la Mine voia Mea cea pentru el. El însă se voiește stăpân pe voia sa, iar Eu trebuie să-i spun lui mereu ceea ce vreau de la el să facă el pe pământ.[/legatura_la_teme]
 
 O, fiilor, cel ce pleacă de la Mine, din lucrarea acestui cuvânt și popor, acela pleacă pentru voia sa ca să și-o facă și și-o face apoi. Iar cel ce stă tot în voile sale în apropierea Mea cea lucrătoare de biruință asupra lui satana și a păcatului, o, acela nu este, acela nu se supune, ci stă ca și cum n-ar sta și n-ar avea pe Dumnezeu pentru voile Sale în el, căci își alege voia sa s-o facă, voia potrivnică voii lui Dumnezeu, și pentru care se roagă el Mie de iertare și iarăși își face apoi voia, așa cum își alege el să fie și să facă.
 
@@ -46,7 +46,7 @@ Iată, numai Eu sunt Cel ce stau în voia Tatălui Meu dacă Îi sunt adevărat 
 
 O, fiilor, învățați de la Mine vederea cea sănătoasă! Ar fi să grăiesc mult despre aceasta și să puneți voi pe cale apoi cuvântul înțelepciunii pentru cei ce cred fără să vadă, că mai mare vedere ca și credința care lucrează minuni, o, ce poate fi mai mare ca această vedere?
 
-O, nu trebuie să-L vezi pe Dumnezeu, ci trebuie să-L lucrezi peste tine și să-L ai apoi, și aceasta înseamnă să dovedești că ai pe Dumnezeu, că ai credință, că apoi tu ești asemenea Lui și Îl arăți pe El cum este, iar El este blând și smerit cu inima, și toți cei ce sunt așa, ca El, aceștia sunt cei ce cred în El, aceștia sunt fiii lui Dumnezeu. [/legatura_la_teme]
+O, nu trebuie să-L vezi pe Dumnezeu, ci trebuie să-L lucrezi peste tine și să-L ai apoi, și aceasta înseamnă să dovedești că ai pe Dumnezeu, că ai credință, că apoi tu ești asemenea Lui și Îl arăți pe El cum este, iar El este blând și smerit cu inima, și toți cei ce sunt așa, ca El, aceștia sunt cei ce cred în El, aceștia sunt fiii lui Dumnezeu.[/legatura_la_teme]
 
 Fiilor, fiilor, înnoim binecuvântarea pregătirii bucuriei și veseliei praznicului Rusaliilor. Fiți fiii lui Dumnezeu lucrând voia Sa, lucrându-L pe Domnul peste voi cu voia Sa, cu care este Domnul la voi! Nu este cu drept să se creadă înțelept omul care-și face voia sa, și nu voia lui Dumnezeu prin voia sa. Așadar, cereți pe Domnul peste voi și pentru voi, Eu să trăiesc în voi, nu voi, fiilor, o, nu voi, și atunci trăiți voi, atunci, fiilor.
 

@@ -32,13 +32,13 @@ Nu te amăgi, că omul acela care a umplut pământul de minciună şi de muncă
 
 ... Eu să fiu ca tine, fecior sau fecioară, n-aş mai dori căsătorie, şi aş sta aşa, ca să nu se mai nască pentru Gog, să-i pună la numărătoarea lui. Voi ştiţi că omul acesta ridică de pe urma pruncilor voştri miliarde de lei? Ştiţi? Nu ştiţi, că în sfânta Scriptură scrie ascuns.
 
-[legatura_la_teme id_capitol="2" id_subcapitol="6"]... Da, aşteaptă unii să-l vadă pe antichrist, şi antichrist a îmbătrânit în lume. E bătrân de zile, merge în toiag şi îl urmează mulţi, că mulţi antichrişti s-au născut dintr-însul. Dar când se va descoperi, ce jale mare va fi! că atunci se va descoperi numele; i se va spune tatăl minciunii şi tatăl tuturor lucrurilor ce sunt puse prin vitrini. [/legatura_la_teme]
+[legatura_la_teme id_capitol="2" id_subcapitol="6"]... Da, aşteaptă unii să-l vadă pe antichrist, şi antichrist a îmbătrânit în lume. E bătrân de zile, merge în toiag şi îl urmează mulţi, că mulţi antichrişti s-au născut dintr-însul. Dar când se va descoperi, ce jale mare va fi! că atunci se va descoperi numele; i se va spune tatăl minciunii şi tatăl tuturor lucrurilor ce sunt puse prin vitrini.[/legatura_la_teme]
 
 ... Preotul să postească, să nu bea, să nu curvească, să nu se îngraşe. Nu-l vorbim de rău, ci vorbim de păcatul său. Tată, atâta ştiu ei: abia aşteaptă să vadă cine mai moare, să se ducă să ia banii pe munca sa. Abia aşteaptă cine mai face nuntă, ca să se ducă şi el să ia parte la ea.
 
 ... Sunteţi în mare primejdie, că faptele preoţilor fac lumea să-i duşmănească, duc lumea să păcătuiască, duc lumea de râpă. Dar mai e puţin timp şi vei vedea că preotul vine la poarta ta şi spune: *„Dacă mai faci rugăciune, te leg să nu mai poţi ieşi afară din casă“.* Vai de preotul care-l leagă pe cel credincios să nu mai creadă în Domnul Iisus Hristos! Aşa scrie pentru el în carte, şi scris este să se caterisească.
 
-... De ce preoţii nu-i împărtăşesc pe credincioşi de câte ori voiesc aceştia? că iată, au monopolizat lucrul sfânt, lucrul dat de Mine.[legatura_la_teme id_capitol="2" id_subcapitol="6"] Antichrist e pe pământ şi e bătrân şi s-a făcut apropiat prieten şi cu împăratul şi cu argatul şi cu preotul. Numai cu credincioşii Mei nu se poate împrieteni, şi între ei e un mare război cu foc. [/legatura_la_teme]
+... De ce preoţii nu-i împărtăşesc pe credincioşi de câte ori voiesc aceştia? că iată, au monopolizat lucrul sfânt, lucrul dat de Mine.[legatura_la_teme id_capitol="2" id_subcapitol="6"]Antichrist e pe pământ şi e bătrân şi s-a făcut apropiat prieten şi cu împăratul şi cu argatul şi cu preotul. Numai cu credincioşii Mei nu se poate împrieteni, şi între ei e un mare război cu foc.[/legatura_la_teme]
 
 ... Fiilor, ţineţi minte, că e un grup de creştini care au aflat de masa voastră şi vor veni şi ei să ia parte. Nu sunt aduşi de voi, sunt trimişi de Noi.
 

@@ -10,9 +10,7 @@ audio_file: 25.12.21.mp3
 
 Eu sunt Păstorul Cel bun și am glas și cuvânt de Păstor și Mă doresc lucrând lucrarea de Păstor și de aceea vin pe pământ glas și cuvânt, ca să fie scris cuvântul Meu și să păstoresc cu el oile pe care Tatăl Mi le dă să le conduc la pășunea Mea și la Tatăl, și din mâna Lui nimeni nu le poate lua, precum este scris, și iată, în zi de duminică Îmi așez în carte cuvântul și îl dau de hrană oilor care merg după Mine, căci Îmi cunosc glasul și Mă mărturisesc ele Păstor al lor venit din cer să-Mi împlinesc ascultarea de Tatăl, iar cei ce nu cred nu au cum să creadă dacă nu sunt din oile Mele care-Mi cunosc glasul și-Mi țin urma ca să le hrănesc, ca să le ocrotesc de lupi și le învăț cum să meargă lângă Păstorul lor.
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Pace peste țara Mea pe care o păstoresc cu mare dor, căci dorul se face mare și mult când este hrănit de duhul iubirii!
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Pace peste țara Mea pe care o păstoresc cu mare dor, căci dorul se face mare și mult când este hrănit de duhul iubirii!
 
 Pacea Mea și iubirea Mea ți-o dau iar și iar, țara Mea cea dintotdeauna a Mea, de când am stat pe pământul tău și l-am zidit pe om din lutul tău, de atunci și până azi a Mea, și de aceea e mare dorul Meu, că de șapte mii de ani Mi-e dor să unesc începutul cu sfârșitul și Mi-e dor să vin pe meleagul tău și să cuvintez noua facere a lumii, despre care scrie în Scripturi să vină și să fie această împlinire, iar tu ești țara Mea de dor și-ți sunt Păstor și-ți sunt soare strălucitor de șapte ori mai mult, precum este scris, și sunt lumina lumii, țara Mea, căci cuvântul Meu era și este lumina care strălucește în întuneric luminând, o, și se supără întunericul neînvățat cu lumina peste el, dar lumina vine dacă a venit vremea să vină, și vine și va veni ca să lumineze întunericul care se depărtează de lumină și se ascunde ascunzând atâta minciună sub el, atâta răutate, atâta rătăcire, atâta fățărnicie, toate lucrarea întunericului dat de gol prin lucrarea luminii, prin venirea Mea cuvânt de Păstor la oameni pe pământ.
 
@@ -42,6 +40,4 @@ Pe pământ e totul sucit, căci așa este când oamenii sunt ei împărați și
 
 Să fie lumină! Aceasta este lucrarea Mea de Păstor venit de la Tatăl între oameni, și-Mi las harul cuvântului Meu peste țara întoarcerii Mele de la Tatăl și spun:
 
-Pace ție, țara Mea română! Vine la tine lumina lumii, vine Domnul și luminează pământul tău și se va vedea de peste tot lumina Lui, lumina lumii, Iisus Hristos sub numele Său cel nou, *Cuvântul lui Dumnezeu* pe vatra ta, o, țara Mea cea de azi a Mea. Amin, amin, amin.
-
-[/legatura_la_teme]
+Pace ție, țara Mea română! Vine la tine lumina lumii, vine Domnul și luminează pământul tău și se va vedea de peste tot lumina Lui, lumina lumii, Iisus Hristos sub numele Său cel nou, *Cuvântul lui Dumnezeu* pe vatra ta, o, țara Mea cea de azi a Mea. Amin, amin, amin.[/legatura_la_teme]

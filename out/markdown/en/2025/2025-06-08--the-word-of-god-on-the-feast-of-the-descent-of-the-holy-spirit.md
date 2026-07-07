@@ -9,9 +9,7 @@ audio: https://noul-ierusalim.ro/audio/1013en.mp3
 audio_file: 25.06.08-en.mp3
 ---
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-The cloud of the glory of My coming is standing above the Romanian land and I am leaving My word in its book today, on the day of the feast of Pentecost, and I have the nine heavens with all the layers of glory as companions, and the heavenly and angelic powers stand at My service, and I come and work My coming and announce it over the earth Myself when I come on holidays to shepherd, for I am a Shepherd and I have a wonderful name, the Word of God is this wonderful name of Mine. **(Apoc: 19/13)**
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]The cloud of the glory of My coming is standing above the Romanian land and I am leaving My word in its book today, on the day of the feast of Pentecost, and I have the nine heavens with all the layers of glory as companions, and the heavenly and angelic powers stand at My service, and I come and work My coming and announce it over the earth Myself when I come on holidays to shepherd, for I am a Shepherd and I have a wonderful name, the Word of God is this wonderful name of Mine. **(Apoc: 19/13)**
 
 I am Who I am. I am the Son and the Word of the Father, and the Father gives Me work on earth among men with the word as at the beginning of God's creation, and behold, before dawn, peace to you, to those in the citadel who welcome Me when I come!
 
@@ -49,6 +47,4 @@ Come forward, you who govern the Christian Romanian country cleanly and tell eve
 
 Oh, peace to you and multiply peace, Romanian sons! Strike the darkness, sons, so that it does not multiply! Do you hear?
 
-Peace to the Romanian people! Amen, amen, amen.
-
-[/legatura_la_teme]
+Peace to the Romanian people! Amen, amen, amen.[/legatura_la_teme]

@@ -16,7 +16,7 @@ audio_file:
 
 Fiule Petrică, te-ai întrebat pe tine pentru ce te-am adus aici? Fiule, am vorbit cu tine ca să Mă serveşti pe Mine, vecine. Ce n-ar da cineva să fie vecin cu Mine! Te-am adus ca să fii servul Meu. Tată, dacă Dumnezeu va zice să descoperi planul Său, să-l descoperi, iar de nu, nu. Ajutorul este de la Mine, dar nu fi leneş.
 
-[legatura_la_teme id_capitol="6" id_subcapitol="1"]Oprit de a se mai face păcat! La multe lucruri pe pământ se scrie oprit, dar la păcat nu scrie. Eu scriu poporului Meu: oprit de a mai face păcat! Nu treceţi, că vă costă. Nu zice Domnul că te amendează, că plăteşti şi scapi. Fiilor, n-aţi suferit nimic pentru că aţi greşit, dar să ştiţi că veţi fi pedepsiţi, pentru că Dumnezeu a zis: opriţi-vă! [/legatura_la_teme]
+[legatura_la_teme id_capitol="6" id_subcapitol="1"]Oprit de a se mai face păcat! La multe lucruri pe pământ se scrie oprit, dar la păcat nu scrie. Eu scriu poporului Meu: oprit de a mai face păcat! Nu treceţi, că vă costă. Nu zice Domnul că te amendează, că plăteşti şi scapi. Fiilor, n-aţi suferit nimic pentru că aţi greşit, dar să ştiţi că veţi fi pedepsiţi, pentru că Dumnezeu a zis: opriţi-vă![/legatura_la_teme]
 
 Mama vasului Meu, care, Dumnezeu a rânduit ca această sămânţă să treacă prin pântecul ei şi să crească, să Se servească Dumnezeu de ea, să cinstească pe Dumnezeu şi să se ferească de rău, pentru că această mamă a vasului Meu nu ştie carte, nu pricepe. Nu fugiţi de ea, şi ajutaţi-o. Andreiana, păzeşte comoara de aici. Acoperiţi bine lucrul lui Dumnezeu. Nu e vremea descoperirii. E vremea să te bagi în sac şi să presari cenuşă pe cap, adică nu cenuşă, ci smerenie.
 

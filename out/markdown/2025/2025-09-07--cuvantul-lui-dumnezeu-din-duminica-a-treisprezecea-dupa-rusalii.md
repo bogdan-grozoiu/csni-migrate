@@ -8,9 +8,7 @@ audio: https://noul-ierusalim.ro/audio/1781.mp3
 audio_file: 25.09.07.mp3
 ---
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Te păstoresc, țara Mea cea de azi, România Mea. O, ia din Duhul Meu, ia de la Dumnezeu, ia și hrănește-te din cer, căci cerul de sfinți stă deasupra ta și te veghează și îți împarte hrană binecuvântată, că nu mai este hrană curată pe pământ, nu mai este nimic bun pentru suflet, și nici pentru trup, iar Eu, Domnul Dumnezeul tău, stau deasupra ta și-ți dau de la Mine ca să te sfințești cu cuvântul Meu și să ai peste tine cuvântul lui Dumnezeu, țara Mea.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Te păstoresc, țara Mea cea de azi, România Mea. O, ia din Duhul Meu, ia de la Dumnezeu, ia și hrănește-te din cer, căci cerul de sfinți stă deasupra ta și te veghează și îți împarte hrană binecuvântată, că nu mai este hrană curată pe pământ, nu mai este nimic bun pentru suflet, și nici pentru trup, iar Eu, Domnul Dumnezeul tău, stau deasupra ta și-ți dau de la Mine ca să te sfințești cu cuvântul Meu și să ai peste tine cuvântul lui Dumnezeu, țara Mea.
 
 O, vine din cer, vine din Hristos cuvântul Său peste pământ și cheamă la duh de pace popoarele învrăjbite între ele prin căpeteniile lor reci la simțire pentru cei care pier pe neașteptate în mijlocul spaimei de toate zilele, și iată, dau să spun peste căpetenii: Pace vouă! Pace între voi! Pace din cer între voi și peste voi și peste poporul care suspină ziua și noaptea neștiind dacă vor mai avea zile, dacă va veni liniștea! Eu, Domnul, îi iau pe brațele Duhului Meu și le dau loc în locașurile Tatălui Meu, căci mila Îmi sfâșie Duhul și chem la pace popoarele învrăjbite și spun iar și iar: Ajunge!
 
@@ -30,6 +28,4 @@ Puțin timp a mai rămas. Trebuie să lucrăm și să veghem zi și noapte prin 
 
 Acum binecuvântare pentru cele ce mai sunt de așezat, și dăm vestea apoi pe de-a întregul, toate sub ochiul Meu părintesc, fiilor.
 
-Nu vă las singuri nicio clipă. Nici voi să nu vă lăsați de sfatul cuvântului Meu. Stați de mânuță cu Mine în duhul iubirii și armoniei frățești, o, și să am Eu, Domnul, aceasta tot timpul de la voi, tot timpul între Mine și voi, și tot timpul între voi și Mine, o, fiilor. Amin, amin, amin.
-
-[/legatura_la_teme]
+Nu vă las singuri nicio clipă. Nici voi să nu vă lăsați de sfatul cuvântului Meu. Stați de mânuță cu Mine în duhul iubirii și armoniei frățești, o, și să am Eu, Domnul, aceasta tot timpul de la voi, tot timpul între Mine și voi, și tot timpul între voi și Mine, o, fiilor. Amin, amin, amin.[/legatura_la_teme]

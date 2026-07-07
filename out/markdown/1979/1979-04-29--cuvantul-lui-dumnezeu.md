@@ -8,7 +8,7 @@ audio:
 audio_file: 
 ---
 
-... Să ştiţi că va pieri preoţimea şi va rămâne numai acela care vă va scoate din biserică afară, aşa cum scrie în Apocalipsă. Sunt şcolile pline de preoţime, dar mai bine n-ar mai fi, creştine, că nu e pentru tine, ci e pentru pământ, că se va deschide pământul şi îi va înghiţi. [legatura_la_teme id_capitol="3" id_subcapitol="1"]Fericirea nu e făcută din pământ, şi e făcută din Duhul Sfânt. [/legatura_la_teme]
+... Să ştiţi că va pieri preoţimea şi va rămâne numai acela care vă va scoate din biserică afară, aşa cum scrie în Apocalipsă. Sunt şcolile pline de preoţime, dar mai bine n-ar mai fi, creştine, că nu e pentru tine, ci e pentru pământ, că se va deschide pământul şi îi va înghiţi. [legatura_la_teme id_capitol="3" id_subcapitol="1"]Fericirea nu e făcută din pământ, şi e făcută din Duhul Sfânt.[/legatura_la_teme]
 
 ... Am voit să vă spun că mai avem puţin drum şi am ajuns la capăt.
 

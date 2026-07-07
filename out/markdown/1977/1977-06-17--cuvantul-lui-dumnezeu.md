@@ -12,4 +12,4 @@ audio_file:
 
 ... Fiilor, veţi fi poftiţi la nunţi, veţi fi poftiţi la chefuri. Vai de cel ce se va înşela!
 
-[legatura_la_teme id_capitol="5" id_subcapitol="2"]... Va veni vremea, tată, să zidim case de închinare. [/legatura_la_teme]
+[legatura_la_teme id_capitol="5" id_subcapitol="2"]... Va veni vremea, tată, să zidim case de închinare.[/legatura_la_teme]

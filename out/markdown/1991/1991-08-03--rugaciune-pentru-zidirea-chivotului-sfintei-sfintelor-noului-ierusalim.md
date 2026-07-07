@@ -12,7 +12,7 @@ audio_file:
 
 *– Dumnezeule Cel întreit mare, Dumnezeul lui Avraam cel credincios, Dumnezeul lui Israel, Cel Care ai stat în sfatul părinţilor noştri şi ai fost din veac în veac în mijlocul poporului Tău cel credincios ascultându-i suspinul şi făgăduindu-i, până în sfârşit, izbăvire veşnică! Ascultă-i pe cei mai mici, pe cei puţini, căci Tu eşti Dumnezeul celor mici, al celor slabi, al celor smeriţi!*
 
-*Iată-ne ca să facem voia Ta, Dumnezeule, şi să se facă desăvârşită lucrarea Duhului Sfânt, Cel întreit lucrător.* [/legatura_la_teme]
+*Iată-ne ca să facem voia Ta, Dumnezeule, şi să se facă desăvârşită lucrarea Duhului Sfânt, Cel întreit lucrător.*[/legatura_la_teme]
 
 *Şi dacă Tu ai binevoit peste România şi dacă după întruparea Ta ai trimis pe cel întâi chemat între apostolii Tăi ca să boteze pe România cu botezul credinţei întru Evanghelia Ta, şi dacă România s-a născut odată cu Tine pe lume, ascultă glasul ei acum, că ea strigă la Tine prin sângele proorocilor şi al apostolilor şi strigă prin cei mai mici ai Tăi pe care Tu i-ai aşezat la lucrul plinirii vremurilor Tale.* [legatura_la_teme id_capitol="5" id_subcapitol="4"]*Ascultă glasul celor ce strigă din locul începutului cel nou al Noului Ierusalim, coborât din cer peste România, ascultă-i pe cei ce nu pot spune nimănui taina ieslei cuvântului Tău din vremea aceasta. Iar Tu voieşti până în sfârşit să ieşi cu plinirea Ta peste toate înălţimile şi puterile. Aşa să fie, Doamne, şi să rosteşti apoi pace şi bunăvoire din vârful acestei pietre pe care ne-ai poruncit să o ridicăm în vreme de strâmtorare şi de neputinţă, în mijlocul neamului Tău cel nou ales pentru plinirea Ta.*
 
@@ -28,4 +28,4 @@ audio_file:
 
 *Adună-l pe Israel, căci Israel este cel ce crede în Tine, după făgăduinţele Tale, iar numărul lui Israel va fi cât stelele cerului.*
 
-*Milostiveşte-Te spre locul odihnei Tale, căci Tu Te odihneşti întru cei aleşi ai Tăi şi Îţi desăvârşeşti lucrarea întru cei slabi ai Tăi, ca să cunoască toţi cei de pe pământ că Tu eşti un Dumnezeu tare şi Îţi anunţi împărăţia prin glasul de trâmbiţă al proorocilor Tăi. Nimic nu împlineşti fără să vesteşti prin prooroci, şi iată, vine vremea gloriei Tale, vine peste România, şi va fi năframa României curcubeu al păcii peste popoare, căci aşa ai binevoit. Amin.* [/legatura_la_teme]
+*Milostiveşte-Te spre locul odihnei Tale, căci Tu Te odihneşti întru cei aleşi ai Tăi şi Îţi desăvârşeşti lucrarea întru cei slabi ai Tăi, ca să cunoască toţi cei de pe pământ că Tu eşti un Dumnezeu tare şi Îţi anunţi împărăţia prin glasul de trâmbiţă al proorocilor Tăi. Nimic nu împlineşti fără să vesteşti prin prooroci, şi iată, vine vremea gloriei Tale, vine peste România, şi va fi năframa României curcubeu al păcii peste popoare, căci aşa ai binevoit. Amin.*[/legatura_la_teme]

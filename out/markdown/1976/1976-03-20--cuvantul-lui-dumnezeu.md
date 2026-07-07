@@ -14,8 +14,8 @@ audio_file:
 
 ... Eu voiesc să fie la Mine zece dintre voi, că am avut sute şi mii, dar nădăjduiesc că zece voi avea. Domnul Iisus nu mai stă pe pământ, Se ridică. Îmi pare rău de grâul Meu şi Îmi pare rău de munca Mea, că puţin am să câştig.
 
-[legatura_la_teme id_capitol="6" id_subcapitol="2"]... Mai avem un pic şi vom ieşi şi vom controla pământul acesta şi în lung şi în lat şi veţi vedea ce nu au văzut ochii voştri. Bolnavii se vor face sănătoşi; orbii vor vedea; ciungii, cu mâinile lor vor lucra. [/legatura_la_teme]
+[legatura_la_teme id_capitol="6" id_subcapitol="2"]... Mai avem un pic şi vom ieşi şi vom controla pământul acesta şi în lung şi în lat şi veţi vedea ce nu au văzut ochii voştri. Bolnavii se vor face sănătoşi; orbii vor vedea; ciungii, cu mâinile lor vor lucra.[/legatura_la_teme]
 
 ... Nu mai e profeţie, pentru că nu ştie creştinul s-o ţină, dar dacă vei fi credincios ca Ilie din pustie, Domnul îţi va da. Apă de vei cere, îţi voi da. Foc de vei cere, îţi voi da, ca să vadă păcătoşii.
 
-[legatura_la_teme id_capitol="2" id_subcapitol="3"]... Plângeţi, că sunt hotărâţi oamenii de sus să închidă bisericile şi să trimită preoţii la serviciu, şi la mulţi preoţi le va părea bine. [/legatura_la_teme]
+[legatura_la_teme id_capitol="2" id_subcapitol="3"]... Plângeţi, că sunt hotărâţi oamenii de sus să închidă bisericile şi să trimită preoţii la serviciu, şi la mulţi preoţi le va părea bine.[/legatura_la_teme]

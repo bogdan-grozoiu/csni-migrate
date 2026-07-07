@@ -35,7 +35,7 @@ Oh, the prophet Elijah stands impatiently next to Me, next to My speaking mouth,
 
 — I call and I keep calling, the Lord is calling across the earth and is calling people from everywhere to Him.
 
-Come to the water! I have living water, come! I will wash away the dirt from your sins with it and I will give you white linen shirts like those of My saints, so that I may find you like them, clothed, and not naked. Amen. [/legatura_la_teme]
+Come to the water! I have living water, come! I will wash away the dirt from your sins with it and I will give you white linen shirts like those of My saints, so that I may find you like them, clothed, and not naked. Amen.[/legatura_la_teme]
 
 It is a feast day and I am leaving the word of My mouth upon the earth and I am taking it over the mountains and over the waters, over the plains, over the people. I come with the word, and with it I shepherd, with this iron rod I shepherd.
 

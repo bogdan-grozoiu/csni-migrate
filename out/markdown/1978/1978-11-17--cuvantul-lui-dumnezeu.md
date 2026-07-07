@@ -12,7 +12,7 @@ audio_file:
 
 Pregăteşte-te cum ţi-am spus. Pregăteşte-te, că de aceea M-am plecat până unde Mă aflu astăzi, la un trup nepreţuit, ca să înfrâng pe cele de sus, mândre.
 
-[legatura_la_teme id_capitol="7" id_subcapitol="3"]Am părăsit cerul şi pe Tatăl Meu. Am părăsit grădina împodobită de frumuseţi. Am părăsit îngerii, surorile şi fraţii. Am părăsit locul iubit şi M-am coborât jos, pe pământ, dar sunt în Duh, nu sunt în trup. În trup când Mă voi arăta în toată slava Mea, se vor cutremura toate. Sunt într-un trup în care Tatăl Meu a binevoit să fiu. [/legatura_la_teme]
+[legatura_la_teme id_capitol="7" id_subcapitol="3"]Am părăsit cerul şi pe Tatăl Meu. Am părăsit grădina împodobită de frumuseţi. Am părăsit îngerii, surorile şi fraţii. Am părăsit locul iubit şi M-am coborât jos, pe pământ, dar sunt în Duh, nu sunt în trup. În trup când Mă voi arăta în toată slava Mea, se vor cutremura toate. Sunt într-un trup în care Tatăl Meu a binevoit să fiu.[/legatura_la_teme]
 
 Veniţi-vă în fire, că mulţi plecaţi de la Mine; nu vă mai convine viaţa cu Mine. Eu vă spun: nu vă înşelaţi. Înhămaţi bine trupurile, ca să nu ucidă duhurile, că trupul neînhămat e ca un armăsar neînvăţat la ham când l-ai pus la car, şi dacă nu are frâul bun, strică şi hamul, strică şi carul, strică şi pe cel ce-l ţine de frâu.
 

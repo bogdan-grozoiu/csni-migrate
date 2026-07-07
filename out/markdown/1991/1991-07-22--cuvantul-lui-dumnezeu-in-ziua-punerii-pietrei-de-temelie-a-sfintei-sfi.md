@@ -40,7 +40,7 @@ Slavă întru cele cereşti, şi bucurie pentru această zi de mărturie cereasc
 
 Pace şi bună orânduială peste România Mea!
 
-Aceasta este o zi de mărturie. Să se scrie această zi spre pomenire veşnică în cer şi pe pământ, căci pe această piatră voi zidi biserica cea vie a începutului cel nou care va răsări peste popoare. Amin, amin, amin. [/legatura_la_teme]
+Aceasta este o zi de mărturie. Să se scrie această zi spre pomenire veşnică în cer şi pe pământ, căci pe această piatră voi zidi biserica cea vie a începutului cel nou care va răsări peste popoare. Amin, amin, amin.[/legatura_la_teme]
 
 ***
 

@@ -12,9 +12,7 @@ audio_file: 23.03.19.mp3
 
 O, pace vouă, celor ce-Mi faceți primirea când glasul Meu grăiește de deasupra ca să Mă așezați voi cuvânt în cartea Mea cea de azi!
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-O, și pace ție, pământ și neam român! Aici Mi-am așezat cortul venirii Mele cuvânt peste pământ dacă Tatăl M-a trimis să vin iarăși, iar Eu cum să nu-L ascult pe Tatăl și să nu vin?
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]O, și pace ție, pământ și neam român! Aici Mi-am așezat cortul venirii Mele cuvânt peste pământ dacă Tatăl M-a trimis să vin iarăși, iar Eu cum să nu-L ascult pe Tatăl și să nu vin?
 
 Vin și tot vin cuvânt peste pământ de aproape șaptezeci de ani, o, și găsesc necredință așa cum am spus acum două mii de ani că voi veni și voi găsi necredință pentru venirea Mea.
 
@@ -30,13 +28,11 @@ Când am început să-Mi învăț ucenicii ca să știe ei că Eu voi fi tăgăd
 
 O, neam român, o, fiilor, să nu vă rușinați cu Dumnezeu, cu semnul sfintei cruci. Voi sunteți neam creștin de două mii de ani ca nici un alt popor creștin de pe pământ. Fiți mândri cu semnul sfintei cruci! Sunteți cel dintâi popor al Evangheliei Mele împărțită de ucenicii Mei cei de atunci. Fiți mândri și acum, la sfârșit, căci sunteți aleși de atunci să-Mi fiți casă de venire acum, după două mii de ani, când iarăși vin cu sfinții și cu îngerii deasupra acestui meleag binecuvântat pentru credință la început și la sfârșit, căci începutul bisericii Mele trebuie să aibă cale cu credință până la sfârșit, până acum când Eu, Domnul, vin să înnoiesc totul, precum este scris, ca să fie iarăși ca la începutul ei biserica Mea, și nu cum s-a lăsat ea acum slugă pentru potrivnicul Meu antichrist, pentru toți cei care nu Mă voiesc pe pământ cu oamenii și Mă tot dau de peste tot deoparte ca să nu-i împiedic pe cei ce iubesc fărădelegea și păcatul, dar Eu vin să pun capăt minciunii și fărădelegii și să așez viața cea sfântă pe pământ, că plânge pământul de focul de pe el, căci foc este păcatul care arde în om și împrejurul lui și peste tot pe unde umblă pe pământ omul cel iubitor de păcat, și de aceea nimeni nu Mă voiește să fiu și Eu, dar Eu sunt Cel ce sunt, și cum să nu fiu dacă sunt Cel ce sunt?
 
-Așadar, pace ție, pământ și neam român, și stai sub binecuvântarea Tatălui și a Fiului și a Sfântului Duh și nu te rușina cu crucea, cu semnul Fiului Omului, și ia de la izvorul Meu din mijlocul tău cuvântul gurii Mele și învață viața de sfânt, căci cei păcătoși nu iubesc sfințenia, ci păcatul îl iubesc, dar tu ești neamul Meu și al strămoșilor tăi cei sfinți și credincioși, cei cu crucea în frunte și în față la bine și la greu, o, și nu uita ce ești și cine ești, popor român! Eu, Domnul, îți grăiesc aceasta în numele Tatălui și al Fiului și al Sfântului Duh. Amin.
-
-[/legatura_la_teme]
+Așadar, pace ție, pământ și neam român, și stai sub binecuvântarea Tatălui și a Fiului și a Sfântului Duh și nu te rușina cu crucea, cu semnul Fiului Omului, și ia de la izvorul Meu din mijlocul tău cuvântul gurii Mele și învață viața de sfânt, căci cei păcătoși nu iubesc sfințenia, ci păcatul îl iubesc, dar tu ești neamul Meu și al strămoșilor tăi cei sfinți și credincioși, cei cu crucea în frunte și în față la bine și la greu, o, și nu uita ce ești și cine ești, popor român! Eu, Domnul, îți grăiesc aceasta în numele Tatălui și al Fiului și al Sfântului Duh. Amin.[/legatura_la_teme]
 
 Binecuvântare proaspătă cobor peste cetatea cuvântului Meu din mijlocul neamului român și peste tot lucrul Meu din ea și prin ea peste pământ, căci de aici curge râul vieții peste tot, precum este scris!
 
-[legatura_la_teme id_capitol="5" id_subcapitol="6"]Binecuvintez Eu, Domnul, lucrul cel sfânt pentru întocmirea cărții istoriei cuvântului Meu pe vatra neamului român! Nimic să nu înlocuiască grija cea pentru zidirea acestei mărturii, și de aceea cu toate puterile cerești în lucru se binecuvintează de Tatăl, Fiul și Sfântul Duh ieșirea la lumină a mersului Meu cel greu prin trâmbița Mea Verginica încă de la nașterea ei și până la voi, fiilor care-Mi purtați venirea Mea lăsată prin ea ca s-o duceți mai departe, căci Eu sunt Cel ce vin, iar voi sunteți cei ce Mă primiți și-Mi lucrați împărțirea cuvântului Meu peste pământ! [/legatura_la_teme]
+[legatura_la_teme id_capitol="5" id_subcapitol="6"]Binecuvintez Eu, Domnul, lucrul cel sfânt pentru întocmirea cărții istoriei cuvântului Meu pe vatra neamului român! Nimic să nu înlocuiască grija cea pentru zidirea acestei mărturii, și de aceea cu toate puterile cerești în lucru se binecuvintează de Tatăl, Fiul și Sfântul Duh ieșirea la lumină a mersului Meu cel greu prin trâmbița Mea Verginica încă de la nașterea ei și până la voi, fiilor care-Mi purtați venirea Mea lăsată prin ea ca s-o duceți mai departe, căci Eu sunt Cel ce vin, iar voi sunteți cei ce Mă primiți și-Mi lucrați împărțirea cuvântului Meu peste pământ![/legatura_la_teme]
 
 Pace vouă, fiilor! Duhul Sfânt vă veghează, vă insuflă de la Dumnezeu, iar voi fiți iubitori de cei din cer, care vă veghează!
 

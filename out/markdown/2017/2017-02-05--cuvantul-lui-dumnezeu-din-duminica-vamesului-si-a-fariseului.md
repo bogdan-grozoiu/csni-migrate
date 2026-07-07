@@ -36,9 +36,7 @@ O, apleacă-te să crezi și să poți, neam român! Nu trebuie să fii tu scris
 
 Iar acum Îmi pun numele peste graiul gurii Mele:
 
-Iisus Hristos, Cuvântul lui Dumnezeu. Amin.
-
-[/legatura_la_teme]
+Iisus Hristos, Cuvântul lui Dumnezeu. Amin.[/legatura_la_teme]
 
 Grăiesc acum cu voi, cei ce-Mi stați înainte pentru glasul gurii Mele ca să-l așezați în carte și să-i dați mersul, o, fiilor. O, fericiți sunteți voi, cei care credeți venirea Mea în cuvânt la voi, căci crezând, aveți mângâiere și aveți nădejde, fiilor, numai să stați voi până la sfârșit lângă mângâierea Mea, lângă cuvântul Meu de iubire pentru cei ce-Mi sunt popor acum, aproape de taina Mea de azi în mijlocul neamului român, acum, când toate, toate s-au stricat de tot, dacă omul s-a stricat așa de mult, că iată, chiar și cei ce M-au avut drag în acest cuvânt o bună bucată de vreme, o, și din aceia sunt cu mintea pierdută. Și ce înseamnă aceasta? Înseamnă că și-au pierdut ascultarea și și-au pierdut credința în cuvântul Meu și s-au apucat să-Mi fie potrivnici prin grăiri de rău și să arunce înapoi cu judecată, cu defăimare, cu îndreptățire de sine și să-și dea lumii mintea și să semene cu ea la minte, cu lumea, și acesta este tabloul celor ce nu le-a mai fost dragă viața cea plăcută lui Dumnezeu, o, și cât de rău le va părea când vor sta ei înaintea Mea pentru răspuns, că mulți din ei trec din trup cu aceste păcate și stau sub ele înaintea lui Dumnezeu și mare le este rușinea și durerea, a celor ce și-au pierdut mintea și și-au dat-o pe nimic, și pier aceștia din lipsă de înțelepciune, precum este scris, și pier cu toții cei neînțelepți pentru calea vieții. O, mai fericire ar fi fost pentru ei dacă i-aș fi luat din trup mai înainte să Mi se facă ei neascultători și vrăjmași apoi.
 

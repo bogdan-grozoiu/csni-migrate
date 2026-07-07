@@ -24,7 +24,7 @@ Cer nou şi pământ nou pregătesc spre vedere, şi slujesc aceasta prin cuvân
 
 *Puţini ştiu că Noi am lucrat mult împreună, Doamne, în pustie până la arătarea Ta şi a mea la Iordan. Ai fost atâta de smerit în cuvânt şi la înfăţişare înaintea mea! A trebuit să-L întreb pe Tatăl, Care m-a trimis să botez cu apă, iar Tatăl mi-a spus:* «Peste Care vei vedea Duhul coborându-Se şi rămânând deasupra Lui, Acesta este Cel ce botează cu Duhul Sfânt»*, şi Tatăl era în Tine, Doamne, iar eu am văzut şi am mărturisit că Tu eşti Fiul lui Dumnezeu, ca să audă aceasta ucenicii mei şi să meargă după El, după Tine, Doamne.*
 
-*Trebuia să Te arăţi la Iordan, Doamne Mieluţ. De aceea am venit eu, cel ce botezam cu apă, şi le-am tălmăcit despre Tine iudeilor, ca să rămână mărturia mea despre Tine între ei, şi toţi m-au cunoscut atunci prooroc mare, dar cei plini de pofta păcatului se temeau, aşa cum şi de Tine s-au temut după ce Ne-am arătat ca să Ne începem lucrarea propovăduirii pe când aveam Noi treizeci de ani.* [/legatura_la_teme]
+*Trebuia să Te arăţi la Iordan, Doamne Mieluţ. De aceea am venit eu, cel ce botezam cu apă, şi le-am tălmăcit despre Tine iudeilor, ca să rămână mărturia mea despre Tine între ei, şi toţi m-au cunoscut atunci prooroc mare, dar cei plini de pofta păcatului se temeau, aşa cum şi de Tine s-au temut după ce Ne-am arătat ca să Ne începem lucrarea propovăduirii pe când aveam Noi treizeci de ani.*[/legatura_la_teme]
 
 *O, numai de tainele cele cereşti din Scripturi, numai de ele ar fi să se îngrijească oamenii pe pământ. Nu le este dat să creadă, nu este aceasta a tuturora, Doamne. Numai cei scrişi în cartea vieţii Mielului, numai aceia sunt poporul Tău cel credincios, pe care mereu Ţi l-ai ales dintre oameni ca să lucrezi în mijlocul lui tainele Scripturilor Tale, vestite din vreme prin prooroci, şi apoi împlinirea lor pe pământ şi cartea împlinirilor scrise, cuvânt scris şi mărturisitor prin cartea lui.*
 
@@ -34,7 +34,7 @@ Cer nou şi pământ nou pregătesc spre vedere, şi slujesc aceasta prin cuvân
 
 *O, tot aşa strig şi acum, Doamne Mieluţ. Suntem cu praznic de Bobotează între cei mai mici ai Tăi la sfârşit de timp, şi din mijlocul slavei Tale strig spre duh de pocăinţă pe cei ce stau în păcat, căci necredinţa vine de la păcat, şi este ea haina care acoperă păcatul, ca nu cumva să se teamă păcătoşii de ispăşirea păcatului lor, de botezul cel cu foc peste ei.*
 
-*N-au oamenii putere să fugă de păcat, Doamne. E mai puternic decât ei păcatul, căci l-a scos din rai pe om păcatul. Noi însă suntem din partea Tatălui şi ne rugăm Lui de duh de pocăinţă peste oameni, de inimă nouă în ei, de schimbare de la Tatăl în ei, căci ei nu pot.* [/legatura_la_teme]
+*N-au oamenii putere să fugă de păcat, Doamne. E mai puternic decât ei păcatul, căci l-a scos din rai pe om păcatul. Noi însă suntem din partea Tatălui şi ne rugăm Lui de duh de pocăinţă peste oameni, de inimă nouă în ei, de schimbare de la Tatăl în ei, căci ei nu pot.*[/legatura_la_teme]
 
 *Binecuvintez pe poporul Tău. Înconjoară-l pe el cu sfinţii Tăi îngeri, Doamne! Zi şi noapte să slujim noi, cei din cer, lângă toate puterile cereşti pentru slava Ta cu poporul Tău cel azi credincios pe pământ!*
 

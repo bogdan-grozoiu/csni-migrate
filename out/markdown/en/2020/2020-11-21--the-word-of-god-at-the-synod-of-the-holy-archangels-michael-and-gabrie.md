@@ -39,9 +39,7 @@ Sons, sons, faith is needed for this great love, and I, the Lord, am able to mov
 
 Sons, the whole heaven is with you. Make those in heaven see that you work with faith and that you rely on those around. Those who take from the world for themselves do not stay with those in heaven but keep on looking back, as Lot’s wife did, and those who look to take from the world are very weak and are afraid; they do not have any support for them, they do not have a father, for those who have a father obey; they do not come out and do not make a feast of lie, because the lie is man, sons.
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Behold the country and its rulers who seek after their own well-being, and you, My today’s country, My Romania, you do not have merciful rulers, oh, you do not have because they are slaves, they are not free to take care of you through God, not through the people, and you are brought low by those who are unfaithful, by those without God, who have ascended high, and behold, they do not comfort their people, they do not watch with mercy, the rulers over you do not cry out to Me for you, My today’s country.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Behold the country and its rulers who seek after their own well-being, and you, My today’s country, My Romania, you do not have merciful rulers, oh, you do not have because they are slaves, they are not free to take care of you through God, not through the people, and you are brought low by those who are unfaithful, by those without God, who have ascended high, and behold, they do not comfort their people, they do not watch with mercy, the rulers over you do not cry out to Me for you, My today’s country.
 
 Oh, watch, Romanian people, and cry out to the Father for yourself! The angelic powers are standing with their protection over you, for you are the country of My coming now, in the end of the time, and you have great protection, but you should also call out in prayer to God into your midst, oh, Romanian people.
 
@@ -49,9 +47,7 @@ I am rebuking the antichrist man and satan with his entire opposing work in the 
 
 Oh, go away satan, go to your servants, to those who do your will, to those who do not make the sign of the cross against you to lose your evil power! Go away, for the Romanian country has got Christ’s church in it for two thousand years, it is an Orthodox country and it has got from Me two thousand years of faith and God with it, and you listen to the Word of God, and the angelic hosts will fulfill this word! Amen.
 
-Oh, for more than sixty years I have been teaching a people with this word on the hearth of the Romanian people, and I have been writing My word into the book to be able to fulfill it, and I want the word of My teaching against satan to bring forth fruit, and for My love in man, in the Romanian people first, in the country of My return, now, in the end of the time, and it shall have a great name, the name of New Jerusalem, and it shall be filled with comfort, with the Holy Spirit, the Comforter, Who will give Himself abundantly, as it is written, and this people will have from God and will shine in glory before the nations, for this is written to be.
-
-[/legatura_la_teme]
+Oh, for more than sixty years I have been teaching a people with this word on the hearth of the Romanian people, and I have been writing My word into the book to be able to fulfill it, and I want the word of My teaching against satan to bring forth fruit, and for My love in man, in the Romanian people first, in the country of My return, now, in the end of the time, and it shall have a great name, the name of New Jerusalem, and it shall be filled with comfort, with the Holy Spirit, the Comforter, Who will give Himself abundantly, as it is written, and this people will have from God and will shine in glory before the nations, for this is written to be.[/legatura_la_teme]
 
 You, heavenly armies, get comforted and give comfort in your day of synod among the saints! I, the Lord, have prepared a bedding of feast, here, now, in the citadel of My word.
 

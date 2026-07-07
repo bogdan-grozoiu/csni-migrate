@@ -15,4 +15,4 @@ audio_file:
 
 *Hold with Thy hand the Romanian crown!”*
 
-For great is this song and loved by God, but only what Mother has chosen is brought, only a few words. My Mother is singing the other words in the holy heavens, as there are no evil ears there. *(The informers from the security police, r.n.)* if this entire sing wee heard here, even if they are God’s children, satan would make way without your will and he would take it into the evil mouths. All the mouths should repeat at prayer this song for My country. [/legatura_la_teme]
+For great is this song and loved by God, but only what Mother has chosen is brought, only a few words. My Mother is singing the other words in the holy heavens, as there are no evil ears there. *(The informers from the security police, r.n.)* if this entire sing wee heard here, even if they are God’s children, satan would make way without your will and he would take it into the evil mouths. All the mouths should repeat at prayer this song for My country.[/legatura_la_teme]

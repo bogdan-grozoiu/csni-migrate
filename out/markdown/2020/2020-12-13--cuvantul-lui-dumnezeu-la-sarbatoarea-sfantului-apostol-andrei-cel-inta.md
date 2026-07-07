@@ -28,7 +28,7 @@ O, fiilor, scriem această zi de mărturie și ne dăm putere de mers și de cre
 
 [legatura_la_teme id_capitol="6" id_subcapitol="3"]Le spun de la locul grăirii Mele, le spun la toți cei care sunt cu gândul, cu inima aici în ziua aceasta de mărturie, și le spun îndemnul cel de viață dătător: credință și umilință de duh să lucreze tot fiul acestei lucrări de cuvânt coborât din cer în vremea aceasta, și ca mâini sprijinitoare să fie pentru ei credința și umilința de duh, că fără statornicie în credință și fără statul în duhul umilinței n-a putut nimeni până la sfârșit, o, n-a putut, și doare aceasta între cei din cer, fiilor.
 
-Iar cele ce se petrec pe afară peste lume, o, nu e pentru voi, e pentru lume, fiilor, iar voi să fiți pentru Domnul, pentru împărăția lui Dumnezeu, care nu are nimic în lumea din afară, o, și e vremea să stați cu Domnul și de mânuță cu El mereu, fiilor. [/legatura_la_teme]
+Iar cele ce se petrec pe afară peste lume, o, nu e pentru voi, e pentru lume, fiilor, iar voi să fiți pentru Domnul, pentru împărăția lui Dumnezeu, care nu are nimic în lumea din afară, o, și e vremea să stați cu Domnul și de mânuță cu El mereu, fiilor.[/legatura_la_teme]
 
 Iar acum peste poporul cuvântului Meu lasă mângâiere de duh martorii cei din cer ai acestei sărbători de aducere-aminte. Și acum, iată-i!
 

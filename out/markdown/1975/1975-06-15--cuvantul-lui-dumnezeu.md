@@ -16,7 +16,7 @@ Copilaşii Mei, ia să vedeţi voi ce o să fie mai târziu în acest lăcaş *(
 
 ... Fiilor, am legat câinii. Ei latră de se aude la cer, dar nu le dau drumul. Când le voi da drumul, le voi da şi moartea.
 
-... Fiule, crezi că nu toată lumea care e în biserică, e în biserică? E la târg, e la obor, e la cârciumă, e la lume, şi mulţi din ei vor zice: *„Doamne, nu am fost eu în bisericuţă?“*; [legatura_la_teme id_capitol="2" id_subcapitol="4"]că ciobanului de la Maglavit, i-au ars casa şi vitele, şi de la slujbă nu a ieşit, şi când s-a dus acasă, a găsit scrum. Multe încercări a avut ciobanul de la Maglavit. [/legatura_la_teme]
+... Fiule, crezi că nu toată lumea care e în biserică, e în biserică? E la târg, e la obor, e la cârciumă, e la lume, şi mulţi din ei vor zice: *„Doamne, nu am fost eu în bisericuţă?“*; [legatura_la_teme id_capitol="2" id_subcapitol="4"]că ciobanului de la Maglavit, i-au ars casa şi vitele, şi de la slujbă nu a ieşit, şi când s-a dus acasă, a găsit scrum. Multe încercări a avut ciobanul de la Maglavit.[/legatura_la_teme]
 
 ... Am spus mereu: nu faceţi rugăciune fără tămâie, şi am spus: faceţi cruce.
 

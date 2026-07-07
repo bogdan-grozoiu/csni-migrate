@@ -8,9 +8,7 @@ audio: https://noul-ierusalim.ro/audio/1773.mp3
 audio_file: 25.08.03.mp3
 ---
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Îmi desfac brațele, Îmi deschid glasul Meu de Păstor, te îmbrățișez în cuvânt dis-de-dimineață, țara Mea dulce Mie cu tot ce este al tău de la Domnul, cu vatra ta, cu neamul tău, cu frumusețea facerii tale cea de la Dumnezeu, cu binecuvântarea pusă peste tine când a ieșit din ape pământul, o, și te doresc de atunci și până azi și până mâine și tot gătesc slava ta cea tainică, până ce se va descoperi peste tot pământul dragostea Mea pentru tine și pentru revărsarea bucuriei Mele cu tine peste toate neamurile și limbile, când Eu, Domnul Dumnezeul tău, voi îmbrățișa în slava Mea cu tine tot ce este pe pământ.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Îmi desfac brațele, Îmi deschid glasul Meu de Păstor, te îmbrățișez în cuvânt dis-de-dimineață, țara Mea dulce Mie cu tot ce este al tău de la Domnul, cu vatra ta, cu neamul tău, cu frumusețea facerii tale cea de la Dumnezeu, cu binecuvântarea pusă peste tine când a ieșit din ape pământul, o, și te doresc de atunci și până azi și până mâine și tot gătesc slava ta cea tainică, până ce se va descoperi peste tot pământul dragostea Mea pentru tine și pentru revărsarea bucuriei Mele cu tine peste toate neamurile și limbile, când Eu, Domnul Dumnezeul tău, voi îmbrățișa în slava Mea cu tine tot ce este pe pământ.
 
 Iată, te dezmierd, Îmi ești dragă mult, Mă mângâi că ești țara Mea cu comoară în ea, că ești purtătoare de Dumnezeu, că sunt peste tine cuvânt de facere nouă, pământ nou pentru cer nou precum este scris, o, și iată ce fac, te cuprind în cuvântul Meu de iubire pentru tine în fiecare zi de duminică, încă din ziua întâi a săptămânii, și petrec cu sfinții la masa de cuvânt pe vatra ta și te iubesc cei din cer ca pe cea frumoasă a lui Dumnezeu, o, țara Mea, o, Alfa și Omega lucrării Mele de facere, începutul și sfârșitul slavei lui Dumnezeu pentru facere nouă, pentru înnoirea a toate, pentru descoperirea veacului ce va să fie, o, și am pe plaiul tău ca și la început, am cuvântul Meu și izvorul său peste pământ, țara Mea.
 
@@ -32,6 +30,4 @@ O, mama Mea dulce, ai grijă de pământul român și de neamul de pe el! Aceast
 
 O, țara Mea, am grăit ție în zi de duminică. Au prins de veste toți vrăjmașii tăi de veghea Mea de peste tine. Ai grijă, stai sub veghea cuvântului Meu, stai în această cuprindere sfântă, care te binecuvintează de sus. Întăresc statul la cârmă a celor ce veghează peste tine acum, și le dau îngeri și puteri cerești de pază și ajutor pentru ei și pentru țară, iar cel ce a dat să frâneze mersul cel curat pe mai departe al neamului român va fi lovit de însăși faptele sale rele, căci așa este scris.
 
-Pacea Mea ți-o dau, țara Mea! Rămâi întru iubirea Mea, întru pacea Mea! Rămâi la veghe cu Domnul Dumnezeul tău Iisus Hristos, Care te păstorește cu mare iubire. Te am sub dragostea Mea. Rămâi sub acest scut sfințitor peste viața ta de fiecare zi. Cuprinde-Mă cu dorul tău, că voiesc să-Mi dorești cuvântul și glasul și să te îmbraci în mângâierea Mea cea din cuvânt. Rămân cu tine în brațe, rămân Păstorul tău Cel duios și bun. Amin, amin, amin.
-
-[/legatura_la_teme]
+Pacea Mea ți-o dau, țara Mea! Rămâi întru iubirea Mea, întru pacea Mea! Rămâi la veghe cu Domnul Dumnezeul tău Iisus Hristos, Care te păstorește cu mare iubire. Te am sub dragostea Mea. Rămâi sub acest scut sfințitor peste viața ta de fiecare zi. Cuprinde-Mă cu dorul tău, că voiesc să-Mi dorești cuvântul și glasul și să te îmbraci în mângâierea Mea cea din cuvânt. Rămân cu tine în brațe, rămân Păstorul tău Cel duios și bun. Amin, amin, amin.[/legatura_la_teme]

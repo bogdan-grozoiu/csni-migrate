@@ -31,7 +31,7 @@ Mes fils, c’est seulement un qui restera dans Mon royaume. Abraham.
 
 …. Voilà ce que le Seigneur vous apprend: quand vous viendrez à Ma crèche, laissez les plaisanteries de côté et toutes les choses qui peuvent vous conduire au péché. Mes fils, je sais que vous êtes encore jeunes, pourtant heureux sont les noces et les lits immaculés. Jacob a servi de bonnes années pour gagner sa fiancée. Crois-tu cela? Maintenant, avec un seul sourire un jeune homme a bien gagné sa fiancée, mais ça ne vient pas de Dieu. Faites attention, la multitude des femmes souriantes a ruiné la terre. Les routes débordent de péchés! Cela n’a pas été depuis des siècles et J’ai prophétisé d’avance qu’heureux est le chrétien qui voit, mais ne touche pas au corps de femme. Malheur à celui qui s’est souillé avec la fornication de nos jours!
 
-[legatura_la_teme id_capitol="6" id_subcapitol="2"]…. La vérité Je vous dis, en vous assurant que beaucoup d’entre vous ne connaîtront pas la mort, en recevant encore vivants le Seigneur. [/legatura_la_teme]
+[legatura_la_teme id_capitol="6" id_subcapitol="2"]…. La vérité Je vous dis, en vous assurant que beaucoup d’entre vous ne connaîtront pas la mort, en recevant encore vivants le Seigneur.[/legatura_la_teme]
 
 …. Oh, Mes Fils, mettez votre main sur l’Evangile. Pas pour la lire, comme beaucoup le font, mais pour l’apprendre, pour la connaître, pour la comprendre. Mon fils, fais-toi le calcul et si tu ne sais pas le faire, demande à quelqu’un qui le sache et si tu l’as apprise, méfie-toi de l’orgueil et d’aliénation de cet apprentissage.
 

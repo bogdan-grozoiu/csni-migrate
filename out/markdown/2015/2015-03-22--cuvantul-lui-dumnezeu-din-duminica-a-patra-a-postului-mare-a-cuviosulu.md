@@ -42,4 +42,4 @@ O, Mă doare când călcaţi peste datinile sfinte, fii români. O, trebuie pild
 
 O, neam român, rugăciunea şi postul te ţin în dragostea Mea, iar tu trebuie să asculţi şi să Mă ajuţi. Aşadar, ai grijă de poveţele sfinte de peste tine şi teme-te să calci peste ele, căci temerea de Dumnezeu este începutul înţelepciunii şi duce ea la iubire şi la ascultare şi la putere sfântă şi la biruinţă împotriva ispitelor fel de fel, căci ţie îţi trebuie putere, popor român, şi-ţi spun să ştii de unde şi din ce îţi vine ea ca s-o ai apoi.
 
-Acum, pace ţie! Eu, Domnul, sunt cu tine pe cale şi te povăţuiesc mult şi mereu, iar tu caută, o, caută să asculţi frumos, că frumoasă şi slăvită este calea Mea prin mijlocul tău şi poporul cuvântului Meu cel servitor Mie şi ţie din mijlocul tău. Amin, amin, amin. [/legatura_la_teme]
+Acum, pace ţie! Eu, Domnul, sunt cu tine pe cale şi te povăţuiesc mult şi mereu, iar tu caută, o, caută să asculţi frumos, că frumoasă şi slăvită este calea Mea prin mijlocul tău şi poporul cuvântului Meu cel servitor Mie şi ţie din mijlocul tău. Amin, amin, amin.[/legatura_la_teme]

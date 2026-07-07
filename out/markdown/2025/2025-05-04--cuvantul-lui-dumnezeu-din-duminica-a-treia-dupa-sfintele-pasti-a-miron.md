@@ -8,9 +8,7 @@ audio: https://noul-ierusalim.ro/audio/1752.mp3
 audio_file: 25.05.04.mp3
 ---
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Eu sunt Cel ce sunt. Bat cu toiagul, bat să Mi se deschidă și intru în cetatea cuvântului Meu pe pământul român, iar toiagul Meu este cuvântul.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Eu sunt Cel ce sunt. Bat cu toiagul, bat să Mi se deschidă și intru în cetatea cuvântului Meu pe pământul român, iar toiagul Meu este cuvântul.
 
 Hristos a înviat! Pace peste țară! Pace peste cetatea cuvântului Meu! Pace peste inimile iubitoare de Dumnezeu și de pace!
 
@@ -38,12 +36,10 @@ Vă iau acum cu Mine întru venirea Mea cuvânt pe pământ și vă port în sla
 
 *— Iar eu, mama Ta, Fiule al meu, rămân la veghea cea de mamă peste țara română și împrăștii mângâieri, și tainic lucrăm, o, și e dulce ziua aceasta de pomenire pentru Noi și pentru cei adormiți laolaltă cu Noi înaintea Ta, Fiule scump Iisus. Iar tu, scumpă țară a Fiului meu, ridică-te din sângele tău și ia de la Duhul Sfânt Mângâietorul, Care-ți șoptește tainic: Scoală-te, te cheamă Domnul!*
 
-— O, iubiții Mei cu care Mă port pe deasupra pe aripile puterilor cerești, o, scumpii Mei cei de acum două mii de ani, așezăm mângâieri tainice în ziua aceasta, căci dorul ne aduce nădejde pentru bucurii, și hai să-L rugăm pe Tatăl și să-I spunem laolaltă toți: Tată, o, Tată, ai grijă de România, de soarta ei cea de după această zi de tragere la sorți pentru mersul ei pe mai departe! Nu lăsa vrăjmașii și hrăpăreții de pe margini să pună sub picioarele lor soarta acestui neam! Amin.
+— O, iubiții Mei cu care Mă port pe deasupra pe aripile puterilor cerești, o, scumpii Mei cei de acum două mii de ani, așezăm mângâieri tainice în ziua aceasta, căci dorul ne aduce nădejde pentru bucurii, și hai să-L rugăm pe Tatăl și să-I spunem laolaltă toți: Tată, o, Tată, ai grijă de România, de soarta ei cea de după această zi de tragere la sorți pentru mersul ei pe mai departe! Nu lăsa vrăjmașii și hrăpăreții de pe margini să pună sub picioarele lor soarta acestui neam! Amin.[/legatura_la_teme]
 
-[/legatura_la_teme][legatura_la_teme id_capitol="5" id_subcapitol="6"]
-
-Iar voi, fiilor străjeri peste cetatea cuvântului Meu și peste venirea Mea la voi cu masă de cuvânt, o, stați sub acoperământul puterilor cerești cu care Mă port pe deasupra ca să vin, iar nădejdea să n-o slăbiți. Lăsați mângâierea Duhului Sfânt să vă cuprindă și să vă lucreze, fiilor. Sunteți puțini sub lucrul cel greu încă pentru gătirea grădinii de la Maluri, dar nu uitați așteptarea celor din cer, dar și a celor de pe pământ care așteaptă bucuria sărbătorii, iar voi prindeți puteri din mers și zburați, fiilor, pe deasupra lucrărilor de lucrat și de terminat, o, că grea e așteptarea! Așadar, păstrați pe Duhul Cel Mângâietor peste voi și între voi, și numai da să aveți în minte și pe limbă, căci cu Noi toate sunt da.
+[legatura_la_teme id_capitol="5" id_subcapitol="6"]Iar voi, fiilor străjeri peste cetatea cuvântului Meu și peste venirea Mea la voi cu masă de cuvânt, o, stați sub acoperământul puterilor cerești cu care Mă port pe deasupra ca să vin, iar nădejdea să n-o slăbiți. Lăsați mângâierea Duhului Sfânt să vă cuprindă și să vă lucreze, fiilor. Sunteți puțini sub lucrul cel greu încă pentru gătirea grădinii de la Maluri, dar nu uitați așteptarea celor din cer, dar și a celor de pe pământ care așteaptă bucuria sărbătorii, iar voi prindeți puteri din mers și zburați, fiilor, pe deasupra lucrărilor de lucrat și de terminat, o, că grea e așteptarea! Așadar, păstrați pe Duhul Cel Mângâietor peste voi și între voi, și numai da să aveți în minte și pe limbă, căci cu Noi toate sunt da.
 
 Fiți una în toate lucrările de lucrat, fiți una și dăruiți-vă pentru toată lucrarea și ajutorarea, ca să vină Duhul Sfânt să lucreze El, fiilor, căci voi sunteți puțini și trebuie grăbită sosirea sărbătorii, și toate trebuie să fie încheiate cu totul, căci lucrul lăsat neterminat așteaptă mult apoi, și voi știți bine aceasta, iar la Domnul toate sunt întregi și n-au știrbitură, și așa să fie și la voi toate, fiilor. Binecuvântată să fie truda voastră, o, și vom sărbători apoi pe românește ființa acestei grădini și va rămâne bucuria ei peste pământ mărturisind. Amin.
 
-Pace vouă la masa pomenirii de azi, fiilor! Straturi straturi sufletele toate, toate, de la facere și până azi stau la masa pomenirii de azi pentru ei, în duminica a treia de după învierea Mea, când mironosițele Mele au împărțit vestea cea îmbucurătoare pentru cei credincioși, și cea îndurerată pentru necredincioșii de atunci, o, fiilor, și au împărțit ele în lung și în lat cuvântul cel mărturisitor peste margini și peste timp, de atunci și până azi. Hristos a înviat! Hristos a înviat! Hristos a înviat! Amin, amin, amin. [/legatura_la_teme]
+Pace vouă la masa pomenirii de azi, fiilor! Straturi straturi sufletele toate, toate, de la facere și până azi stau la masa pomenirii de azi pentru ei, în duminica a treia de după învierea Mea, când mironosițele Mele au împărțit vestea cea îmbucurătoare pentru cei credincioși, și cea îndurerată pentru necredincioșii de atunci, o, fiilor, și au împărțit ele în lung și în lat cuvântul cel mărturisitor peste margini și peste timp, de atunci și până azi. Hristos a înviat! Hristos a înviat! Hristos a înviat! Amin, amin, amin.[/legatura_la_teme]

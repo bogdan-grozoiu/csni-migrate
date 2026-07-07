@@ -22,9 +22,9 @@ audio_file:
 
 ... Poporul Meu iubit, te iubesc întotdeauna. Nu te mai lăsa să fii aramă stricată. Fii vas lui Dumnezeu; fii casă şi izvor lui Dumnezeu; fii masă şi servul lui Dumnezeu, că în ceruri va fi bine când te vei duce la odihnă.
 
-[legatura_la_teme id_capitol="6" id_subcapitol="1"]O, fiica Mea, o, fecioară, nu te încânta de un mire pământesc, nu te încânta de portul pământesc, nu te încânta de vremea de acum. Prin curăţie îţi faci rochiţă de mireasă. Spune-Mi şi Mie, poporul Meu, când se termină viaţa ta cea rea? [/legatura_la_teme]
+[legatura_la_teme id_capitol="6" id_subcapitol="1"]O, fiica Mea, o, fecioară, nu te încânta de un mire pământesc, nu te încânta de portul pământesc, nu te încânta de vremea de acum. Prin curăţie îţi faci rochiţă de mireasă. Spune-Mi şi Mie, poporul Meu, când se termină viaţa ta cea rea?[/legatura_la_teme]
 
-... Eu vă iubesc întotdeauna. [legatura_la_teme id_capitol="6" id_subcapitol="2"]Voi sunteţi cheia veacului, care mai faceţi binele. Dumnezeu va încheia veacul Său cu voi. [/legatura_la_teme]Mai sunt copii ca voi, mai sunt pe alocurea. Eu Mă duc la toţi, pe toţi îi hrănesc, şi vine ziua să-i unesc pentru ziua cea mare. Credeţi că sunt fii şi fiice necăsătorite şi care postesc cu zilele, şi sunt fii şi fiice care sunt ca nişte mlădiţe? Nu vă spun ca să vă întristez, ci ca să vă îndemnaţi la drumul lui Dumnezeu.
+... Eu vă iubesc întotdeauna. [legatura_la_teme id_capitol="6" id_subcapitol="2"]Voi sunteţi cheia veacului, care mai faceţi binele. Dumnezeu va încheia veacul Său cu voi.[/legatura_la_teme]Mai sunt copii ca voi, mai sunt pe alocurea. Eu Mă duc la toţi, pe toţi îi hrănesc, şi vine ziua să-i unesc pentru ziua cea mare. Credeţi că sunt fii şi fiice necăsătorite şi care postesc cu zilele, şi sunt fii şi fiice care sunt ca nişte mlădiţe? Nu vă spun ca să vă întristez, ci ca să vă îndemnaţi la drumul lui Dumnezeu.
 
 ... Această goliciune nu e de pe pământ şi nici în carte nu scrie de ea, că n-ar fi avut loc, şi aceasta nu e de pe pământul ţării româneşti, ci din ţară foarte murdară, de la armatele care au fost pe aici.
 

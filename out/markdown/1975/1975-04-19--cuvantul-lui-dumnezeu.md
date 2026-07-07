@@ -16,13 +16,13 @@ audio_file:
 
 ... Familiile pe care le-am unit, unde le e recolta? Unde vă sunt recolta şi faptele? Unde vă este sfinţenia? Unde vă e blagoslovenia şi binecuvântarea? Unde sunteţi? O, tată, tată, unde vă sunt faptele bune? Uniţi-vă la fapte bune şi la viaţă, nu vă duşmăniţi şi nu fugiţi de Mine, că unde te vei ascunde? Nu ai unde, că Dumnezeu te scoate de oriunde şi te osândeşte.
 
-[legatura_la_teme id_capitol="2" id_subcapitol="6"]... Astăzi nu mai e vremea din anul 1955 când M-am coborât, ci este anul 1975 când este vreme grea şi nimeni nu se mai uită la aceste cuvinte. În anul 1955 am sărbătorit dezgroparea unui sfânt şi a făcut slujbă minunată, căci în vremurile voastre s-a ivit un sfânt pe acest pământ românesc, şi acest sfânt a fost şi este de mare preţ pentru voi *(sfântul Calinic de la Cernica, n.r.)*. Dar în anul 1975 nu se mai dezgroapă nici un sfânt, chiar dacă ar fi, şi mai pune pe el o greutate, ca să nu se mai dezgroape niciodată. Astăzi e credinţa nepreţuită. [/legatura_la_teme]
+[legatura_la_teme id_capitol="2" id_subcapitol="6"]... Astăzi nu mai e vremea din anul 1955 când M-am coborât, ci este anul 1975 când este vreme grea şi nimeni nu se mai uită la aceste cuvinte. În anul 1955 am sărbătorit dezgroparea unui sfânt şi a făcut slujbă minunată, căci în vremurile voastre s-a ivit un sfânt pe acest pământ românesc, şi acest sfânt a fost şi este de mare preţ pentru voi *(sfântul Calinic de la Cernica, n.r.)*. Dar în anul 1975 nu se mai dezgroapă nici un sfânt, chiar dacă ar fi, şi mai pune pe el o greutate, ca să nu se mai dezgroape niciodată. Astăzi e credinţa nepreţuită.[/legatura_la_teme]
 
 ... Acum nu mai este anul grâului, ci este anul banilor. Nu se mai pune preţ la grâu, ci la argint şi la aramă. De aceea am zis că dacă ai fi bani, te-ar căuta şi în pământ şi te-ar folosi la munca sa. Dar stai aşa, nu te perpeli că eşti fără valoare, că piere această comoară de astăzi, şi tu vei avea valoare.
 
-[legatura_la_teme id_capitol="2" id_subcapitol="6"]... Ţineţi minte, căci câte i s-au arătat prin vedenie acestui vas, astăzi sunt.
+[legatura_la_teme id_capitol="2" id_subcapitol="6"]... Ţineţi minte, căci câte i s-au arătat prin vedenie acestui vas, astăzi sunt.[/legatura_la_teme]
 
-[/legatura_la_teme][legatura_la_teme id_capitol="6" id_subcapitol="3"]... Dacă ţi-a spus cineva că te-a văzut greşit şi tu ştii că nu ai făcut, nu te mâhni, ci crede, că e solul lui Dumnezeu. [/legatura_la_teme]
+[legatura_la_teme id_capitol="6" id_subcapitol="3"]... Dacă ţi-a spus cineva că te-a văzut greşit şi tu ştii că nu ai făcut, nu te mâhni, ci crede, că e solul lui Dumnezeu.[/legatura_la_teme]
 
 ... Nu mai e anul 1954. O, nu mai sunteţi de atunci, şi sunteţi de astăzi, când se uită moartea pe fereastră să numere pe cine să ia cu grămada. Duhovniceşte vorbesc. Nu vorbesc de roşul de pe buze sau de sprâncenele făcute, ci vorbesc de credinţă şi de suferinţă, şi voi nu aşteptaţi sfârşitul, că ţi-a şoptit satana la ureche că nu se mai sfârşeşte acest veac, şi te minte, tată.
 
@@ -34,7 +34,7 @@ audio_file:
 
 ... Israele, aşteaptă cerul la tine să vadă cum ieşi din şcoală: cu grad, sau fără grad şi fără galoane? [legatura_la_teme id_capitol="6" id_subcapitol="2"]Tată, mulţi aşteaptă să-i scoateţi de la pedeapsă, că până la al miilea neam va fi scos prin mâinile voastre, prin examenul tău, creştine. O, tată, te înşeală pe tine o mâncare, o băutură, o gelozie, o minciună? Acestea sunt gunoi. Aruncaţi-le de la voi. Cum S-a pogorât Domnul Iisus în iad şi i-a scos pe toţi afară, aşa şi tu, fiul Meu, te vei duce în iad, şi cu darul lui Dumnezeu, până la al miilea neam îl vei scoate.
 
-De ce-Mi pierd Eu vremea cu voi? Fiilor, măcelarul e măcelar, îşi pregăteşte carnea ca să fie gustoasă. Aşa şi Domnul Hristos, Îşi pregăteşte popor pentru veşnicie. [/legatura_la_teme]
+De ce-Mi pierd Eu vremea cu voi? Fiilor, măcelarul e măcelar, îşi pregăteşte carnea ca să fie gustoasă. Aşa şi Domnul Hristos, Îşi pregăteşte popor pentru veşnicie.[/legatura_la_teme]
 
 ... Vai de părinţii care nu-şi lasă copiii să vină la Mine! Vai de copiii care nu-şi lasă părinţii să vină la Mine! Fiilor, ajutaţi-Mă în muncă. Vom curăţi pământurile. Ajutaţi-vă în muncă unii pe alţii, şi toţi ajutaţi-Mă pe Mine, că nu vei avea hotar în calea ta.
 

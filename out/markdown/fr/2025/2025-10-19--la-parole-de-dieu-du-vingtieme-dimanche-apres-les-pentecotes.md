@@ -9,9 +9,7 @@ audio: https://noul-ierusalim.ro/audio/381fr.mp3
 audio_file: 25.10.19-fr.mp3
 ---
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Il est flamme d’envie sainte Mon Esprit, et elle devient parole de Ma bouche cette envie, et Je romps de la gloire du Père Ma venue sur la terre en parole, et c’est gloire céleste cette parole de Ma bouche entre le ciel et la terre, et personne n’est part avec cette gloire, que ceux auxquels Mon Père leur fait part d’elle, de foi pour elle, et Me voilà en parole au-dessus de la terre après deux mille ans depuis Ma résurrection d’entre les morts, et J’ai nouveau nom, nom merveilleux: La Parole de Dieu, comme il est écrit que Je porte ce nom à la fin de temps.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Il est flamme d’envie sainte Mon Esprit, et elle devient parole de Ma bouche cette envie, et Je romps de la gloire du Père Ma venue sur la terre en parole, et c’est gloire céleste cette parole de Ma bouche entre le ciel et la terre, et personne n’est part avec cette gloire, que ceux auxquels Mon Père leur fait part d’elle, de foi pour elle, et Me voilà en parole au-dessus de la terre après deux mille ans depuis Ma résurrection d’entre les morts, et J’ai nouveau nom, nom merveilleux: La Parole de Dieu, comme il est écrit que Je porte ce nom à la fin de temps.
 
 Oh, Mon pays de venue, J’ai en toi cité et voie de venue, et Je viens avec la gloire de Ma parole chez toi et Je la partage sur les peuples et les langues, et Je M’annonce venir avec elle envoyé du Père, et que J’ai la Roumanie choisie pour Moi et pour la gloire de Ma venue en parole sur la terre.
 
@@ -37,6 +35,4 @@ Qu’ils soient bénis les annonciateurs de Ma parole et Ma Grâce celle pour eu
 
 Que tu sois béni, Mon pays d’aujourd’hui, Mon premier amour à la création du ciel et de la terre! Je reviens à Mon premier amour, à toi, sainte terre roumaine, sur laquelle Je Me suis tenu au début, et J’ai prononcé et J’ai accompli. Je prépare ton nouveau levain et Mon envie sainte est toute une flamme de feu pour ta première beauté, lorsque Moi, le Seigneur, J’ai préparé levain de ta glaise maison de repas, homme bâti selon Mon image et Ma ressemblance, sur lequel J’ai souffle esprit de vie et Je lui ai donné en héritage jardin de paradis, oh, mais il ne s’est pas gardé de Ma part ensuite, et depuis lors Je suis tout une envie sainte pour toi, pour Mon premier amour, celui du début, et Je viens à toi avec le renouvellement, avec ta naissance de nouveau, peuple roumain.
 
-Je suis le Seigneur et ton Créateur, Jésus-Christ, *la Parole de Dieu*, Mon nouveau nom, et tout est remis à neuf en commençant avec Mon nom et avec ton nom, la Nouvelle Jérusalem, la Jérusalem roumaine et Ma venue et Mon premier amour de nouveau sur la terre, maintenant, à la fin de temps. Amen, amen, amen.
-
-[/legatura_la_teme]
+Je suis le Seigneur et ton Créateur, Jésus-Christ, *la Parole de Dieu*, Mon nouveau nom, et tout est remis à neuf en commençant avec Mon nom et avec ton nom, la Nouvelle Jérusalem, la Jérusalem roumaine et Ma venue et Mon premier amour de nouveau sur la terre, maintenant, à la fin de temps. Amen, amen, amen.[/legatura_la_teme]

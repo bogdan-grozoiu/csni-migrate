@@ -8,7 +8,7 @@ audio:
 audio_file: 
 ---
 
-[legatura_la_teme id_capitol="3" id_subcapitol="4"]... Iată, slujitorul bisericuţei din localitatea de aici se înfoaie împotriva Mea şi a fiilor lucrării Mele, dar Eu îi voi da suferinţă şi i-o voi dubla până va ajunge cu capul la picioare. Eu i-am trimis cuvântul Meu ca să-l ridic şi să-l întăresc, dar el a luat-o pe drumul satanicesc, să-Mi facă Mie rău. [/legatura_la_teme]
+[legatura_la_teme id_capitol="3" id_subcapitol="4"]... Iată, slujitorul bisericuţei din localitatea de aici se înfoaie împotriva Mea şi a fiilor lucrării Mele, dar Eu îi voi da suferinţă şi i-o voi dubla până va ajunge cu capul la picioare. Eu i-am trimis cuvântul Meu ca să-l ridic şi să-l întăresc, dar el a luat-o pe drumul satanicesc, să-Mi facă Mie rău.[/legatura_la_teme]
 
 ... Fiilor, voi nu ştiţi, dar Eu ştiu. Satana râmă prin toate inimile, dar în curând spăl numele lui şi al iubitorilor lui. Staţi lângă Mine şi veţi vedea lucruri mari. [legatura_la_teme id_capitol="1" id_subcapitol="4"]Noe când l-am băgat în corabie, n-a văzut potopul. Şi cu voi tot aşa fac.[/legatura_la_teme] Chiar şi cutremurul de vine peste căsuţele voastre, nu vi le dărâmă, că e stânca Mea puternică cu ele. Atunci veţi vedea minunea.
 

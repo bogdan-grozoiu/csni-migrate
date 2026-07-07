@@ -9,7 +9,7 @@ audio:
 audio_file: 
 ---
 
-[legatura_la_teme id_capitol="2" id_subcapitol="4"]… This human being was in a cell and she made five hundred genuflexions *(prostration)* in the morning and five hundred in the afternoon. *She was praying for My people not to get lost lacking the knowledge and she was praying to be with God until she returns from her cell. But the one who didn’t understand the work of God, thought that this was made for simulation, for money. [/legatura_la_teme]*
+[legatura_la_teme id_capitol="2" id_subcapitol="4"]… This human being was in a cell and she made five hundred genuflexions *(prostration)* in the morning and five hundred in the afternoon. *She was praying for My people not to get lost lacking the knowledge and she was praying to be with God until she returns from her cell. But the one who didn’t understand the work of God, thought that this was made for simulation, for money.[/legatura_la_teme]*
 
 *… The end is coming, but first of all the end of the drunkards is coming, of the fornicators, of the smokers, of the betrayers and robbers.*
 
@@ -21,4 +21,4 @@ audio_file:
 
 ... Son, I have said once not to drink more than three cups of wine, but Christian made a bucket out of a cup. Lord did not drink for lust.
 
-[legatura_la_teme id_capitol="2" id_subcapitol="4"]… Be perfect, for look, there are a lot of heavenly guests near you. They came with Me, Lord Jesus Christ, and they sit above. There is no roof, there is only a bridge of clouds, and that people come from heaven sits on the clouds, together with The Holy Trinity. There is a crown of cherubs that surrounds The Holy Trinity, and Lord Jesus is on this chest who is speaking. This body is crushed into fire. [/legatura_la_teme]
+[legatura_la_teme id_capitol="2" id_subcapitol="4"]… Be perfect, for look, there are a lot of heavenly guests near you. They came with Me, Lord Jesus Christ, and they sit above. There is no roof, there is only a bridge of clouds, and that people come from heaven sits on the clouds, together with The Holy Trinity. There is a crown of cherubs that surrounds The Holy Trinity, and Lord Jesus is on this chest who is speaking. This body is crushed into fire.[/legatura_la_teme]

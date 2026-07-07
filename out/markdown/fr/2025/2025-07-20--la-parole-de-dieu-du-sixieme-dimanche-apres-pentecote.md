@@ -9,9 +9,7 @@ audio: https://noul-ierusalim.ro/audio/377fr.mp3
 audio_file: 25.07.20-fr.mp3
 ---
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Je te porte dans Ma parole, Je te porte dans Mon Esprit, dans Mon amour pour toi, Mon pays celui d’aujourd’hui, peuple roumain. Je tiens ta petite main, Je te donne parole d’encouragement, et J’essaie de mettre sur tes fils des dons spirituels, peuple roumain.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Je te porte dans Ma parole, Je te porte dans Mon Esprit, dans Mon amour pour toi, Mon pays celui d’aujourd’hui, peuple roumain. Je tiens ta petite main, Je te donne parole d’encouragement, et J’essaie de mettre sur tes fils des dons spirituels, peuple roumain.
 
 Oh, tu as besoin d’amour, Roumanie, Ma chère! Paix à toi de Dieu, paix et amour! Qu’il soit béni ton amour, et amour signifie Dieu!
 
@@ -43,6 +41,4 @@ Je vais te paître tout le temps pendant les jours de repos, peuple roumain, et 
 
 J’embrasse encore et encore dans Mon souhait consolant pour les Miens: Paix à toi, Mon pays, Ma Roumanie! Tu es le lit de rivière par lequel Ma parole coule et écrit sur la terre pour témoigner de Moi, et Moi Je suis ton Pasteur tout le temps. Paix à toi! Tu es Mon don de la part du Père, pour Mon temps avec toi. Je te comprends dans Mon amour et J’embrasse ta terre et son âme, et Je Me console en t’embrassant dans Ma parole. Oh, tiens-toi dans Mon amour, reste la Mienne, tiens-toi sous Ma bénédiction, toi, celle bénie entre les peuples avec le nom de Roumanie, le nom caché de Mon choix de maintenant, nom de la terre éluée du début et à la fin pour Ma gloire et celle de Mon peuple élu à la fin pour le préparer pour Moi, pour Dieu, pour Ma venue en parole sur la terre, maintenant, à la fin de temps, comme il est écrit.
 
-Je Me porte avec toi à travers la terre avec Mon nouveau nom et le tien, Mon pays, *la Parole de Dieu*, et Son peuple, le peuple roumain, sous l’exercice de Mon autorité pastorale maintenant, avec cette parole. Amen, amen, amen.
-
-[/legatura_la_teme]
+Je Me porte avec toi à travers la terre avec Mon nouveau nom et le tien, Mon pays, *la Parole de Dieu*, et Son peuple, le peuple roumain, sous l’exercice de Mon autorité pastorale maintenant, avec cette parole. Amen, amen, amen.[/legatura_la_teme]

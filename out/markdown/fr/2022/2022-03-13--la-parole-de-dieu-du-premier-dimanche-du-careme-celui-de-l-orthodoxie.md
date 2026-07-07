@@ -33,4 +33,4 @@ Je M’incline d’auprès du Père jusqu’aux pieds de ceux qui annoncent le C
 
 Et à nouveau Je dis: Anathème sur vous, qui déformez les voies du Seigneur et les pas des chrétiens du Christ!
 
-Encore et encore paix à vous, ceux qui persévérez au nom de la vérité celle venue par Mon église, et qui garde son établissement et son pouvoir, celui de son début, celui venu par les pères! Amen, amen, amen. [/legatura_la_teme]
+Encore et encore paix à vous, ceux qui persévérez au nom de la vérité celle venue par Mon église, et qui garde son établissement et son pouvoir, celui de son début, celui venu par les pères! Amen, amen, amen.[/legatura_la_teme]

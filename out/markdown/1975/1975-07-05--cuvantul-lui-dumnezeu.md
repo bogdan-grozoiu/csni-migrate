@@ -14,7 +14,7 @@ audio_file:
 
 ... Poporul Meu întru care am binevoit, ne vom despărţi, căci cu un cuvânt Mă mângâi şi cu zece Mă alungi. Atât suntem împreună, doar la rugăciune, dar câteodată nici aici.
 
-[legatura_la_teme id_capitol="6" id_subcapitol="1"]... Şi Eu am avut lângă Mine femei, dar am avut în duh. Am avut şi le am, dar le am cu duhul. Dar tu le ai cu trupul şi le ai cu pofta. O tată, aş vrea ca femeia ta să nu-ţi fie femeie, ci să-ţi fie soră neîntinată şi să-ţi fie soră binecuvântată. [/legatura_la_teme]
+[legatura_la_teme id_capitol="6" id_subcapitol="1"]... Şi Eu am avut lângă Mine femei, dar am avut în duh. Am avut şi le am, dar le am cu duhul. Dar tu le ai cu trupul şi le ai cu pofta. O tată, aş vrea ca femeia ta să nu-ţi fie femeie, ci să-ţi fie soră neîntinată şi să-ţi fie soră binecuvântată.[/legatura_la_teme]
 
 Israele, o să-ţi pară rău de păcatul tău, o să-ţi pară rău de soarta ta. Plâng îngerii pentru al tău viitor, căci viitorul tău trebuia să fie la înălţime, la al treilea cer. Israele tată, dacă ai fi tu păstorul Meu şi Eu aş fi ca tine, ai zice aşa: *„Legea e lege. Legea te judecă şi legea te pedepseşte“.* Israele, muşcă-ţi limba în gură când te înşeală fiinţa ta.
 

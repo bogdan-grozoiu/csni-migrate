@@ -8,13 +8,13 @@ audio:
 audio_file: 
 ---
 
-[legatura_la_teme id_capitol="7" id_subcapitol="3"]... M-am pogorât din cer pe pământ, dar dacă vreţi să vă vorbesc, îmblânziţi inimile voastre. Privesc şi văd că vi s-au împietrit. Nu este lăutar să vă cânte, nu este. De aţi venit pentru aşa ceva, nu este, dar dacă nu credeţi că Eu sunt, veţi vedea odată, căci cum M-am pogorât odată în trup, să vindec trupurile, tot aşa M-am pogorât acum, în Duh, să vindec sufletele. Fiilor, n-am venit să dau cu toiagul, ci am venit să vindec suflete bolnave. Azi vă vorbesc blând, în duh, dar mâine vin şi am să vorbesc în tunete şi trăsnete, de se va cutremura pământul. [/legatura_la_teme]
+[legatura_la_teme id_capitol="7" id_subcapitol="3"]... M-am pogorât din cer pe pământ, dar dacă vreţi să vă vorbesc, îmblânziţi inimile voastre. Privesc şi văd că vi s-au împietrit. Nu este lăutar să vă cânte, nu este. De aţi venit pentru aşa ceva, nu este, dar dacă nu credeţi că Eu sunt, veţi vedea odată, căci cum M-am pogorât odată în trup, să vindec trupurile, tot aşa M-am pogorât acum, în Duh, să vindec sufletele. Fiilor, n-am venit să dau cu toiagul, ci am venit să vindec suflete bolnave. Azi vă vorbesc blând, în duh, dar mâine vin şi am să vorbesc în tunete şi trăsnete, de se va cutremura pământul.[/legatura_la_teme]
 
 ... Iată, măi copii, nu Mi-e scârbă să Mă cobor într-un vas, că pe acesta l-am găsit curăţat şi spălat, şi la cuvântul Meu s-a curăţat. M-am făcut blând, după voia omului. Eu torn apă cu găleata la flori cu mulţimea.
 
 ... Iată vremea zilelor de pe urmă. Veniţi, tată, la Mine, că am unde să vă duc; porţile sunt deschise până la ţâţâni. Veniţi la Mine, că am cu ce să vă hrănesc. Veniţi toţi, că am de toate bunătăţile.
 
-O, văd între voi nişte prunci. Ia veniţi la Mine, copii! [legatura_la_teme id_capitol="2" id_subcapitol="2"]Tată, cei paisprezece mii de prunci care s-au jertfit pentru Mine, toţi au gorniţe şi slăvesc numele Meu. Iată de ce e mare bucurie în ziua aceea de Crăciun; de aceea se fac covrigi şi se împart. Cum voi vă bucuraţi, tot aşa se bucură şi ei în ceruri. [/legatura_la_teme]
+O, văd între voi nişte prunci. Ia veniţi la Mine, copii! [legatura_la_teme id_capitol="2" id_subcapitol="2"]Tată, cei paisprezece mii de prunci care s-au jertfit pentru Mine, toţi au gorniţe şi slăvesc numele Meu. Iată de ce e mare bucurie în ziua aceea de Crăciun; de aceea se fac covrigi şi se împart. Cum voi vă bucuraţi, tot aşa se bucură şi ei în ceruri.[/legatura_la_teme]
 
 ... Eu nu Mă port împarfumat cum vă purtaţi voi. Nu zic de toţi; zic de o parte din voi. Lăsaţi luxul şi mândria, că tare sunt urâte la Mine.
 

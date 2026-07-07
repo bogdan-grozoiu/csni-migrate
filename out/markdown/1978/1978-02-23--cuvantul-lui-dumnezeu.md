@@ -20,11 +20,11 @@ audio_file:
 
 ... Pe unde am cutreierat pământul în lung şi în lat, n-am lăsat semne, n-am blestemat, n-am scuturat praful de pe picioare ca să rămână în durere mare, pentru că aşa a spus Tatăl, să las neghina cu grâul până la sfârşit. Dar a sosit ziua şi a neghinei, şi a grâului, să fie puse fiecare în al său hambar.
 
-[legatura_la_teme id_capitol="2" id_subcapitol="4"]... Copilaşii Mei, sinagogile unde vă închinaţi voi, nu vor mai fi pentru închinăciune, ci vor fi filme şi teatre, cum este la mănăstirea Vladimireşti. Cine a făcut aşa? Ura şi duşmănia dintre cei aleşi ai Mei de acolo. Dacă te-ai fi dus şi ai fi văzut, ai fi văzut că unul, doi erau ai Mei, şi o sută erau vrăjmaşi şi trăgeau cu arma. [/legatura_la_teme]
+[legatura_la_teme id_capitol="2" id_subcapitol="4"]... Copilaşii Mei, sinagogile unde vă închinaţi voi, nu vor mai fi pentru închinăciune, ci vor fi filme şi teatre, cum este la mănăstirea Vladimireşti. Cine a făcut aşa? Ura şi duşmănia dintre cei aleşi ai Mei de acolo. Dacă te-ai fi dus şi ai fi văzut, ai fi văzut că unul, doi erau ai Mei, şi o sută erau vrăjmaşi şi trăgeau cu arma.[/legatura_la_teme]
 
 ... Fiule Iordache, să-i spui lui Mihail, prietenul tău, că e scris în dosarul lui Dumnezeu, dar va fi şters, pentru că duşmăneşte pe cel nevinovat. Feriţi-vă de a duşmăni pe cei aleşi ai Mei. Nu duşmăniţi.
 
-[legatura_la_teme id_capitol="8" id_subcapitol="5"]... Scrie în carte că pământul acesta va fi al vostru şi nu veţi mai pune pe el pom, că vor fi pe el pomi. Pământul se va împodobi şi tu vei mânca din munca altuia. [/legatura_la_teme]
+[legatura_la_teme id_capitol="8" id_subcapitol="5"]... Scrie în carte că pământul acesta va fi al vostru şi nu veţi mai pune pe el pom, că vor fi pe el pomi. Pământul se va împodobi şi tu vei mânca din munca altuia.[/legatura_la_teme]
 
 Aşa de mult vă iubeşte Tatăl, că a dat pe singurul Său Fiu să vă fie hrană în timp de foamete şi apă în timp de secetă. Dar ce veţi face când nu va mai avea cine să vă dea? Dar nu vă îngrijiţi voi. Dacă vei vedea pe fratele tău scoţând apă să-ţi dea, nu zice aşa: *„Cine este acesta să-mi dea mie apă? că e nevrednic“,* căci Dumnezeu ţi-o va lua. Va veni Domnul în casa voastră, în trup, ca la început, şi nu-L veţi cunoaşte şi nu-L veţi primi, şi Îl veţi alunga, şi apoi, te vei ruga să te primească, dar nu te va mai primi.
 
@@ -32,7 +32,7 @@ Aşa de mult vă iubeşte Tatăl, că a dat pe singurul Său Fiu să vă fie hra
 
 ... Nu mai doriţi căsătorie pentru o zi. Nu mai doriţi zămislire de copii pentru o zi.
 
-[legatura_la_teme id_capitol="1" id_subcapitol="6"]... Aceste timpuri şi obiecte de azi, tot ce se află e profeţia proorocilor. [/legatura_la_teme]
+[legatura_la_teme id_capitol="1" id_subcapitol="6"]... Aceste timpuri şi obiecte de azi, tot ce se află e profeţia proorocilor.[/legatura_la_teme]
 
 ... În alte ţări a început să-i condamne pe creştini. A început, dar Eu nu-i acopăr, pentru că e spiritism. Tată, pune crucea pe masă, pune lumânări şi tămâiază, ca să le arate semne, la nevoile celor care cer. Nu este primit. Acestea se pedepsesc.
 

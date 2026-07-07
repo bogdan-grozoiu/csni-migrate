@@ -13,9 +13,7 @@ The word of God is born on earth, it is born from God and is filling the world w
 
 Oh, glory to God in heaven, and peace on earth among men! This is sung in heaven and on earth on the holy day of remembrance of My birth, Child of a Virgin mother, two thousand years ago. I came mysteriously, for thus God works on earth, and He reveals Himself with heavenly mysteries only to those who with a pure heart love Him in their lives, **(Hebrews: 9/28)** with their faith and with their deeds. I am working just as I did two thousand years, for My Father is working and I am working too, and so I am obeying Him.
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Oh, peace to you, tiny people, gathered from the Romanian nation at My word that comes with the clouds above the land of this nation chosen by the Father two thousand years ago so that I may have it as a dwelling place for the coming of My word on earth at the end of time!
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Oh, peace to you, tiny people, gathered from the Romanian nation at My word that comes with the clouds above the land of this nation chosen by the Father two thousand years ago so that I may have it as a dwelling place for the coming of My word on earth at the end of time!
 
 Peace to you, Romanian nation, peace from the midst of this tiny people, with whom I have been celebrating the wedding for almost seventy years with the saints at their table with God on it! I have a citadel of coming in your midst, Romanian people, and I have a people and I am sitting at the table with them now on the feast day of My birth on earth.
 
@@ -49,9 +47,7 @@ I will shake off from all the earth the work that is contrary to God with all th
 
 When I have established the first king over you now, at the end of time, My country, I took from the great lineage a scion, a good son for you and I brought him and he embraced your Christian law with his entire house then through time, through descendants, for I wanted him to be a symbol of kingdom over you, so that then I would give you at the end the kingdom of heaven, over which I am King from My Father. Therefore, gather much love in heaven, Romanian sons, for the love of God draws you to it, and the Father gives you the kingdom.
 
-I paid with My life given on the cross to give you the kingdom of the Father, O My church, and the marks of the nails with which I was nailed to the cross remained on My body as a testimony, and the wounds from the nails have not closed. Satan will see this and will be terrified for such a grave sin worked for two thousand years against the One placed on the cross and nailed to it, for this sin will humble the hearts of all My adversaries for two thousand years, even if they will not be able to bow down and receive their forgiveness.
-
-[/legatura_la_teme]
+I paid with My life given on the cross to give you the kingdom of the Father, O My church, and the marks of the nails with which I was nailed to the cross remained on My body as a testimony, and the wounds from the nails have not closed. Satan will see this and will be terrified for such a grave sin worked for two thousand years against the One placed on the cross and nailed to it, for this sin will humble the hearts of all My adversaries for two thousand years, even if they will not be able to bow down and receive their forgiveness.[/legatura_la_teme]
 
 It is a birthday celebration, for the sons of the citadel of My word, and now let us make room for the carols and the holy feast table, because we have caroling guests, and I am then going further with the word and with My Virgin mother in the work of the word, for I and she are celebrated on this day by those in heaven and by those on earth who stand as if in heaven in the celebrations, and through this obedience, blessings, grace and holy protection come to them on earth, great light in a time of such great darkness and so many people without God on earth.
 

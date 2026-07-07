@@ -20,7 +20,7 @@ Tată, unde este tusea vasului Meu? Am luat-o Eu, ca să pot lucra, ca să pot g
 
 ... Floricelelor, nu cu cartea pământească veţi intra întru împărăţia Mea, ci cu cartea duhovnicească şi cu viaţa duhovnicească veţi intra.
 
-[legatura_la_teme id_capitol="4" id_subcapitol="5"]O, a fost odată un împărat cu numele de Mihail, şi el ducea lumea la cer prin credinţă, ducea lumea la bisericuţă. Şi astăzi nu a murit acela, şi şade înghesuit într-un colţ de pământ şi aşteaptă. Se duce mereu îngerul Meu şi îi spune: *„Mai sunt suflete care nu s-au plecat lui Baal“*, şi el se roagă la Mine: *„Ţine-i, Doamne, ca să-i am, până voi veni eu, ca să am să fac lucrarea Ta“.* Ce ziceţi, tată, va mai fi mult? Să ştiţi că Dumnezeu îl va aduce iar pe robul Său. [/legatura_la_teme]
+[legatura_la_teme id_capitol="4" id_subcapitol="5"]O, a fost odată un împărat cu numele de Mihail, şi el ducea lumea la cer prin credinţă, ducea lumea la bisericuţă. Şi astăzi nu a murit acela, şi şade înghesuit într-un colţ de pământ şi aşteaptă. Se duce mereu îngerul Meu şi îi spune: *„Mai sunt suflete care nu s-au plecat lui Baal“*, şi el se roagă la Mine: *„Ţine-i, Doamne, ca să-i am, până voi veni eu, ca să am să fac lucrarea Ta“.* Ce ziceţi, tată, va mai fi mult? Să ştiţi că Dumnezeu îl va aduce iar pe robul Său.[/legatura_la_teme]
 
 ... Nu mai fiţi răi. Nu mai arăta cu degetul păcatul fratelui tău, că dacă ţi-aş arăta al tău păcat, e mare. Crezi? Nimic, măi tată, nu-ţi dă putere în vremea de durere, decât Dumnezeu.
 

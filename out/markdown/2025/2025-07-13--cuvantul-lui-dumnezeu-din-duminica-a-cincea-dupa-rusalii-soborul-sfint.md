@@ -8,9 +8,7 @@ audio: https://noul-ierusalim.ro/audio/1768.mp3
 audio_file: 25.07.13.mp3
 ---
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Glas din cer se apropie iar și iar și grăiește deasupra pământului român.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Glas din cer se apropie iar și iar și grăiește deasupra pământului român.
 
 Iar și iar grăiesc din nor, iar și iar Se așează Domnul cuvânt peste tine, țara Mea de nuntă, România Mea, căci sunt duios după tine și sunt Păstor plin de cuvânt deasupra ta și-ți port de grijă și te învăluiesc în cuvântul Meu cel duios ca să depărtez tot timpul lucrarea duhului rău care te tot pândește cu viclenie ca să te afle în slăbiciune și să-ți tot stoarcă vlaga toată, o, că nu poate vrăjmașul Meu și al tău să stea cuminte când el știe și îți vede soarta ta cea de la Dumnezeu și slava pe care Eu, Domnul, o pregătesc Mie și ție ca să se aplece sub această slavă popoare și regi, neamuri și limbi ale pământului, precum este scris despre muntele cel sfânt de la care vor lua mulți învățătura Mea și vor afla calea și mersul cel fericit și atât de fericit, o, că nu de altceva vine Domnul și Își pregătește slava Sa pe meleagul tău, și ca să pună masă împărătească pe plaiul tău și să vină cu cetele de sfinți și cu zile de nuntă veșnică, cu zilele veșniciei, cu cerul și pământul laolaltă în petrecere dulce de tot, chiar dacă acum cei de pe pământ nu cunosc alt dulce pentru ei decât viața cea cu plăceri trecătoare și atât de păcătoase înaintea Domnului, Care vine să-Și pregătească odihna Sa pe vatra ta, o, și de ce, oare, în tine, de ce în grădinile tale, țara Mea?
 
@@ -32,6 +30,4 @@ Fiți cuminți, o, fiți tot mai cuminți, voi, cei care atât de dușmănoasă 
 
 Acum, pace și unire și bună înțelegere cu stăruință pentru duhul dreptății peste toate, acestea să se așeze ca lucrare a celor care așează acum îndreptarea celor atât de strâmbate vreme lungă, o, și vor sta puterile cerești de veghe și de ajutorare din cer pentru ridicarea neamului român la unitate, la credință, la Hristos Păstorul, Care Se face cuvânt peste pământ pe plaiul neamului român, unde El Își paște turma Sa acum.
 
-Pace ție, țara Mea frumoasă, împărăția Mea cea de azi și cea de mâine pe pământ! Te port în brațe ca pe copila Mea cea dulce. O, pace ție tot timpul, tot timpul! Mereu te voi veghea și-ți voi cuvânta și te voi păstori duios, duios, și te voi dezmierda cu mângâierea Mea, o, că dulce-Mi ești, și de aceea te țin de mânuță și-ți port pașii pe cale, pe calea Mea cu tine spre biruința Mea și a ta, mereu Domnul cu tine pe cale, o, țara Mea de azi, mereu a Mea, mereu și tot mereu. Amin, amin, amin.
-
-[/legatura_la_teme]
+Pace ție, țara Mea frumoasă, împărăția Mea cea de azi și cea de mâine pe pământ! Te port în brațe ca pe copila Mea cea dulce. O, pace ție tot timpul, tot timpul! Mereu te voi veghea și-ți voi cuvânta și te voi păstori duios, duios, și te voi dezmierda cu mângâierea Mea, o, că dulce-Mi ești, și de aceea te țin de mânuță și-ți port pașii pe cale, pe calea Mea cu tine spre biruința Mea și a ta, mereu Domnul cu tine pe cale, o, țara Mea de azi, mereu a Mea, mereu și tot mereu. Amin, amin, amin.[/legatura_la_teme]

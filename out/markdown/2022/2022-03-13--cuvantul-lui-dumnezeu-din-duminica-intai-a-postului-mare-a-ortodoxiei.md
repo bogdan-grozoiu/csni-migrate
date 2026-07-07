@@ -32,4 +32,4 @@ Mă aplec de la Tatăl și până la picioarele celor ce vestesc pe Hristos pest
 
 Și iarăși spun: Anatema vouă, cei ce strâmbați căile Domnului și pașii creștinilor lui Hristos!
 
-Iar și iar pace vouă, celor ce stăruiți în numele adevărului cel prin biserica Mea, și care-și are așezarea și puterea ei cea de la începutul ei, cea prin părinți! Amin, amin, amin. [/legatura_la_teme]
+Iar și iar pace vouă, celor ce stăruiți în numele adevărului cel prin biserica Mea, și care-și are așezarea și puterea ei cea de la începutul ei, cea prin părinți! Amin, amin, amin.[/legatura_la_teme]

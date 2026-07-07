@@ -40,7 +40,7 @@ O, fiule creștin, vorbirea doi câte doi te trage la păcatul prefăcătoriei a
 
 Așadar, rămâneți întru iubirea Mea, fiilor, aceasta îndemn Eu pe cei ce se încântă cu neascultarea, cu încântarea spre lume și spre fiii lumii, cu cei înveninați cu păcatul!
 
-Rămâneți cu Mine, rămâneți întru iubirea Mea, voi, cei ce dați să cădeți din brațul Meu de Păstor! Căutați să fiți treji, ca nu cumva să vă păstorească pe voi duhul lumii spre gura lupului, ca nu cumva să cădeți spre glasul și spre pasul lumii, spre mersul cu lumea pe cale și pe vorbă. Păstrați-vă deoparte, fiilor, și feriți-vă de păcatul fățărniciei, cu care puteți să vă săpați groapă adâncă sub picioare, fără să știți cum și când! Vă strig, vă caut, vă aștept să ascultați, fiilor. O, așezați-vă bine și tot mai bine așezați-vă și rămâneți întru iubirea Mea. Amin. [/legatura_la_teme]
+Rămâneți cu Mine, rămâneți întru iubirea Mea, voi, cei ce dați să cădeți din brațul Meu de Păstor! Căutați să fiți treji, ca nu cumva să vă păstorească pe voi duhul lumii spre gura lupului, ca nu cumva să cădeți spre glasul și spre pasul lumii, spre mersul cu lumea pe cale și pe vorbă. Păstrați-vă deoparte, fiilor, și feriți-vă de păcatul fățărniciei, cu care puteți să vă săpați groapă adâncă sub picioare, fără să știți cum și când! Vă strig, vă caut, vă aștept să ascultați, fiilor. O, așezați-vă bine și tot mai bine așezați-vă și rămâneți întru iubirea Mea. Amin.[/legatura_la_teme]
 
 Acum binecuvintez peste cetate lucrare de Duh Sfânt, cu care voi, fiilor de aici, să vă așezați la lucrul cel pentru slava praznicului pentru mama Mea Fecioara. Vă stau alături cu tot sprijinul, vă mângâi în tristeți, iar voi să deschideți oștirilor cerești să vină la serbare, fiilor.
 

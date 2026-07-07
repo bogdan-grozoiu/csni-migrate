@@ -13,7 +13,7 @@ audio_file:
 
 … Sons, hear well the words from Me. Your fathers and ancestors, in the eve of these days, were praying and fasting. I opened the heaven and saw a priest going with the baptism from house to house, and he found people eating meat on the eve of Epiphany and they invited him: *“Come, father, let us eat.”* And what did they say afterwards? *“If the priest ate, why shall we not eat either?”* Blessed is the priest who did not eat and rebuked instead. There are still priests, but they are rarer, who live by fasting and praying and love the people that live with the Lord, and these priests will be counted at one price, not by one leu , not by one hundred, not by one thousand, not by ten thousand, but by millions of lei.
 
-[legatura_la_teme id_capitol="7" id_subcapitol="3"]… I am the Lord, Jesus Christ. I am not in a body, but there is still a little time and I will come in the flesh, and in the flesh I will divide the ages: the earthly one from the spiritual one. I will make a new age, which will no longer be changed or troubled. [/legatura_la_teme]
+[legatura_la_teme id_capitol="7" id_subcapitol="3"]… I am the Lord, Jesus Christ. I am not in a body, but there is still a little time and I will come in the flesh, and in the flesh I will divide the ages: the earthly one from the spiritual one. I will make a new age, which will no longer be changed or troubled.[/legatura_la_teme]
 
 … It is the time from the end and this is not known, that justice has been hidden and the truth has been covered. It is not wanted someone to tell you this. And you should also know that there is not much time and you will move to the second age and there will no longer be another, but beware of death *(Of sin, r.n.).*
 

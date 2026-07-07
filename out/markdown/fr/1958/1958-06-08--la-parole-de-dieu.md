@@ -17,7 +17,7 @@ Le Seigneur est venu guérir les âmes malades. Le sacrifice de l’Agneau c’e
 
 … Voilà le temps des derniers jours. Venez, les fils, chez Moi, puisque J’ai de la place pour vous; les portes sont largement ouvertes. Venez chez Moi, puisque J’ai de la nourriture pour vous en donner. Venez tous, parce que J’ai toute sorte de bonnes choses.
 
-Oh, Je vois parmi vous de petits enfants. Venez près de Moi, les enfants! [legatura_la_teme id_capitol="2" id_subcapitol="2"]Oh, les fils, les quatorze mille de petits enfants sacrifiés pour Moi ont tous des trompettes et ils glorifient Mon nom. Voilà pourquoi elle est si grande la joie de ce jour de Noël; c’est pour cela qu’on fait des craquelins et on les offre. Tel que vous vous réjouissez, ils se réjouissent dans le ciel aussi. [/legatura_la_teme]
+Oh, Je vois parmi vous de petits enfants. Venez près de Moi, les enfants! [legatura_la_teme id_capitol="2" id_subcapitol="2"]Oh, les fils, les quatorze mille de petits enfants sacrifiés pour Moi ont tous des trompettes et ils glorifient Mon nom. Voilà pourquoi elle est si grande la joie de ce jour de Noël; c’est pour cela qu’on fait des craquelins et on les offre. Tel que vous vous réjouissez, ils se réjouissent dans le ciel aussi.[/legatura_la_teme]
 
 … Moi, Je n’ai pas l’habitude de Me parfumer, comme vous le faites. Je ne le dis pas de tous; Je le dis pour quelques uns de vous. Laissez le luxe et la fierté, car ils Me sont très désagréables.
 

@@ -12,7 +12,7 @@ audio_file:
 
 ... Este scris în carte, dar voi nu găsiţi, că nu aveţi înţelepciune. Vine Domnul şi Se dă pe faţă cu toată lucrarea Sa, şi toţi care vor fi de faţă se vor îngălbeni.
 
-[legatura_la_teme id_capitol="4" id_subcapitol="2"]... Să ştiţi că ţara Mea e ţara românească. Să pună ea temelie duhovnicească. Vine Domnul să facă în ea credinţă duhovnicească, unde se vor sădi mii şi milioane de trandafiri, mii şi milioane de pomi. Duhovniceşte grăiesc. [/legatura_la_teme]
+[legatura_la_teme id_capitol="4" id_subcapitol="2"]... Să ştiţi că ţara Mea e ţara românească. Să pună ea temelie duhovnicească. Vine Domnul să facă în ea credinţă duhovnicească, unde se vor sădi mii şi milioane de trandafiri, mii şi milioane de pomi. Duhovniceşte grăiesc.[/legatura_la_teme]
 
 ... Nu se va mai duce omul la preoţi, şi va veni la tine, şi tu vei da leac bolnavului, şi va ieşi de la voi ologul cu picioare; orbul cu vedere. Se va duce şi cel cu mâinile legate, şi va veni din poporul Meu cu ele dezlegate şi cu gura plină de binecuvântare. Ţineţi minte: tu eşti grâul, şi din tine voi face azimă. Încă o dată voi repeta: vor veni preoţii care mai au putere şi se vor uni cu tine.
 

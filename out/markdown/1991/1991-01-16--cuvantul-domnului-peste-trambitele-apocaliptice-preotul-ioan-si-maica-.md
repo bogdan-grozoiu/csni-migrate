@@ -60,4 +60,4 @@ Slavă întru cele de sus, şi pace peste voi, servii Mei, Veronica şi Ioan, ca
 
 Pace vouă, şi credinţă vouă, şi unire între Mine şi voi prin această legătură cerească cu care nu s-a mai lucrat niciodată în neamul lui Israel, dar iubiţi lucrul lui Dumnezeu! Pace şi unire vie, precum la început aşa şi la sfârşit! Pace şi iubire, precum în cer aşa şi pe pământ!
 
-Pace vouă, iubiţii Mei! Amin, amin, amin. [/legatura_la_teme]
+Pace vouă, iubiţii Mei! Amin, amin, amin.[/legatura_la_teme]

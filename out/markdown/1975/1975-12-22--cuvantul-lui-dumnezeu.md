@@ -36,7 +36,7 @@ V-am spus de nenumărate ori să învăţaţi să cântaţi psalmii lui David.
 
 ... Fericit omul care are putere să întoarcă Duhul lui Dumnezeu înapoi, şi aceasta să vă fie munca. Nu scoateţi duhurile, ci să le înapoiaţi în trupuri. Dumnezeu Îşi varsă harul Său asupra robului Său care vrea să-L servească. Veniţi-vă în fire, că avem zidire care s-a stricat. Dumnezeu îl va repara şi Duhul i Se va da, dar vai de acela care îndrăzneşte să alunge Duhul lui Dumnezeu de la locul Său!
 
-... Sunteţi în vremea în care este război în casele voastre. Îşi ucide soţul soţia pe sub ascuns. Îşi ucide soţia soţul, şi aceasta e că vine sfârşitul. [legatura_la_teme id_capitol="2" id_subcapitol="3"]Se aude că nu mai rămâne nici bob de credinţă, nici bob de preoţie, nici un bob de bisericuţă. Da. Dacă nu mai are cine sluji, de aceea se va pustii. [/legatura_la_teme]
+... Sunteţi în vremea în care este război în casele voastre. Îşi ucide soţul soţia pe sub ascuns. Îşi ucide soţia soţul, şi aceasta e că vine sfârşitul. [legatura_la_teme id_capitol="2" id_subcapitol="3"]Se aude că nu mai rămâne nici bob de credinţă, nici bob de preoţie, nici un bob de bisericuţă. Da. Dacă nu mai are cine sluji, de aceea se va pustii.[/legatura_la_teme]
 
 ... Se aude prin lume că vor pieri creştinii. Să nu credeţi. Nu vă înspăimântaţi, că aceste zvonuri vin de la duhul necurat. Zvonul este pe tot pământul, dar este scris că toţi păcătoşii vor pieri de la sine, pentru că s-a profeţit de mii de ori despre pieirea păcătoşilor, şi nu s-au înfricoşat. Dar te vei culca, şi când te vei scula, nu vei mai vedea pe acela ce te hulea, nu vei mai vedea pe acela ce te vindea, şi nici locul lui nu-l vei mai cunoaşte. Ca într-un vis vor pieri păcătoşii, că Dumnezeu nu mai poate suporta.
 

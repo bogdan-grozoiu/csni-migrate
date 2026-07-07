@@ -9,7 +9,7 @@ audio:
 audio_file: 
 ---
 
-[legatura_la_teme id_capitol="7" id_subcapitol="3"]… I have come down from heaven to earth but if you want Me to talk to you, tame your hearts. I look and see that your hearts have been hardened. There is no fiddler to play to you; it is none. If you have come for something like this, it is not, and if you do not believe that I am, once you will see, that the same way I descended once in a body to heal the bodies, the same way I have descended now in Spirit to heal the souls. Sons, I have not come to strike with the rod, rather to heal the sick souls. Today I am speaking gently to you, in the Spirit, but tomorrow I will come and speak to you with thunders and thunderbolts so that the earth will be shaken. [/legatura_la_teme]
+[legatura_la_teme id_capitol="7" id_subcapitol="3"]… I have come down from heaven to earth but if you want Me to talk to you, tame your hearts. I look and see that your hearts have been hardened. There is no fiddler to play to you; it is none. If you have come for something like this, it is not, and if you do not believe that I am, once you will see, that the same way I descended once in a body to heal the bodies, the same way I have descended now in Spirit to heal the souls. Sons, I have not come to strike with the rod, rather to heal the sick souls. Today I am speaking gently to you, in the Spirit, but tomorrow I will come and speak to you with thunders and thunderbolts so that the earth will be shaken.[/legatura_la_teme]
 
 … Behold My children, I detest coming down in a vessel, that this I found cleansed and washed, and at My word it will be cleansed. I became gentle after the man’s will. I pour out water with a bucket to the flowers with the crowd.
 

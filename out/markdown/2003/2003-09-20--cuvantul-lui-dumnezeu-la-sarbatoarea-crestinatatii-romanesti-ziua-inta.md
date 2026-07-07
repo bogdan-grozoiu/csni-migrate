@@ -40,4 +40,4 @@ Te mângâi cu şoapta duhului vieţii, omule. Te chem să iei fiinţă, căci a
 
 Cântaţi cântarea nunţii Fiului lui Dumnezeu, voi, cei ce veniţi la nuntă. Doiniţi doina miresei Mirelui şi învăţaţi de la Mine şi de la ea veşnicia Mea cu omul, a cărui împărăţie Eu sunt.
 
-Pace vouă, celor ce aţi venit la izvor! Luaţi Duh Sfânt, căci duhul lumii nu are nimic în Mine, şi nici Eu în el. Pace vouă! Şi iarăşi vă voi mângâia cu şoapta Mea, cu cuvântul mângâierii pentru cei ce iubesc ca şi Mine între pământ şi cer. Amin, amin, amin. [/legatura_la_teme]
+Pace vouă, celor ce aţi venit la izvor! Luaţi Duh Sfânt, căci duhul lumii nu are nimic în Mine, şi nici Eu în el. Pace vouă! Şi iarăşi vă voi mângâia cu şoapta Mea, cu cuvântul mângâierii pentru cei ce iubesc ca şi Mine între pământ şi cer. Amin, amin, amin.[/legatura_la_teme]

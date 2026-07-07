@@ -22,9 +22,7 @@ O, așa și acum, las cuvânt și îndemn peste turma creștină să împlineasc
 
 Dar Eu, Domnul, aștept omul să Mă strige ca să vin. Chiar dacă sunt din cei ce nu cred în Dumnezeu, dacă aceștia Mă strigă în vreme de necaz cu credință și cu toată inima, Eu vin și-Mi arăt slava, vin și fac izbăvire, vin, că este scris să vin la strigarea inimii omului.
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-O, popor român, o, țara Mea ortodoxă, iată ce spun: Eu, Domnul, de aceea mai țin pământul, pentru țările care au ortodoxia ca biserică a lor, căci biserica ortodoxă și cei ascultători din ea sunt mireasa Mea, căci Eu sunt Mire și am mireasă, și toți sfinții ortodoxiei de două mii de ani au fost și sunt mireasa Mea, turma Mea, odihna Mea pe pământ, casa Mea și toată rânduiala ei cea sfântă, numai să fie ea ținută cu sfințenie, căci viața sfântă este de la Dumnezeu, iar păcatul este de la diavol, dar este pocăință pentru păcat, și iată, strig pe fiii bisericii ortodoxe și spun lor mai întâi: Pocăiți-vă, că împărăția cerurilor este cu voi și știți cum este ea, și trebuie s-o împliniți cu viața voastră sfântă pe pământ între oameni!
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]O, popor român, o, țara Mea ortodoxă, iată ce spun: Eu, Domnul, de aceea mai țin pământul, pentru țările care au ortodoxia ca biserică a lor, căci biserica ortodoxă și cei ascultători din ea sunt mireasa Mea, căci Eu sunt Mire și am mireasă, și toți sfinții ortodoxiei de două mii de ani au fost și sunt mireasa Mea, turma Mea, odihna Mea pe pământ, casa Mea și toată rânduiala ei cea sfântă, numai să fie ea ținută cu sfințenie, căci viața sfântă este de la Dumnezeu, iar păcatul este de la diavol, dar este pocăință pentru păcat, și iată, strig pe fiii bisericii ortodoxe și spun lor mai întâi: Pocăiți-vă, că împărăția cerurilor este cu voi și știți cum este ea, și trebuie s-o împliniți cu viața voastră sfântă pe pământ între oameni!
 
 Și strig acum și la toți ceilalți: Pocăiți-vă și cereți Domnului vreme de pocăință și cereți înțelepciune de sus peste voi, ca să vi se descopere vouă cărarea cea dreaptă, cărarea împărăției Mele cu omul, și de la care s-au tot abătut mulți, mulți în ultima mie de ani de la învierea Mea dintre cei morți.
 
@@ -64,6 +62,4 @@ Soborul celor patruzeci de mucenici încununați pentru cetele cerești în ieze
 
 Pace vouă, pace, fiilor români! Pace poporului drept credincios de peste tot pe pământ!
 
-Pace vouă, popoarelor, dacă veți căuta pe Dumnezeu, căci Domnul așteaptă să fie credință peste tot, peste tot pe pământ pentru El! Amin, amin, amin.
-
-[/legatura_la_teme]
+Pace vouă, popoarelor, dacă veți căuta pe Dumnezeu, căci Domnul așteaptă să fie credință peste tot, peste tot pe pământ pentru El! Amin, amin, amin.[/legatura_la_teme]

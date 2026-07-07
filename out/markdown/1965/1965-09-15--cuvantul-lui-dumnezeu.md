@@ -14,7 +14,7 @@ Veniţi-vă în fire, copii, căci ne vom urca sus pe munte, sus, cu oi multe, d
 
 Treziţi-vă! Nu mai fiţi beţi de vremea aceasta. O, om beat de vremea aceasta, care arunci ochii tăi şi îi tulburi! Mai bine scoate-i decât să păţeşti aşa. O, câţi creştini n-au văzut cu ochii şi au rămas în lume! Mai iertat îţi este să-ţi scoţi ochii decât să rămâi în lume, căci asta este o vreme nebună.
 
-[legatura_la_teme id_capitol="8" id_subcapitol="5"]Încă o dată spun că vom urca pe munte sus, cu oi multe, şi vom auzi ce n-am auzit, şi vom vedea ce n-am văzut, şi vor fi creştinii ca stelele acolo unde vom fi. [/legatura_la_teme]
+[legatura_la_teme id_capitol="8" id_subcapitol="5"]Încă o dată spun că vom urca pe munte sus, cu oi multe, şi vom auzi ce n-am auzit, şi vom vedea ce n-am văzut, şi vor fi creştinii ca stelele acolo unde vom fi.[/legatura_la_teme]
 
 Am venit pe pământ să zidesc casă şi să te îmbogăţesc, căci lucrarea pe care o fac cu voi este mare. Fiilor, rugaţi-vă ca să nu o pierdeţi, că mulţi vin la Mine seci şi Îmi cer ca să le dau.
 

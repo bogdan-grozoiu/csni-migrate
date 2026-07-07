@@ -30,7 +30,7 @@ Eram cu trâmbița Mea Verginica în lucru pe pământ și spuneam cu jale: *«C
 
 Iată, poporul Meu, în vremea Postului Mare curăță-te de păcate, fiule, de neascultare, de nepăsare de Dumnezeu și de cuvântul lui Dumnezeu, de asemănarea ta cu lumea, de faptele și obiceiurile care n-au parte de binecuvântarea lui Dumnezeu, care nu sunt din voia lui Dumnezeu și te despart de Domnul.
 
-O, căutați cu înțelepciunea cea de sus, fiilor, că atâția pași greșiți făcuți de voi trebuie îndreptați și puși pe cale cu Domnul, ca nu cumva să vă câștige satana, după ce Eu, Domnul, atât de mult și de sfânt v-am învățat pe voi viața cu Dumnezeu între oameni pe pământ. [/legatura_la_teme]
+O, căutați cu înțelepciunea cea de sus, fiilor, că atâția pași greșiți făcuți de voi trebuie îndreptați și puși pe cale cu Domnul, ca nu cumva să vă câștige satana, după ce Eu, Domnul, atât de mult și de sfânt v-am învățat pe voi viața cu Dumnezeu între oameni pe pământ.[/legatura_la_teme]
 
 Acum vă las sub puterea înțelepciunii de sus, dar să vă și alegeți să stați sub această putere, fiilor. Binecuvântată să fie vremea postului care începe acum, dar și voi să fiți binecuvântați ca niște fii ascultători și să ascultați de povața Mea de peste voi, că iată, am venit să vă așez cum se cuvine pe calea spre pregătirea cea care se sfârșește cu ziua de praznic a învierii Mele când veți cânta: Hristos a înviat!
 

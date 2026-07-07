@@ -8,7 +8,7 @@ audio:
 audio_file: 
 ---
 
-... Copilaşii Mei, nu mai vine nimeni la voi să vă spună. Eu sunt. Fiţi credincioşi în Domnul Iisus Hristos. Nu credeţi minciunile şi basmele. Poporul Meu, sunt trimis să vin la tine, şi dacă sunt trimis să vin la tine, să ştii bine de ce sunt trimis şi să te porţi bine cu Mine. Poporul Meu, să n-ai alt dumnezeu afară de Mine. Nu acest trup vorbeşte. [legatura_la_teme id_capitol="3" id_subcapitol="2"]Aceste porunci au fost scrise de mâna lui Dumnezeu pe tablele legii şi au fost date în mâna lui Moise, şi cine a ascultat, este fericit, iar cine nu a ascultat şi nu a crezut nici când S-a răstignit Domnul Iisus Hristos, nu a ieşit din iad. Să ştiţi că nu s-au răscumpărat toţi. [/legatura_la_teme]
+... Copilaşii Mei, nu mai vine nimeni la voi să vă spună. Eu sunt. Fiţi credincioşi în Domnul Iisus Hristos. Nu credeţi minciunile şi basmele. Poporul Meu, sunt trimis să vin la tine, şi dacă sunt trimis să vin la tine, să ştii bine de ce sunt trimis şi să te porţi bine cu Mine. Poporul Meu, să n-ai alt dumnezeu afară de Mine. Nu acest trup vorbeşte. [legatura_la_teme id_capitol="3" id_subcapitol="2"]Aceste porunci au fost scrise de mâna lui Dumnezeu pe tablele legii şi au fost date în mâna lui Moise, şi cine a ascultat, este fericit, iar cine nu a ascultat şi nu a crezut nici când S-a răstignit Domnul Iisus Hristos, nu a ieşit din iad. Să ştiţi că nu s-au răscumpărat toţi.[/legatura_la_teme]
 
 ... Cetatea Ninivei, ca să nu piară, a postit, şi a pierit trei sferturi din suflare prin post, că de la sugari şi până la plete albe au postit toţi trei zile şi trei nopţi, şi să ştiţi că trei sferturi din suflare a pierit. De ce? Că nu au avut putere să postească trei zile şi trei nopţi.
 

@@ -8,9 +8,7 @@ audio: https://noul-ierusalim.ro/audio/1725.mp3
 audio_file: 24.12.08.mp3
 ---
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-În zi de duminică Mă las cuvânt peste pământ și intru în cartea cuvântului Meu cel de șaptezeci de ani pe vatra neamului român, căci trebuie duhul mângâierii să-l așez peste rane, peste cei răniți, și care-și caută nădejde că vine mângâierea, că se va depărta durerea, și că va veni din nou mila Mea, biruința Mea cea pentru ei, pentru cei care așteaptă această minune în vreme de grea încercare acum.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]În zi de duminică Mă las cuvânt peste pământ și intru în cartea cuvântului Meu cel de șaptezeci de ani pe vatra neamului român, căci trebuie duhul mângâierii să-l așez peste rane, peste cei răniți, și care-și caută nădejde că vine mângâierea, că se va depărta durerea, și că va veni din nou mila Mea, biruința Mea cea pentru ei, pentru cei care așteaptă această minune în vreme de grea încercare acum.
 
 Sunt Cuvântul Tatălui, sunt Domnul Iisus Hristos și-Mi așez peste acest neam grăirea Mea cea de azi. Sunt Mielul lui Dumnezeu, sunt Cel adevărat, nu cel cu limbă de miel împrumutată, și cu care înșeală pe mulți.
 
@@ -26,9 +24,9 @@ Aşadar, ascultă de cuvântul lui Dumnezeu, tu şi apropiaţii tăi, şi fiţi 
 
 Vin Eu să mângâi, vin Eu Păstor din cer, vin la tine, popor român și te cuprind în Duhul Meu și stau de vorbă cu tine însoțit de toate puterile cerești pe vatra ta și-ți cuvintez de deasupra, din nori, și sunt înconjurat de heruvimi și serafimi, care-Mi țin deasupra tronul din care-Mi las peste tine cuvântul.
 
-Iată lucrarea îngâmfării, și pe cei care cad în capcana acestui duh din iad ieșit! Omul viclean se învelește cu multe cuvinte și fețe, dar este fricos și se ascunde sub minciună tot timpul ca să poată prinde în dinți pe cât mai mulți, dar iată, este prins, căci așa este soarta celui viclean, e ca și vorba cea din români care spune: *„El se jură că nu fură și l-am prins cu rața-n gură”.*
+Iată lucrarea îngâmfării, și pe cei care cad în capcana acestui duh din iad ieșit! Omul viclean se învelește cu multe cuvinte și fețe, dar este fricos și se ascunde sub minciună tot timpul ca să poată prinde în dinți pe cât mai mulți, dar iată, este prins, căci așa este soarta celui viclean, e ca și vorba cea din români care spune: *„El se jură că nu fură și l-am prins cu rața-n gură”.*[/legatura_la_teme]
 
-[/legatura_la_teme][legatura_la_teme id_capitol="6" id_subcapitol="3"]Și acum grăiesc iar și iar poporului cuvântului Meu și celor ce-l cunosc și îl cred și îl iau de la Dumnezeu și le spun lor:
+[legatura_la_teme id_capitol="6" id_subcapitol="3"]Și acum grăiesc iar și iar poporului cuvântului Meu și celor ce-l cunosc și îl cred și îl iau de la Dumnezeu și le spun lor:
 
 Fiilor, fiilor, aveți grijă de voi, că iată, dintre voi, dintre cei mai aproape și dintre cei mai de departe cu împlinirea cuvântului Meu, dintre cei credincioși acestui cuvânt și dintre cei îndoielnici încă, iată, ați fost destui care ați căzut în acest laț al înșelătorului și v-ați încântat de vorbirea lui împrumutată și v-ați aplecat și i-ați deschis să intre și de aceea am spus: Vai de cei ce sunt de capul lor, vai de cei ce n-au pe Domnul de Dumnezeu al lor!
 
@@ -48,13 +46,9 @@ Stau de veghe cu puterile cerești și îngerești deasupra. Credința și necre
 
 Am cu Mine ceata mucenicilor și a mucenițelor din cer, căci sunt sărbătoriți mucenicul Mercurie și mucenița Ecaterina. Și unul și altul au biruit pe antichrist cel din vremea lor și s-au ridicat biruitori și mărturisitori ai lui Hristos. Așa să fie poporul cuvântului Meu cel de azi, așa să lucreze și el, căci Duhul Sfânt este în acest cuvânt, numai să fie credință în inimi, și apoi biruință.
 
-Ia aminte, poporul Meu de azi, și stai de-a dreapta Mea, fiule, ca să-i punem jos pe vrăjmașii Mei și ai neamului român! Cei ce vă alegeți de partea Mea acum, nu vă mai clătinați de pe un picior pe altul, căci vremea e târzie și bate de peste tot vântul și lucrarea lui antichrist, omul fărădelegii, și care, iată, îmbracă haină și nume de creștin, dar el vine înaintea Mea ca să doboare de partea lui tot ce mai poate. Așadar, vin Eu și stau la cârmă pentru cei ce se aleg Mie, vin Eu și păstoresc ca să-i scot pe mulți din cursa întinsă ca să ucidă ea pe mulți.
+Ia aminte, poporul Meu de azi, și stai de-a dreapta Mea, fiule, ca să-i punem jos pe vrăjmașii Mei și ai neamului român! Cei ce vă alegeți de partea Mea acum, nu vă mai clătinați de pe un picior pe altul, căci vremea e târzie și bate de peste tot vântul și lucrarea lui antichrist, omul fărădelegii, și care, iată, îmbracă haină și nume de creștin, dar el vine înaintea Mea ca să doboare de partea lui tot ce mai poate. Așadar, vin Eu și stau la cârmă pentru cei ce se aleg Mie, vin Eu și păstoresc ca să-i scot pe mulți din cursa întinsă ca să ucidă ea pe mulți.[/legatura_la_teme]
 
-[/legatura_la_teme][legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Ia aminte tu, popor român, dă de la tine neveghea, căci dușmanul încă se încearcă împotriva ta! Pace ție, și așează-te în duhul păcii acum și rămâi la veghe cu Mine ca să biruim mereu, că mereu se ivesc încercări!
-
-[/legatura_la_teme]
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Ia aminte tu, popor român, dă de la tine neveghea, căci dușmanul încă se încearcă împotriva ta! Pace ție, și așează-te în duhul păcii acum și rămâi la veghe cu Mine ca să biruim mereu, că mereu se ivesc încercări![/legatura_la_teme]
 
 Vindecare trimit pentru cei din neamul român care se ridică cu duh de căință și de veghe pentru neam și țară și pentru ei înșiși. Sfinții azi sărbătoriți intră în luptă lângă Mine pentru ocrotirea neamului și pământului român.
 

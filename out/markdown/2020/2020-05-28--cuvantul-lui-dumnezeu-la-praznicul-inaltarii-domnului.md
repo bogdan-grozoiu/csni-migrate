@@ -40,4 +40,4 @@ Așa cum M-am suit la Tatăl, în cerurile nevăzute ridicându-Mă pe nori, tot
 
 O, e zi de praznic de înălțare a Mea în locașurile cerești lângă Tatăl, de unde iarăși vin acum și cuvintez peste pământ, iar cuvântul Meu cel grăit are putere de împlinire, chiar dacă este disprețuit și neluat în seamă, dar puterile cerești îl iau și îl pun în lucru și lucrează ele tot cuvântul care iese din gura Mea.
 
-Eu sunt Dumnezeu Cuvântul. Eu sunt *Cuvântul lui Dumnezeu* și am cuvântat peste pământ în zi de praznic sfânt. Și pun pecetea numelui Meu cel nou peste cuvântul pe care îl grăiesc, căci numele Meu cel nou acesta este: *Cuvântul lui Dumnezeu.* Amin, amin, amin. [/legatura_la_teme]
+Eu sunt Dumnezeu Cuvântul. Eu sunt *Cuvântul lui Dumnezeu* și am cuvântat peste pământ în zi de praznic sfânt. Și pun pecetea numelui Meu cel nou peste cuvântul pe care îl grăiesc, căci numele Meu cel nou acesta este: *Cuvântul lui Dumnezeu.* Amin, amin, amin.[/legatura_la_teme]

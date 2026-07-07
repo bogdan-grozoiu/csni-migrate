@@ -10,7 +10,7 @@ audio_file:
 
 [legatura_la_teme id_capitol="6" id_subcapitol="3"]... Fiilor, fiilor, moşii şi strămoşii voştri au mâncat pâine cerească şi s-au osândit. Fiilor, fiilor, feriţi-vă de păcat, că mulţi dintre voi vă trageţi din neam de oameni răi. Dacă voi păstraţi legea sfântă, scoateţi din foc până la al miilea neam.
 
-... Fiilor, cel mai mare păcat din cele şapte păcate este păcatul pe care-l faceţi: că auziţi cuvântul lui Dumnezeu şi nu-l împliniţi. [/legatura_la_teme]
+... Fiilor, cel mai mare păcat din cele şapte păcate este păcatul pe care-l faceţi: că auziţi cuvântul lui Dumnezeu şi nu-l împliniţi.[/legatura_la_teme]
 
 ... Dumnezeu a semănat numai boabe curate, dar când a ieşit grâul, a ieşit şi neghina. Neghina a semănat-o duhul rău în timp ce grădinarul a adormit.
 

@@ -16,7 +16,7 @@ audio_file:
 
 ... Vă zice lumea sfinţi şi nu sunteţi sfinţi. Lumea vă zice vouă sfinţi, de ocară, nu vă zice de cinste. Caută să fii sfânt, ca să nu fie batjocorit numele acesta. Luaţi aminte să nu se batjocorească numele de sfinţi. Se va pune la capătul străzii *„Strada Sfinţilor“,* şi ce veţi face? Te vei ruşina, sau te vei umili? Astăzi te vorbeşte de rău cezarul, dar mâine te va vorbi de bine.
 
-[legatura_la_teme id_capitol="8" id_subcapitol="5"]... Aici vom avea sălaşul, pe pământ. Pământul acesta va fi grădina poporului Meu şi îl voi face raiul împodobit cu pomi şi cu muzici de îngeri şi cu păsări. Pământul acesta va fi rai, dar Domnul îl va curăţi, aşa cum este scris la carte. Fiţi pregătiţi pentru sfârşit, să nu ardeţi cu gunoaiele, că toţi păcătoşii vor pieri. [/legatura_la_teme]
+[legatura_la_teme id_capitol="8" id_subcapitol="5"]... Aici vom avea sălaşul, pe pământ. Pământul acesta va fi grădina poporului Meu şi îl voi face raiul împodobit cu pomi şi cu muzici de îngeri şi cu păsări. Pământul acesta va fi rai, dar Domnul îl va curăţi, aşa cum este scris la carte. Fiţi pregătiţi pentru sfârşit, să nu ardeţi cu gunoaiele, că toţi păcătoşii vor pieri.[/legatura_la_teme]
 
 ... Nu vă mai murdăriţi. Oiţa Mea, să nu-ţi vadă îngerii goliciunea ta. Puneţi mâinile la ochi când treceţi pe lângă o goliciune. Nu purtaţi mode. Purtaţi haină duhovnicească. Copilaşii Mei, au fost fii de împăraţi şi au refuzat masa împărătească şi s-au făcut sfinţi. Nu primi laudă şi nu sta în capul mesei, ca nu cumva să vină altul să te dea la o parte că eşti creştin. Fiţi pricepuţi şi nu pierdeţi timpul cu cititul revistelor. Citiţi ceea ce vă îmbogăţeşte.
 

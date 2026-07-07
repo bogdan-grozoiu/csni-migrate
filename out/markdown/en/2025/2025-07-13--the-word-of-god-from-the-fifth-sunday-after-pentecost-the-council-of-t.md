@@ -9,9 +9,7 @@ audio: https://noul-ierusalim.ro/audio/1035en.mp3
 audio_file: 25.07.13-en.mp3
 ---
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-A voice from heaven approaches again and again and speaks above the Romanian land.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]A voice from heaven approaches again and again and speaks above the Romanian land.
 
 Again and again, I speak from the cloud, again and again, the Lord settles His word over you, My wedding land, My Romania, for I am tender for you and I am a Shepherd full of words above you, I take care of you and I envelop you in My tender word to always distance the work of the evil spirit that keeps lurking for you with cunning to find you in weakness and to keep squeezing out all your strength, oh, that My and your enemy cannot stand still when he knows and sees your fate from God and the glory that I, the Lord, am preparing for Me and you, so that peoples and kings, nations and languages of the earth will bow down under this glory, as it is written about the holy mountain, from which many will take My teaching and will find the happy and so happy way and walk, oh, that for no other reason does the Lord come and prepare His glory on your land, and to set a royal table on your land and come with the hosts of saints and with eternal wedding days, with the days of eternity, with heaven and earth together, in a very sweet party, even if now those on earth know no other sweetness for them than the life with fleeting pleasures and so sinful before the Lord, Who comes to prepare His rest on your hearth, oh, and why, perhaps, in you, why in your gardens, My country?
 
@@ -33,6 +31,4 @@ And now embrace the two sons, *(President Nicușor Dan and Prime Minister Ilie B
 
 Now, peace, unity and good understanding with perseverance for the spirit of justice above all, may this be established as the work of those who are now establishing the straightening of those who have been so crooked for a long time, oh, and may the heavenly powers of vigilance and help from heaven stand for the lifting of the Romanian nation to unity, to faith, to Christ the Shepherd, Who becomes a word over the earth on the land of the Romanian nation, where He is now shepherding His flock.
 
-Peace to you, My beautiful country, My kingdom of today and tomorrow on earth! I am carrying you in My arms like My sweet child. Oh, peace to you all the time, all the time! I will always watch over you and I will speak to you, shepherd you tenderly, tenderly, and I will caress you with My comfort, oh, how sweet you are to Me, and that is why I am holding your hand and I am leading your steps on the path, on My path with you to My victory and yours, always the Lord with you on the path, oh, My country of today, always Mine, always and forever. Amen, amen, amen.
-
-[/legatura_la_teme]
+Peace to you, My beautiful country, My kingdom of today and tomorrow on earth! I am carrying you in My arms like My sweet child. Oh, peace to you all the time, all the time! I will always watch over you and I will speak to you, shepherd you tenderly, tenderly, and I will caress you with My comfort, oh, how sweet you are to Me, and that is why I am holding your hand and I am leading your steps on the path, on My path with you to My victory and yours, always the Lord with you on the path, oh, My country of today, always Mine, always and forever. Amen, amen, amen.[/legatura_la_teme]

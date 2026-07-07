@@ -44,6 +44,6 @@ O, păstori ai bisericii, iată-i pe fiii cei ortodocşi, folosiţi de Mine, Dom
 
 O, trebuie pocăinţă multă şi umilinţă multă. Altfel zadarnic cred cei ce cred şi strigă la Domnul pentru ei. Trebuie credinţă neamestecată cu păcatul şi cu faptele lui fel de fel.
 
-Să umble în lumină cei ce cred spre Dumnezeu. Să fie curaţi la inimă şi la faptă cei ce vor să iubească pe Domnul. Amin. [/legatura_la_teme]
+Să umble în lumină cei ce cred spre Dumnezeu. Să fie curaţi la inimă şi la faptă cei ce vor să iubească pe Domnul. Amin.[/legatura_la_teme]
 
 O, pace vouă, celor ce Mă ajutaţi şi staţi sub crucea venirii Mele de azi cuvânt pe pământ! Voi sunteţi fiii ortodoxiei, căci cei ce lucrează, aceia se dovedesc a fi fii şi ucenici ai Mei. O, rămâneţi în iubirea Mea, fiilor, rămâneţi poporul Meu, via Mea, sădirea Mea cea scumpă, fiilor. Eu sunt cu voi tot timpul. Aşa să fiţi şi voi cu Mine, aşa să fiţi şi voi, fiilor. Voi sunteţi casa Mea, casa în care Eu sălăşluiesc şi masa la care cinez cu sfinţii Mei şi cu voi, o, fiilor. Amin, amin, amin.

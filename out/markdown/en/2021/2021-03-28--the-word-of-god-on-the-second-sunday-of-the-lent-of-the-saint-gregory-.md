@@ -41,14 +41,10 @@ And as for you, sons of My people, oh, you sons, you shall want nothing more tha
 
 Oh, peace to you, sons! Peace through you over the Christian flock and over My church on the land of the Romanian people, and then all over the earth, where it is waiting for its Lord!
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Peace to you, My Romanian, My today’s country!
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Peace to you, My Romanian, My today’s country!
 
 Oh, stand up, Romanian, to protect your country from the wolves and your faith from the pagans!
 
 Oh, stand up, Romanian sons, and stand watch against the faith and baptism denial, for the antichrist man wants to catch you under this sin, without you knowing it and without you understanding it, so that he may put his black seal, but I, the Lord, am telling you and watching you, I am waking you up and waking up the ministers at the altars to watch for the country, for the faith and for the victory with Christ during this time of great trial as there has never been, as it is written.
 
-Oh, peace to you, My today’s country. You are God’s comfort. Remain on My side, remain Christ’s sons! I am coming to you to be Mine and I am coming because you are Mine, because you are the country of the Lord, Jesus Christ, in the end of the time, and My mystery with you is going to comprise under it soon, soon, the whole earth and all the nations on the earth and we will shine with a great victory, and this is how we will end, and this is how we will begin, and this is how the new beginning will remain, a new heaven and a new earth, I and you, My country, and all those who are like Us, as it is written! Amen, amen, amen.
-
-[/legatura_la_teme]
+Oh, peace to you, My today’s country. You are God’s comfort. Remain on My side, remain Christ’s sons! I am coming to you to be Mine and I am coming because you are Mine, because you are the country of the Lord, Jesus Christ, in the end of the time, and My mystery with you is going to comprise under it soon, soon, the whole earth and all the nations on the earth and we will shine with a great victory, and this is how we will end, and this is how we will begin, and this is how the new beginning will remain, a new heaven and a new earth, I and you, My country, and all those who are like Us, as it is written! Amen, amen, amen.[/legatura_la_teme]

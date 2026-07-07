@@ -11,9 +11,9 @@ audio_file:
 
 [legatura_la_teme id_capitol="2" id_subcapitol="4"]… Oh, wake up! Peace be with you! Behold, I have descended to you, My children, but I have not descended into body, as in the past, I have descended into Spirit. I have not come to you to seek for yours, I have come to seek for souls. I have descended into stake to speak to My people. Behold, I have come to speak to you, Strengthen yourselves into faith, children; into faith, not into rich clothes. Blessed are the eyes which do not see and believe, and woe unto those who see, hear and do not believe!
 
-Oh, world, now you do not know Me, but the day will come when you know everything, because here it is what Father has done to speak into a handful of dust! I have come again on Earth to heal a palsied man, lying on a bed. Behold, children, this body is in front of you. *(Through which the Lord speaks, r.n.)* He was dead and I rose him from the dead; he was sick and I healed him. I healed him not with earthly medicine, but with heavenly ones. Seek, My children, as long as there is time left. Do not seek for the pot, but for The Spirit.
+Oh, world, now you do not know Me, but the day will come when you know everything, because here it is what Father has done to speak into a handful of dust! I have come again on Earth to heal a palsied man, lying on a bed. Behold, children, this body is in front of you. *(Through which the Lord speaks, r.n.)* He was dead and I rose him from the dead; he was sick and I healed him. I healed him not with earthly medicine, but with heavenly ones. Seek, My children, as long as there is time left. Do not seek for the pot, but for The Spirit.[/legatura_la_teme]
 
-[/legatura_la_teme][legatura_la_teme id_capitol="6" id_subcapitol="3"]… Oh, brothers, you have forgotten the way of the church. Oh, brothers, why are doing something like this, My children? Here, the churches are empty and the taverns are full. Open your hearts! Give glory to God! Sing, give glory with all your members![/legatura_la_teme]
+[legatura_la_teme id_capitol="6" id_subcapitol="3"]… Oh, brothers, you have forgotten the way of the church. Oh, brothers, why are doing something like this, My children? Here, the churches are empty and the taverns are full. Open your hearts! Give glory to God! Sing, give glory with all your members![/legatura_la_teme]
 
 … Oh, brothers, if even My words are from the devil, then your faith where does is come from? Oh, I have not come to lead you astray but I come to suffer the thorns, I have come after the strayed sheep.
 
@@ -25,9 +25,9 @@ Oh, world, now you do not know Me, but the day will come when you know everythin
 
 … I came in a body and you crucified Me. I come in Spirit to show you and to call and tell you to believe in Me.
 
-[legatura_la_teme id_capitol="6" id_subcapitol="3"]… Here is what I tell you: get out of this world, of its trespasses, that is: pride, drunkenness, fornication, lying. Come out of the Babylon of this world. Oh, here, a little angel threw a stone into the sea and the same way is leaving the same way this chaos (hullabaloo) will be thrown into the fire.
+[legatura_la_teme id_capitol="6" id_subcapitol="3"]… Here is what I tell you: get out of this world, of its trespasses, that is: pride, drunkenness, fornication, lying. Come out of the Babylon of this world. Oh, here, a little angel threw a stone into the sea and the same way is leaving the same way this chaos (hullabaloo) will be thrown into the fire.[/legatura_la_teme]
 
-[/legatura_la_teme][legatura_la_teme id_capitol="4" id_subcapitol="2"]… The bodies of the saints are on the Romanian hearth, otherwise Romania would have been divided long ago, but because their bodies are on the Romanian hearth, My Mother asked Me to protect you, because, if she hadn’t asked, I would have left you alone long ago.[/legatura_la_teme]
+[legatura_la_teme id_capitol="4" id_subcapitol="2"]… The bodies of the saints are on the Romanian hearth, otherwise Romania would have been divided long ago, but because their bodies are on the Romanian hearth, My Mother asked Me to protect you, because, if she hadn’t asked, I would have left you alone long ago.[/legatura_la_teme]
 
 … My Father dressed himself in Son, in a filthy and ugly coat and he went to a rich man asking for mercy, and that one told him: *„Go to work and work! Why are you lazy?“* And here is what God did: He dressed Himself in a luxurious coat and He went to the rich man again. When he saw Him, he invited Him at his table. Whom did this rich man receive? Oh, if there weren’t poor men on Earth, there would be no one in heaven.
 

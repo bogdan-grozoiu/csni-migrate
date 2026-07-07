@@ -13,7 +13,7 @@ L’Esprit Saint- Empereur au-dessus de la terre.La vertu de la foi indubitable 
 
 La prophétie pour l’écroulement de la localité Manesti
 
-[legatura_la_teme id_capitol="3" id_subcapitol="4"]… Au nom du Père, du Fils et du Saint Esprit, Amen. Le Seigneur Jésus Christ a enlevé de la terre le trône des empereurs, de tous les empereurs de la terre. S’il y a quelqu’un qui veut rester empereur qu’il se tienne les mains tendues, comme le Seigneur. Il ne s’agit pas du trône, mais du don d’empereur pris par la Sainte Trinité. Il vient un petit oiseau du ciel pour être empereur sur la terre. Oui, c’est vrai, il vient. [/legatura_la_teme]
+[legatura_la_teme id_capitol="3" id_subcapitol="4"]… Au nom du Père, du Fils et du Saint Esprit, Amen. Le Seigneur Jésus Christ a enlevé de la terre le trône des empereurs, de tous les empereurs de la terre. S’il y a quelqu’un qui veut rester empereur qu’il se tienne les mains tendues, comme le Seigneur. Il ne s’agit pas du trône, mais du don d’empereur pris par la Sainte Trinité. Il vient un petit oiseau du ciel pour être empereur sur la terre. Oui, c’est vrai, il vient.[/legatura_la_teme]
 
 …. Je porte à la main un petit drapeau sur lequel il est écrit: *«La fin de tous».* Depuis Ma naissance J’ai prophétisé cette parole, cette nouvelle. Que personne ne prend pas cette parole comme un mensonge. Il n’y a plus de saint ou d’ange au ciel, qui ne vienne avec le balai pour balayer votre chemin: en particulier les prophètes, qui balayent pour que vous veniez plutôt.
 

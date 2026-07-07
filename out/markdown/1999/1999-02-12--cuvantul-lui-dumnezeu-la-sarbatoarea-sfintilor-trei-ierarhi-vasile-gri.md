@@ -46,7 +46,7 @@ O, copilaşi din urmă, copii ai cuvântului Meu cel din urmă! Eu v-am învăţ
 
 *Doamne, vino împotriva celor ce-Ţi zădărnicesc venirea, că aceştia au pus negru peste roşu şi sunt fiii veacului acesta şi mănâncă şi beau şi se însoară şi se mărită ca în vremea lui Noe, dar Tu vii ca în vremea lui Noe, căci aşa ai spus că vii. Amin, amin, amin.*
 
-– O, sfinţi ai Mei, vin. Vin să vă dau moştenirea pentru care aţi trudit: cer nou şi pământ nou, şi Eu, cu sfinţii Mei, întru plată de sfinţi. Vin, că e plină cupa, iar venirea Mea va da peste cupă şi ea se va vărsa peste omul cel mincinos de pe pământ, care s-a vopsit şi s-a numit biserică. Vin, că Eu am spus aceasta. Amin, amin, amin. [/legatura_la_teme]
+– O, sfinţi ai Mei, vin. Vin să vă dau moştenirea pentru care aţi trudit: cer nou şi pământ nou, şi Eu, cu sfinţii Mei, întru plată de sfinţi. Vin, că e plină cupa, iar venirea Mea va da peste cupă şi ea se va vărsa peste omul cel mincinos de pe pământ, care s-a vopsit şi s-a numit biserică. Vin, că Eu am spus aceasta. Amin, amin, amin.[/legatura_la_teme]
 
 Iar voi, copii din urmă care v-aţi aşezat punte între cer şi pământ ca să trec Eu şi să vin pentru cei drepţi şi pentru cei mincinoşi, lucraţi lucrarea duhului, care pofteşte împotriva trupului, lucrarea care pofteşte pe Dumnezeu în voi. Omul şi mişcarea omului lucrează prea puţin pentru cele ale duhului, şi de aceea nu le vede pe acestea, căci ele se văd cu ochiul duhului. E mare taină să aibă omul de la Dumnezeu două rânduri de ochi, şi iată, omul a făcut din această taină blasfemie pentru cele ce sunt cereşti în om şi cu omul.
 

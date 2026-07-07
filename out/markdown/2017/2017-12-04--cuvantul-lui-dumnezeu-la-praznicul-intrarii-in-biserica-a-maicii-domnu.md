@@ -64,6 +64,4 @@ De aici, din muntele Meu înalt al cuvântului Meu de pe vatra neamului român M
 
 *Și punem peste acest cuvânt numele Tău și numele meu:*
 
-*Iisus Hristos, și mama Fecioară, Maica Domnului. Amin, amin, amin.*
-
-[/legatura_la_teme]
+*Iisus Hristos, și mama Fecioară, Maica Domnului. Amin, amin, amin.*[/legatura_la_teme]

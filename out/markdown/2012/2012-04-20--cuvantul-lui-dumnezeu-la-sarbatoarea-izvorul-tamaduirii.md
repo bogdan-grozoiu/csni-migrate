@@ -38,7 +38,7 @@ E dureroasă pe pământ viaţa celor ce nu caută după Dumnezeu, mamă! Sunt m
 
 *O, popor iubit, te-ai adunat la izvor. Ia din viaţa lui, învaţă învăţătura lui şi tămăduieşte-te cu ea de orice greu de-al tău şi poartă-L pe Domnul, Care este uşor! A fost odată un om care a trecut peste râu pe un copil micuţ pe umerii lui, iar în cursul trecerii râului s-a făcut tot mai greu şi tot mai greu trupul copilului, de era să-l lase fără pic de puteri pe cel care-l purta peste râu, iar pe celălalt mal a primit răspuns de sus că a purtat pe umeri peste râu pe Cel ce pe toate le poartă pe umerii Lui, şi s-a făcut apoi purtător de Dumnezeu omul acela şi s-a scris el cu sfinţii lui Dumnezeu apoi.*
 
-*O, nu este bucurie mai mare ca a slujitorilor lui Dumnezeu! Ei prin dureri gustă bucurii, ei prin lacrimi gustă mângâierea, ei trăiesc şi simt că trăiesc, şi se bucură pentru Cel ce dă viaţă la vii şi la morţi, căci viaţa trăită are preţ la Dumnezeu şi se împarte din cel ce o poartă pe ea şi se face de folos. Amin.* [/legatura_la_teme]
+*O, nu este bucurie mai mare ca a slujitorilor lui Dumnezeu! Ei prin dureri gustă bucurii, ei prin lacrimi gustă mângâierea, ei trăiesc şi simt că trăiesc, şi se bucură pentru Cel ce dă viaţă la vii şi la morţi, căci viaţa trăită are preţ la Dumnezeu şi se împarte din cel ce o poartă pe ea şi se face de folos. Amin.*[/legatura_la_teme]
 
 *Le-am dat, Fiule Doamne, le-am dat lor desluşiri cereşti care să-i mângâie pe ei şi din care să ia mulţi. Aşa izvor de vindecări să coboare peste oameni, Fiule scump al meu, Fiule înviat, iar eu, ca un ucenic desăvârşit al Tău, le-am dat lor! Amin.*
 

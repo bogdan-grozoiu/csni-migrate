@@ -24,7 +24,7 @@ Când vine duhul în control, omul se ascunde și tace fără de cuvânt, sau da
 
 O, fiilor, o, popor al cuvântului Meu, am grăit astăzi cu voi ca să învățați de la Dumnezeu cum puteți să rămâneți cu Domnul și cum puteți să-L pierdeți și să vină șarpele și să vă arate calea fără de veghe peste voi ca s-o lucrați voi.
 
-O, fiilor, trebuie veghe fără de întrerupere, trebuie în toate și mereu. Adunați-vă întru unul și luați cuvântul Meu și adânciți-vă în taina lui cu care am venit și l-am așezat în carte spre învățătură pentru voi și pentru toți cei care Mă iau de la voi spre viața lor cu Dumnezeu, sau spre neascultarea lor de Dumnezeu. [/legatura_la_teme]
+O, fiilor, trebuie veghe fără de întrerupere, trebuie în toate și mereu. Adunați-vă întru unul și luați cuvântul Meu și adânciți-vă în taina lui cu care am venit și l-am așezat în carte spre învățătură pentru voi și pentru toți cei care Mă iau de la voi spre viața lor cu Dumnezeu, sau spre neascultarea lor de Dumnezeu.[/legatura_la_teme]
 
 Și acum zoriți cu bucurie, fiilor, zoriți cu voie bună și cu dragostea care se mărturisește pe sine și fiți lucrători cu Dumnezeu și bucurați-vă de orice fărâmă de lucrare a voastră cu Mine, căci ascultând și trudind cu bucurie și cu multă voie bună veți lucra cântând și lucrând, o, și așa trebuie să fie statul și fața și lucrarea fiilor lui Dumnezeu din zilele Mele cu voi.
 

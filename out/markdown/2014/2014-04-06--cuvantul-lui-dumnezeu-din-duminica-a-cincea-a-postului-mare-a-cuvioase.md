@@ -40,7 +40,7 @@ O, pace ţie, fiică luptătoare, pace ţie la masa Mea cu poporul cuvântului M
 
 *O, slavă Ţie şi harului Tău peste pământ, Doamne! Cetele cereşti sunt slava Ta şi Te slăveşte slava Ta, Te slăvesc cetele cereşti, Îşi slăvesc Stăpânul, căci între cei din cer este ascultare şi este iubire şi este Dumnezeu. Amin.*
 
-— Iată învăţătură de înviere sun Eu, Domnul, prin sfinţii Mei, prin cei ce s-au izbăvit de păcat şi s-au sfinţit pentru Mine pe pământ! O, câtă ajutorare ai tu prin cei din cer alături cu Mine la masa Mea de cuvânt cu tine, poporul Meu! Te las spre odihnă de sub cuvântul Meu cel de azi şi Mă pregătesc să cobor cu mama Mea Fecioara şi să grăim cu tine, fiule, şi să grăim peste pământ şi peste popoare, căci de aici împart cuvântul Meu peste pământ. [/legatura_la_teme]
+— Iată învăţătură de înviere sun Eu, Domnul, prin sfinţii Mei, prin cei ce s-au izbăvit de păcat şi s-au sfinţit pentru Mine pe pământ! O, câtă ajutorare ai tu prin cei din cer alături cu Mine la masa Mea de cuvânt cu tine, poporul Meu! Te las spre odihnă de sub cuvântul Meu cel de azi şi Mă pregătesc să cobor cu mama Mea Fecioara şi să grăim cu tine, fiule, şi să grăim peste pământ şi peste popoare, căci de aici împart cuvântul Meu peste pământ.[/legatura_la_teme]
 
 O, de ce puteţi voi să rămâneţi cu Mine fiilor? De ce lumea nu poate cu Dumnezeu? Acestea vom căuta să le desluşim cu înţelepciune de sus în ziua de praznic sfânt, care urmează. Umblaţi, aşadar, mereu la ceea ce azi v-am învăţat pe voi şi pe cei ce iau pe Domnul de la voi, umblaţi la taina ascultării şi sprijiniţi-vă cu ea şi cu lucrările ei, căci cei ce nu ascultă greşesc apoi, măi fiilor.
 

@@ -52,4 +52,4 @@ Am grăit vouă, celor ce staţi sub nume de slujitori de biserică a neamului r
 
 Fiţi credincioşi! Duhul Meu este Duhul Tatălui, iar Duhul Tatălui este Duhul Meu şi am grăit vouă în Duhul Sfânt în zi de pomenire a Evangheliei înfricoşatei judecăţi, când Eu voi veni cu ziua Mea întru mărire, cu toţi sfinţii şi îngerii şi voi şedea pe jeţul dreptăţii şi voi despărţi pe unii de alţii oamenii şi neamurile, precum ciobanul desparte oile din capre, şi-Mi voi pune oile de-a dreapta Mea. Amin.
 
-Eu sunt Alfa şi Omega şi Mi-am pus viaţa pentru oile Mele, căci sunt Păstorul lor şi le păstoresc, şi mila Mea de Păstor se face cuvânt, şi Mă dau lor, căci am spus celor iubiţi, celor împrunciţi: *«Nu vă voi lăsa orfani. Eu Însumi voi purta grijă de oile Mele şi le voi păstori».* Amin, amin, amin. [/legatura_la_teme]
+Eu sunt Alfa şi Omega şi Mi-am pus viaţa pentru oile Mele, căci sunt Păstorul lor şi le păstoresc, şi mila Mea de Păstor se face cuvânt, şi Mă dau lor, căci am spus celor iubiţi, celor împrunciţi: *«Nu vă voi lăsa orfani. Eu Însumi voi purta grijă de oile Mele şi le voi păstori».* Amin, amin, amin.[/legatura_la_teme]

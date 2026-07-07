@@ -12,7 +12,7 @@ audio_file:
 
 ... Ai căzut în noroi şi ai întinat hăinuţa. Este apă care spală orice pată. Dar ai căzut de la botez, şi această pată nu se ia.
 
-... O, iubite frate, cum vei râvni să te odihneşti într-un loc ceresc! O, creştine, ai ajuns unde se desparte lumina de întuneric, ai ajuns la răul răului. [legatura_la_teme id_capitol="1" id_subcapitol="4"]Dar strig: opriţi-vă de la păcat! Strig şi Mă uit cum se uita Noe din corabie, şi Mă uit pe pământ să văd, mai e mult ca să aduc la sfârşit toate câte sunt scrise în carte? [/legatura_la_teme]
+... O, iubite frate, cum vei râvni să te odihneşti într-un loc ceresc! O, creştine, ai ajuns unde se desparte lumina de întuneric, ai ajuns la răul răului. [legatura_la_teme id_capitol="1" id_subcapitol="4"]Dar strig: opriţi-vă de la păcat! Strig şi Mă uit cum se uita Noe din corabie, şi Mă uit pe pământ să văd, mai e mult ca să aduc la sfârşit toate câte sunt scrise în carte?[/legatura_la_teme]
 
 ... Aici, pe pământ, se va muta toată fiinţa omenească, şi aici se va face judecata la lumea toată. Nu te uita la mincinosul acela care zice că nu este Dumnezeu şi că omul nu e făcut de Mine. Şi când îl vei vedea legat în lanţuri strâns, te vei uita la el şi te vei cutremura de frică să nu fii şi tu tot legat ca el. Şi îl vei blestema şi îi vei spune: *„Ne-ai înşelat, că spuneai că tu eşti Dumnezeu!“.*
 

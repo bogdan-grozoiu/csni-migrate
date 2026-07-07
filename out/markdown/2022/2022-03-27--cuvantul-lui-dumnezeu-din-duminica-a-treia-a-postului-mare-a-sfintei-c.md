@@ -24,9 +24,7 @@ Iată, spun în ziua aceasta o taină mare și spun: Ori de câte ori s-a ivit p
 
 O, e mic de tot omul. El însă se crede mare, atât de mare până să se creadă mai mare ca Dumnezeu, mai în drept să se dea mare, săracul de el om mare. Dar omul este mic de tot, o, și câți au fost prin vreme cărora Eu, Domnul, le-am arătat în vremea lor cât sunt de mici, de neputincioși pentru oameni și pentru ei înșiși cei mari, când ei se dau mari!
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-O, țara Mea română, ești casa și masa cuvântului lui Dumnezeu în vremea aceasta de veghe din cer peste pământ, când Eu, Domnul, vin cuvânt de la Tatăl la om ca să-Mi pregătesc sosirea cea cu slavă a întoarcerii Mele văzute, când Mă voi arăta cu zeci de mii de sfinți, precum este scris, ca să dau fiecăruia după cum este fapta sa, ca să binecuvintez pe cei ce M-au iubit și M-au urmat și M-au slujit, și ca să Mă îndepărtez de cei ce M-au alungat și M-au disprețuit cu necredință.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]O, țara Mea română, ești casa și masa cuvântului lui Dumnezeu în vremea aceasta de veghe din cer peste pământ, când Eu, Domnul, vin cuvânt de la Tatăl la om ca să-Mi pregătesc sosirea cea cu slavă a întoarcerii Mele văzute, când Mă voi arăta cu zeci de mii de sfinți, precum este scris, ca să dau fiecăruia după cum este fapta sa, ca să binecuvintez pe cei ce M-au iubit și M-au urmat și M-au slujit, și ca să Mă îndepărtez de cei ce M-au alungat și M-au disprețuit cu necredință.
 
 O, neam român, îți întăresc paza la hotare așa cum am făgăduit, iar tu fă-te glas de rugăciune spre Dumnezeu pentru tine și pentru toate neamurile pământului, și mai ales pentru neamul creștinesc de pe pământ de peste tot, neamul lui Dumnezeu, și care trebuie să semene cu Dumnezeu în credință și în iubire și în duhul păcii.
 
@@ -40,9 +38,7 @@ Bisericii și turmei creștine din neamul român le întăresc veghea și lucrar
 
 O, cu cât vei iubi cuvântul Meu de peste tine, cu atât mai mult vei străluci tu, biserica Mea din mijlocul acestui neam, ales pentru sfârșit de timp, pentru Dumnezeu. O, ai grijă mare, că e vremea să se lucreze prin credință, popor creștin, și e vremea să lucreze Domnul, căci s-au stricat peste tot orânduielile sfinte de peste oameni și trebuie îndemn la veghere și la sfințenie, căci vremea aceasta cere, nu altceva cere ea.
 
-Din nou spun: Pace peste pământ, pace din cer peste pământ! O, pace vouă, popoarelor! Pace vouă, celor fără de pace, căci vremea este să vegheați!
-
-[/legatura_la_teme]
+Din nou spun: Pace peste pământ, pace din cer peste pământ! O, pace vouă, popoarelor! Pace vouă, celor fără de pace, căci vremea este să vegheați![/legatura_la_teme]
 
 Pace vouă, celor ce stați cârmuitori peste popoare, și pace între voi! Războiul nu este de la Dumnezeu, ci este vrăjmaș lui Dumnezeu și omului. De la Dumnezeu este pacea. O, pace vouă, credință și pace, cruce și biruință prin cruce! Ferice popoarelor care au pe creștetul lor crucea, semnul Fiului Omului, semnul biruinței cu Dumnezeu!
 

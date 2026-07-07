@@ -18,7 +18,7 @@ audio_file:
 
 ... Creştinul care nu vrea să mai fie cu Dumnezeu, să plece. Să plece fără a vinde harul Domnului Iisus Hristos. Pleacă liniştit, creştine, fără să duşmăneşti, fără să vinzi. Pleacă şi nu mai sta.
 
-[legatura_la_teme id_capitol="3" id_subcapitol="4"]... Fiţi deosebiţi de lume, ca să nu fiţi seceraţi cu lumea. Voi sunteţi sarea pământului. Cui i-a spus Domnul aşa? Preoţilor. Dacă sarea se va strica, oamenii cu ce ar mai săra? De ce nu simbolizaţi toate acestea? Nu mai e ulei şi nu mai e zahăr pe piaţă. Nu zahărul a pierit. E un simbol, că nu a pierit. Este şi se dă pe pitite. Aşa şi Eu, dau pe pitite harul Meu. Cum un gestionar dă ulei şi zahăr numai la cunoscuţi, aşa şi Eu dau la cunoscuţi harul Meu. [/legatura_la_teme]
+[legatura_la_teme id_capitol="3" id_subcapitol="4"]... Fiţi deosebiţi de lume, ca să nu fiţi seceraţi cu lumea. Voi sunteţi sarea pământului. Cui i-a spus Domnul aşa? Preoţilor. Dacă sarea se va strica, oamenii cu ce ar mai săra? De ce nu simbolizaţi toate acestea? Nu mai e ulei şi nu mai e zahăr pe piaţă. Nu zahărul a pierit. E un simbol, că nu a pierit. Este şi se dă pe pitite. Aşa şi Eu, dau pe pitite harul Meu. Cum un gestionar dă ulei şi zahăr numai la cunoscuţi, aşa şi Eu dau la cunoscuţi harul Meu.[/legatura_la_teme]
 
 ... Nu mai fugiţi de Mine din pricina lumii. Se aude ce vorbeşte lumea despre voi, dar nu vor ajunge să-şi împlinească planul lor, căci când securea va ajunge asupra capului vostru, vine Dumnezeu şi o întoarce asupra capului lor. Numai prin post şi rugăciune, tată, daţi înapoi pe oamenii cei care vor să strice viaţa voastră.
 

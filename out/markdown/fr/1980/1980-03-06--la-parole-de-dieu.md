@@ -11,7 +11,7 @@ audio_file:
 
 Le dénombrement de la fin: heureux celui qui sera compté à la fin. Les prêtres se soulèveront contre les chrétiens saints
 
-… Oh, mon peuple, le dénombrement du siècle de Dieu, c'est le dénombrement de la fin! Quand vous unissez-vous au dénombrement du début, qui a été fait par le Saint-Esprit? Où est le dénombrement de la fin? Qui sait-t-il de lui? [legatura_la_teme id_capitol="1" id_subcapitol="2"]Depuis le commencement, depuis qu'Il a créé cette terre, Dieu a compté le premier homme, Adam. Heureux celui qui sera compté à la fin. [/legatura_la_teme]
+… Oh, mon peuple, le dénombrement du siècle de Dieu, c'est le dénombrement de la fin! Quand vous unissez-vous au dénombrement du début, qui a été fait par le Saint-Esprit? Où est le dénombrement de la fin? Qui sait-t-il de lui? [legatura_la_teme id_capitol="1" id_subcapitol="2"]Depuis le commencement, depuis qu'Il a créé cette terre, Dieu a compté le premier homme, Adam. Heureux celui qui sera compté à la fin.[/legatura_la_teme]
 
 … Purifie-toi, afin que tu puisses entrer dans le lieu que Je t'ai préparé, mais voilà, la parole que Je t'ai dite face à face, t'a sanctifié, puisque Je ne te quitterai pas si ta foi est comme la Mienne.
 

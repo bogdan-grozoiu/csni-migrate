@@ -28,4 +28,4 @@ Nu te teme. El este bun cu inima şi va şti să fie de partea Mea dacă voieşt
 
 Pace ţie! Şi iarăşi vom sta în sfat, căci Eu sunt, şi stau în mijlocul vostru şi fac sfat, aşa cum este scris în Scripturi. Acesta este aşezământul întru care binevoiesc şi prin care Mă voi arăta întru sfinţenia Mea, căci această piatră Eu sunt. Am aşezat acest semn pe pământ, şi voi aşeza această piatră înaintea Mea, căci iată ziua.
 
-Săltaţi de bucurie şi vă veseliţi, voi, cei ce iubiţi Ierusalimul, căci Domnul a cercetat poporul Său cel credincios, şi tot ochiul va vedea mântuirea care vine de la Dumnezeu în zilele ce vin. Amin, amin, amin. [/legatura_la_teme]
+Săltaţi de bucurie şi vă veseliţi, voi, cei ce iubiţi Ierusalimul, căci Domnul a cercetat poporul Său cel credincios, şi tot ochiul va vedea mântuirea care vine de la Dumnezeu în zilele ce vin. Amin, amin, amin.[/legatura_la_teme]

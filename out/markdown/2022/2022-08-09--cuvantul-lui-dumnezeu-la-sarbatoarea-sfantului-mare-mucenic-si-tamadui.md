@@ -18,7 +18,7 @@ Toți slujitorii, toți mărturisitorii Mei prin vreme au purtat sub apăsarea v
 
 [legatura_la_teme id_capitol="6" id_subcapitol="3"]Mângâiați-vă și vă întăriți tot timpul prin cei din cer și dați-le cale și lucru ca să lucreze ei pe pământ și să împrăștie toate câte se așează pieziș împotriva biruinței Domnului și a sfinților Lui, fiilor.
 
-Toți creștinii să iubească grăirea cu Domnul și cu sfinții Lui, căci rugăciunile sfinților umplu cupa milei Mele și stau înaintea Mea rugăciunile lor precum este scris, dar trebuie dor de Dumnezeu ca să vină Domnul pe pământ, că este nevoie de Dumnezeu pe pământ, chiar dacă cei de pe pământ n-au în mintea lor să vină Domnul și să fie cu oamenii pe pământ, căci făgăduința Lui este mare, că am spus acum două mii de ani: *«Sunt cu voi până la sfârșitul timpului!»*, și trebuie întreagă să fie credința creștinilor în făgăduința Mea cea pentru ei. [/legatura_la_teme]
+Toți creștinii să iubească grăirea cu Domnul și cu sfinții Lui, căci rugăciunile sfinților umplu cupa milei Mele și stau înaintea Mea rugăciunile lor precum este scris, dar trebuie dor de Dumnezeu ca să vină Domnul pe pământ, că este nevoie de Dumnezeu pe pământ, chiar dacă cei de pe pământ n-au în mintea lor să vină Domnul și să fie cu oamenii pe pământ, căci făgăduința Lui este mare, că am spus acum două mii de ani: *«Sunt cu voi până la sfârșitul timpului!»*, și trebuie întreagă să fie credința creștinilor în făgăduința Mea cea pentru ei.[/legatura_la_teme]
 
 Oștirea de mucenici are în cer serbare pentru mărturisitorul Pantelimon și se apropie cu serbarea lor lângă cei de pe pământ care slăvesc pe sfântul tămăduitor, căci dorul sfinților e mare și e aproape cu cei ce îi cheamă, și gata sunt sfinții Mei să fie și ei pe pământ cu oamenii, și să fie credință în oameni pentru lucrul celor din cer, căci cerul sfinților Mei este pentru cei de pe pământ și așteaptă ei să lucreze.
 
@@ -30,9 +30,7 @@ Ascultă, poporul Meu, ascultă în toată vremea de tot cuvântul Meu cel pentr
 
 Fiilor, fiilor, fiți unii altora bucurie și vindecare și putere pe cale cu Domnul, și mai ales acestea pentru coborârea Mea la voi. Dați-vă unii altora mângâieri sfinte și veți fi mângâiați. Fiți plini de Hristos, că e greu fără Domnul, iar fiii lumii nu știu aceasta, dar să audă ei de la Mine că Eu vă spun vouă aceasta și să caute și ei să fie plini de Dumnezeu, că pe pământ stăpânește cu umbletul lui satana și rodul lui cel mult, iar oamenii nu mai văd cărarea spre viață, că e ascunsă și o tot ascunde satana de fața și de mintea oamenilor și le arată el calea spre iad.
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-O, fii ai oamenilor, feriți-vă de cele ieșite din iad! Dar feriți-vă voi, fii români! Ridicați-vă împotriva lui satana și dați cu el război, căci voi sunteți însemnați cu pecetea Sfintei Treimi Tatăl, Fiul și Sfântul Duh, iar împărăția lui Dumnezeu nu are nimic în lumea aceasta, ci numai în inima creștinilor care țin calea cea de la început a bisericii Mele fără să se schimbe ea.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]O, fii ai oamenilor, feriți-vă de cele ieșite din iad! Dar feriți-vă voi, fii români! Ridicați-vă împotriva lui satana și dați cu el război, căci voi sunteți însemnați cu pecetea Sfintei Treimi Tatăl, Fiul și Sfântul Duh, iar împărăția lui Dumnezeu nu are nimic în lumea aceasta, ci numai în inima creștinilor care țin calea cea de la început a bisericii Mele fără să se schimbe ea.
 
 O, însemnați-vă tot timpul cu semnul sfintei cruci, fii români! Ori de câte ori satana și slugile lui se arată, faceți cruce, fii români, împreunându-vă cele trei degete ale mâinii drepte și însemnându-vă pe frunte, pe piept și pe umeri cu semnul sfintei Treimi, al sfintei cruci, și veți vedea minuni mari și veți vedea vaietele satanei, căci duhul rău arde ca focul în fața sfintei cruci, și ea vă să vă fie tămăduire de cursele cele pline de primejdii întinse de satana pe cale peste fiii oamenilor, dar voi sunteți români, și trebuie să arătați că sunteți de partea lui Dumnezeu, și ca să vadă satana aceasta.
 
@@ -40,6 +38,4 @@ Acum pace vouă! Biruință binecredincioșilor creștini asupra lui satana este
 
 Pace vouă, fii români! Întăriți-vă sub pază țara cu puterea sfintei cruci! Iubiți-vă țara și pe Domnul Dumnezeul vostru și stați treji asupra duhului potrivnic, și Dumnezeu vă învață pe voi aceasta!
 
-O, pace vouă, binecuvântare vouă, biruință prin cruce vouă, fii ai neamului român, acum și în veci, o, fiilor! Amin, amin, amin.
-
-[/legatura_la_teme]
+O, pace vouă, binecuvântare vouă, biruință prin cruce vouă, fii ai neamului român, acum și în veci, o, fiilor! Amin, amin, amin.[/legatura_la_teme]

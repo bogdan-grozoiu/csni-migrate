@@ -10,9 +10,7 @@ audio_file: 16.06.03.mp3
 
 *(Mesajul Domnului către neamul român)*
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Intru în cartea cuvântului Meu, în care Mă așez cu grăirea Mea din zilele acestea, carte care mărturisește că vine Domnul cuvânt pe pământ și cârmuiește cu glasul cuvântului Său lumea, și tainic se petrece această cârmuire, căci scris este despre Mine că voi veni cu sfinții în oștiri din cer și că din gura Mea va ieși ca sabia ascuțită cuvântul cel cârmuitor peste neamurile de pe pământ, pe care le voi cârmui cu toiag de fier, căci Împăratul împăraților și Domnul domnilor sunt, iar numele Meu se cheamă *Cuvântul lui Dumnezeu*, precum este scris, și iată, se împlinesc cele scrise în Scripturi, căci Eu vin și împlinesc.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Intru în cartea cuvântului Meu, în care Mă așez cu grăirea Mea din zilele acestea, carte care mărturisește că vine Domnul cuvânt pe pământ și cârmuiește cu glasul cuvântului Său lumea, și tainic se petrece această cârmuire, căci scris este despre Mine că voi veni cu sfinții în oștiri din cer și că din gura Mea va ieși ca sabia ascuțită cuvântul cel cârmuitor peste neamurile de pe pământ, pe care le voi cârmui cu toiag de fier, căci Împăratul împăraților și Domnul domnilor sunt, iar numele Meu se cheamă *Cuvântul lui Dumnezeu*, precum este scris, și iată, se împlinesc cele scrise în Scripturi, căci Eu vin și împlinesc.
 
 O, vin cuvânt pe vatra neamului român. Țara Mea de dor și de minuni și de taine cerești este această țară, dar cine nu Mă lasă pe Mine cu voia Mea peste ea, cei ce-Mi stau potrivnici în ea, aceia să știe că-Mi sunt dușmani și că se împotrivesc Împăratului împăraților și Domnului domnilor și nu-L cinstesc pe El și nu-L vor pe Cel ce a făcut cerul și pământul și omul și toate câte sunt, toate văzutele și nevăzutele facerii Lui.
 
@@ -40,6 +38,4 @@ O, e de luptat pentru nimicirea lui satana și a neștiinței, căci neștiința
 
 O, pace ție îți spun, neam român! Am grăit cu tine cu îngrijorare și Mă apasă dureros grija de tine.
 
-Mă scriu cu numele Meu la sfârșit de cuvânt. Iisus Hristos. Amin.
-
-[/legatura_la_teme]
+Mă scriu cu numele Meu la sfârșit de cuvânt. Iisus Hristos. Amin.[/legatura_la_teme]

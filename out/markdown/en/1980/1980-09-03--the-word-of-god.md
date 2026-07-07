@@ -13,4 +13,4 @@ audio_file:
 
 … This body is a mere hand of dust, which I took through the fire and water, through the sea and all kind of pain without comfort.
 
-[legatura_la_teme id_capitol="2" id_subcapitol="2"]… No one has received the crown for the works. The saints go and ask: *“How long, Lord?” “Go to your places, for unless those that are in the great tribulation do not come, we will not divide the gifts.”* This is what the Lord tells you: you will be the one in the great tribulation, which the heaven will wait with a retinue. [/legatura_la_teme]
+[legatura_la_teme id_capitol="2" id_subcapitol="2"]… No one has received the crown for the works. The saints go and ask: *“How long, Lord?” “Go to your places, for unless those that are in the great tribulation do not come, we will not divide the gifts.”* This is what the Lord tells you: you will be the one in the great tribulation, which the heaven will wait with a retinue.[/legatura_la_teme]

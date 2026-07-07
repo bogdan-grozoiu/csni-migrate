@@ -16,7 +16,7 @@ Vreau, fiilor, să Mă apropii și să ridic la rang înalt acest oraș al venir
 
 M-a alungat, M-a răstignit, M-a micșorat de tot poporul Israel, că n-a putut să înțeleagă și să primească pe Fiul lui Dumnezeu peste el, iar Tatăl M-a mângâiat atunci și Mi-a dat pământul român, în care flacăra Duhului Sfânt se va aprinde și-Mi va da primire și găzduire și ucenici cu credință de la Mine în ei, și iată, făgăduința Tatălui este acum mângâierea Mea, ca și credința voastră, o, ucenici ai Mei micuți, dar mari după har, fiilor.
 
-Am binecuvântat tainic întâlnirea voastră de acum zece zile cu toți cei de la cârma cetății, și tot rodul acesta se va vedea, iar voi fiți cu grijă să fiu împlinit în voi, ca să puteți pentru Mine și pentru mulți, fiilor, să puteți din partea Mea, că măreață este lucrarea Mea cu voi, chiar dacă această măreție este acum sub văl. [/legatura_la_teme]
+Am binecuvântat tainic întâlnirea voastră de acum zece zile cu toți cei de la cârma cetății, și tot rodul acesta se va vedea, iar voi fiți cu grijă să fiu împlinit în voi, ca să puteți pentru Mine și pentru mulți, fiilor, să puteți din partea Mea, că măreață este lucrarea Mea cu voi, chiar dacă această măreție este acum sub văl.[/legatura_la_teme]
 
 O, voi sunteți apăsați de griji, de osteneală, de neputințe, fiilor, dar iată, vine și se apropie sărbătoarea cea cu strângere la izvor și avem nevoie de putere pentru toate câte aveți de pregătit, iar Eu, Domnul, vă umplu de har, stau aproape aici, cu voi, vă ajut, vă alin, vă învăț, și nu mai este pe pământ un loc mai dulce, mai minunat ca și aici, unde Eu, Domnul, sunt și lucrez cu voi și Îmi desăvârșesc biserica Mea cea purtătoare de Dumnezeu în mijlocul ei, căci voi ați înțeles voia Mea, fiilor, iar Eu vă mulțumesc vouă cu bucurie și cu aplecare și cu mângâiere, că iată, alții de pe pământ nu pot atât de mult cu Dumnezeu, de vreme ce atât de mult își au ei grijă de viața lor, de starea lor, și mai ales de păcat, căci viața cu păcat în ea a oamenilor M-a pus pe Mine pe cruce acum două mii de ani, și nu de altceva am fost dat crucii atunci.
 
@@ -28,7 +28,7 @@ O, fiilor, v-am găsit plăpânzi, dar am încă să așez în carte spre trimit
 
 *Tărie dă-le, Doamne, și mereu să lucrezi la ea, și la credința celor ce se vor mângâia de la slava aceasta a Ta cu ei, căci cuvântul Tău se împlinește negreșit, și toți cei necredincioși vor lăsa sulițele în jos și-și vor înțelege înfrângerea, și biruința Ta apoi, căci Tu ești Mielul, ești Biruitorul, o, Doamne. Amin.*
 
-— Da, biruința Mea este prin credința voastră, sfinți iubiți ai Mei, și a celor ce vor crede ca și voi, cei în cer locuitori, și, iarăși, ca și voi, fiilor purtători de Dumnezeu pe pământ, și va crește credința în mulți, și mulți vor înțelege taina Mea cu voi pe vatra neamului român. [/legatura_la_teme]
+— Da, biruința Mea este prin credința voastră, sfinți iubiți ai Mei, și a celor ce vor crede ca și voi, cei în cer locuitori, și, iarăși, ca și voi, fiilor purtători de Dumnezeu pe pământ, și va crește credința în mulți, și mulți vor înțelege taina Mea cu voi pe vatra neamului român.[/legatura_la_teme]
 
 Binecuvântat să fie începutul și sfârșitul pregătirii sărbătorii îngerilor, iar voi, fiilor, fiți harnici, căci lucrul vostru este cu cerul, chiar dacă pe pământ lucrăm. Vă alin, vă întăresc, vă dau har și pricepere și stau cu voi în toată vremea pregătirii sărbătorii care ne va întâlni aici cu cei ce se vor strânge sub slava Mea cu voi.
 

@@ -9,9 +9,7 @@ audio:
 audio_file: 
 ---
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Je suis l’Envoyé de Dieu, Mon Père Sabbaot et Je viens en parole sur la terre au-dessus du peuple roumain, parole de gloire et de la paix et de vérité.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Je suis l’Envoyé de Dieu, Mon Père Sabbaot et Je viens en parole sur la terre au-dessus du peuple roumain, parole de gloire et de la paix et de vérité.
 
 Je suis le Fils du Père, Je suis vrai Dieu de vrai Dieu. Il y a deux mille ans Mon Père M’a envoyé sur la terre pour Me faire Homme visible entre les hommes, pour prouver que Je suis Son Fils et qu’ils croient en Moi ceux auxquels le Père donnerait à croire, et maintenant, à la fin de temps, le Père M’envoie en parole au-dessus de la terre.
 
@@ -61,6 +59,4 @@ Approchez-vous et apprenez l’esprit et le mystère de la fraternité, fils rou
 
 Le Père et le Fils ont parlé dans le Saint Esprit au peuple roumain en jour de fête sainte et Ces trois en sont Une.
 
-Amen, amen, vous dis-Je, aimez et croyez en Ma venue, fils roumains. Cette rivière de parole, issue de Ma bouche, est connue avec le cœur et portée ensuite pour donner de la consolation et du pouvoir à ceux qui en prennent pour leur guérison. Je viens bientôt. Je viens toujours en parole de veille et de gloire sur toi, peuple roumain. Allume la chandelle, et reste ainsi devant Moi quand Je viens à toi, car Je t’aime et Je t’attends pour bénir toujours ta destinée venue de Moi et J’attends toujours que tu sois, que tu sois pour l’éternité ensuite, ciel nouveau et terre nouvelle, que tu sois nouveau début par toutes les sources qui coulent sur toi et qui te donnent à boire du ciel, Mon pays, Mon pays d’aujourd’hui. Amen, amen, amen.
-
-[/legatura_la_teme]
+Amen, amen, vous dis-Je, aimez et croyez en Ma venue, fils roumains. Cette rivière de parole, issue de Ma bouche, est connue avec le cœur et portée ensuite pour donner de la consolation et du pouvoir à ceux qui en prennent pour leur guérison. Je viens bientôt. Je viens toujours en parole de veille et de gloire sur toi, peuple roumain. Allume la chandelle, et reste ainsi devant Moi quand Je viens à toi, car Je t’aime et Je t’attends pour bénir toujours ta destinée venue de Moi et J’attends toujours que tu sois, que tu sois pour l’éternité ensuite, ciel nouveau et terre nouvelle, que tu sois nouveau début par toutes les sources qui coulent sur toi et qui te donnent à boire du ciel, Mon pays, Mon pays d’aujourd’hui. Amen, amen, amen.[/legatura_la_teme]

@@ -10,9 +10,7 @@ audio_file: 25.06.29.mp3
 
 Grăirea Domnului cu cei din sfatul țării
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Un strigăt se aude din cer deasupra pământului român. Un glas strigător se lasă peste acest meleag hrănit cu slava cuvântului Meu de mai bine de șaptezeci de ani, că România are alegere mare între popoare, căci este ea țara venirii Mele la ea cu slavă de cuvânt la sfârșit de timp, o, și de aceea am grijă de tine ca părintele de copiii lui și te țin la pieptul Meu de Păstor și-ți dau din cer și nu mai pot să uit să-ți așez pe masă glasul Meu, mângâierea Mea, purtarea Mea de grijă pentru tine tot timpul, țara Mea cea de azi, așa cum și la facerea cea văzută am stat pe pământul tău și am lucrat trupul omului și toate cele pentru om spre bucuria lui și a Mea, și care ar fi fost să fie, iar acum plângând Mă port să-l aduc la sânul Meu și să-i dau din cer și să-l învăț cu cerul pe pământ, și am cuvânt de Păstor pentru om și iată-Mă cu tine mereu, România Mea.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Un strigăt se aude din cer deasupra pământului român. Un glas strigător se lasă peste acest meleag hrănit cu slava cuvântului Meu de mai bine de șaptezeci de ani, că România are alegere mare între popoare, căci este ea țara venirii Mele la ea cu slavă de cuvânt la sfârșit de timp, o, și de aceea am grijă de tine ca părintele de copiii lui și te țin la pieptul Meu de Păstor și-ți dau din cer și nu mai pot să uit să-ți așez pe masă glasul Meu, mângâierea Mea, purtarea Mea de grijă pentru tine tot timpul, țara Mea cea de azi, așa cum și la facerea cea văzută am stat pe pământul tău și am lucrat trupul omului și toate cele pentru om spre bucuria lui și a Mea, și care ar fi fost să fie, iar acum plângând Mă port să-l aduc la sânul Meu și să-i dau din cer și să-l învăț cu cerul pe pământ, și am cuvânt de Păstor pentru om și iată-Mă cu tine mereu, România Mea.
 
 O, pace ție, țara Mea! Îți dau din cer. Dau să-l deprind pe român să se bucure de Dumnezeul lui, de Mine și de sfinții Mei și ai lui, căci mama Mea Fecioara are sub mâna ei acest meleag și neam și depărtează pe orice vrăjmaș sau ispită care ar da s-o prindă sub îngenunchere pe România, și iată, duce luptă cerul pentru tine, popor și pământ român, și nu stă Domnul din lucrul Său pe meleagul tău, căci între frați se duce luptă ascunsă frate contra frate și nici vorbă de slujire frate pentru frate, iar lupta este ca între viețuitoarele sălbatice care ucid ca să mănânce, și iată, trebuie veghe din cer dacă așa stau lucrurile.
 
@@ -46,6 +44,4 @@ Așadar, trebuie inimă înfrântă și smerită, trebuie credință și iertare
 
 Acum pace ție, România Mea! Nu te las sub greu, și iată, cuvintez ca să repar răul și să împlinesc slava Mea de peste tine, căci tu trebuie să fii frumoasa Mea pentru slava Mea. Te voi ține tot timpul sub cuvântul Meu cel pentru tine, iar vrăjmașii tăi vor slăbi și te vor slăvi și ei ca pe aleasa Mea.
 
-Pace ție, țara Mea, pace ție! Mereu voi așeza de deasupra, din nor, cuvântul Meu peste tine și te voi ocroti cu el și te voi găti frumoasă și tot mai frumoasă și vei fi măreață și vei avea nume nou: țara luminii peste neamurile pământului, țara strălucirii va fi numele tău. Amin, amin, amin.
-
-[/legatura_la_teme]
+Pace ție, țara Mea, pace ție! Mereu voi așeza de deasupra, din nor, cuvântul Meu peste tine și te voi ocroti cu el și te voi găti frumoasă și tot mai frumoasă și vei fi măreață și vei avea nume nou: țara luminii peste neamurile pământului, țara strălucirii va fi numele tău. Amin, amin, amin.[/legatura_la_teme]

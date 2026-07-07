@@ -21,7 +21,7 @@ Allez maintenant et préparez le lieu de rencontre et la voie jusque là et votr
 
 Oh, qu’elle soit bénie toute l’œuvre que vous préparez et tout le moment de rencontre, accompagnée des noëls de la naissance du Seigneur, toute la douce fête que vous allez offrir à ceux qui se rassembleront et qui goûteront de leurs cœurs le sentiment saint de la fête de Noël! C’est Moi le Noël, c’est Moi le Christ, c’est Moi Celui Qui vient en parole sur la terre à vous, et Je prépare la gloire de Ma venue visible, car Je viens bientôt, Je viens car c’est ainsi qu’il est écrit, et c’est pour cela que Je viens.
 
-Précieux et saint s’élève vers le ciel le soir de veille sainte, quand vous vous tiendrez au milieu de ceux qui se rassemblent dans la ville pour attendre votre venue et vos noëls pour leur joie, et les anges écrieront et témoigneront entre ceux du ciel, tout comme sur la terre, on va témoigner du long en large la fête de Noël dans la ville de Pucioasa, et de vous comme distributeurs de joies en esprit de fête sainte, le soir de Noël. [/legatura_la_teme]
+Précieux et saint s’élève vers le ciel le soir de veille sainte, quand vous vous tiendrez au milieu de ceux qui se rassemblent dans la ville pour attendre votre venue et vos noëls pour leur joie, et les anges écrieront et témoigneront entre ceux du ciel, tout comme sur la terre, on va témoigner du long en large la fête de Noël dans la ville de Pucioasa, et de vous comme distributeurs de joies en esprit de fête sainte, le soir de Noël.[/legatura_la_teme]
 
 Qu’il se passe ainsi, Mes fils, et paix à vous et à la fête avec vous de ceux qui habitent cette ville, et qui porteront longtemps ensuite ce moment de joie, ce don saint! Amen.
 
@@ -37,7 +37,7 @@ Oh, fils chrétien, Je pleure après toi maintenant, car Je t’ai nourri du cie
 
 Je parlais avec le Père sur la terre, Je parlais de la terre, et le Père parlait avec Moi du ciel et Il S’est laissé entendu à Mon Baptême dans le Jourdain, et sur la montagne ensuite, quand le Père M’a glorifié en grande lumière devant Mes disciples, oh, et Je Me consolais en parlant avec Lui, et Moi J’étais entendu par les disciples lorsque Je parlais avec le Père pour Moi et pour eux.
 
-Oh, fils, oh, chrétiens, parlez vous aussi avec le Père, parlez vous aussi avec Moi, avec les saints, avec les anges, avec Ma mère la Vierge, parlez avec ceux du ciel, les fils. Nourrissez vos âmes, nourrissez votre homme qui va être après la vie de la chair. Faites-vous du repos soigné à temps, oh, car vous ne savez pas quand Il vient le Seigneur, et qu’allez-vous faire si l’âme n’a pas de biens pour se tenir devant le Seigneur, avec des richesses, avec du vêtement, et pas nu? [/legatura_la_teme]
+Oh, fils, oh, chrétiens, parlez vous aussi avec le Père, parlez vous aussi avec Moi, avec les saints, avec les anges, avec Ma mère la Vierge, parlez avec ceux du ciel, les fils. Nourrissez vos âmes, nourrissez votre homme qui va être après la vie de la chair. Faites-vous du repos soigné à temps, oh, car vous ne savez pas quand Il vient le Seigneur, et qu’allez-vous faire si l’âme n’a pas de biens pour se tenir devant le Seigneur, avec des richesses, avec du vêtement, et pas nu?[/legatura_la_teme]
 
 J’ai bâti l’homme pour lier en œuvre par lui les deux créations de Dieu, le ciel et la terre, et voilà, quand on fête sur la terre un saint, dans le ciel aussi il y a la fête, et du ciel jusqu’à la terre s’étend la fête, et encore, de la terre jusqu’au ciel, puisque la gloire de Mes saints est grande et Je viens avec eux dans Ma venue, tel qu’il est écrit que Je vienne.
 
@@ -55,7 +55,7 @@ Et [legatura_la_teme id_capitol="3" id_subcapitol="3"]en ce jour Mon prélat Nic
 
 Je sors avec vous vers les hommes, fils de la cité de Ma parole, et beaucoup verront Ma lumière avec vous et en vous. Je Me montre aux hommes en les aimants par vous, et en les apprenants l’amour et le ciel avec eux sur la terre.
 
-Qu’il périsse le péché de la terre et qu’ils restent les hommes, pour se faire fils de Dieu, qu’ils se fassent amour, tel que Moi, Je le suis! [/legatura_la_teme]
+Qu’il périsse le péché de la terre et qu’ils restent les hommes, pour se faire fils de Dieu, qu’ils se fassent amour, tel que Moi, Je le suis![/legatura_la_teme]
 
 Je vais avec vous entre les hommes, les fils. La gloire du Père est avec Nous, et les saints sont en secret et ils sont avec Nous, et paix à vous, fils qui témoignez de Dieu!
 

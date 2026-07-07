@@ -8,9 +8,7 @@ audio: https://noul-ierusalim.ro/audio/1846.mp3
 audio_file: 26.07.05.mp3
 ---
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-În numele Tatălui și al Fiului și al Sfântului Duh, așa vine cuvântul lui Dumnezeu, cu norii vine și se așează în cartea sa pe plaiul pământului și neamului român, și așa vin Eu și veghez zi și noapte soarta acestui neam, și am nume mare scris în Scripturi: *Cuvântul lui Dumnezeu*.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]În numele Tatălui și al Fiului și al Sfântului Duh, așa vine cuvântul lui Dumnezeu, cu norii vine și se așează în cartea sa pe plaiul pământului și neamului român, și așa vin Eu și veghez zi și noapte soarta acestui neam, și am nume mare scris în Scripturi: *Cuvântul lui Dumnezeu*.
 
 Eu sunt, și-Mi așez străjerii înaintea Mea ca să intru în carte în cetatea cuvântului Meu și ca să lucrez prin cuvânt și ca să-l împlinesc apoi ca la facerea lumii, când mai întâi cuvântam, iar apoi împlineam și se ivea facerea cea văzută a celor cuvântate de Dumnezeu să se ivească la vedere.
 
@@ -46,9 +44,7 @@ Nu căutați încă să vă așezați voi în locul celor pe care i-ați doborâ
 
 Așadar, iată cuvânt hotărâtor, rostit de gura lui Dumnezeu: Lăsați săgețile jos! Vine prăbușirea celor ce au lucrat prăbușirea și robia neamului român, și aceasta este ceea ce aduce de știre cuvântul lui Dumnezeu, care ocrotește prin cuvânt pe cei care iubesc și se smeresc în acest timp pentru cârmuirea neamului român.
 
-Eu sunt *Cuvântul lui Dumnezeu*, Eu sunt Cel ce v-am grăit vouă acum. Amin, amin, amin.
-
-[/legatura_la_teme]
+Eu sunt *Cuvântul lui Dumnezeu*, Eu sunt Cel ce v-am grăit vouă acum. Amin, amin, amin.[/legatura_la_teme]
 
 ***
 

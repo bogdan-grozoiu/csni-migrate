@@ -24,7 +24,7 @@ O, de douăzeci și cinci de ani Mi-am așezat petrecerea Mea cu voi în mijlocu
 
 O, pace peste cetatea cuvântului Meu, fiilor! Pace vouă, și peste cetate pace, fiilor! Amin.
 
-Se binecuvintează și se sfințește lucrul Meu întocmit prin mânuțele voastre la vedere în mijlocul cetății! Cuvântul Meu sfințește și pecetluiește și dăruiește spre folos celor din cetate aceste două semne binecuvântate. [/legatura_la_teme]
+Se binecuvintează și se sfințește lucrul Meu întocmit prin mânuțele voastre la vedere în mijlocul cetății! Cuvântul Meu sfințește și pecetluiește și dăruiește spre folos celor din cetate aceste două semne binecuvântate.[/legatura_la_teme]
 
 Să fie duh de pace și de credință peste cetatea cuvântului Meu, în care vă am pe voi supușii Mei, ucenicii Mei în mijlocul cetății.
 

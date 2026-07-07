@@ -23,9 +23,7 @@ Voilà, Je dis en ce jour un grand secrets et Je dis: Toutes les fois qu’il es
 
 Oh, il est petit l’homme. Mais il se croit grand, si grand qu’il lui arrive se croire plus grand que Dieu, plus justifié de montrer sa grandeur, le pauvre grand homme. Mais l’homme est tout petit, oh, et il y en a eu beaucoup le long du temps à qui Moi, le Seigneur, J’ai montré à leur époques, combien les grands sont petits et impuissants pour les hommes et pour eux-mêmes, alors qu’ils se donnent des airs de grandeur!
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Oh, Mon pays roumain, tu es la maison et la table de la parole de Dieu en ce temps de veille du ciel au-dessus de la terre, lorsque Moi, le Seigneur, Je viens en parole d’auprès du Père à l’homme pour Me préparer l’arrivée glorieuse de Mon retour visible, quand Je Me montrerai avec les dizaines de milliers de saints, comme il est écrit , pour que Je donne à chacun selon son action, pour que Je bénisse ceux qui M’ont aimé et M’ont suivi et M’ont servi, et pour que Je M’éloigne de ceux qui M’ont chassé et M’ont méprisé avec infidélité.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Oh, Mon pays roumain, tu es la maison et la table de la parole de Dieu en ce temps de veille du ciel au-dessus de la terre, lorsque Moi, le Seigneur, Je viens en parole d’auprès du Père à l’homme pour Me préparer l’arrivée glorieuse de Mon retour visible, quand Je Me montrerai avec les dizaines de milliers de saints, comme il est écrit , pour que Je donne à chacun selon son action, pour que Je bénisse ceux qui M’ont aimé et M’ont suivi et M’ont servi, et pour que Je M’éloigne de ceux qui M’ont chassé et M’ont méprisé avec infidélité.
 
 Oh, peuple roumain, Je renforce la garde aux frontières tel que J’ai promis, et toi, rends-toi voix de prière vers Dieu, pour toi et pour tous les nations de la terre, et surtout pour le peuple chrétien de la terre de partout, le peuple de Dieu, et qui doit ressembler à Dieu dans la foi, la charité et dans l’esprit de la paix.
 
@@ -39,9 +37,7 @@ Pour l’église et le troupeau chrétien du peuple roumain, Je renforce leur ve
 
 Oh, tant que tu aimeras Ma parole sur toi, d’autant plus tu brilleras, Mon église du milieu de ce peuple, choisi pour la fin de temps, pour Dieu. Oh, peuple chrétien, prend grand soin, que c’est le temps du travail par la foi et c’est le temps qu’Il travaille le Seigneur, car on a gâté partout les ordres saints sur les hommes et on a besoin d’exhortation à la veille et à la sainteté, car le temps c’est cela qu’il demande et pas autre chose.
 
-Je dis de nouveau: Paix sur la terre, paix du ciel sur la terre! Oh, paix à vous, tous les peuples! Paix à vous, à ceux sans paix, car il est temps que vous veilliez!
-
-[/legatura_la_teme]
+Je dis de nouveau: Paix sur la terre, paix du ciel sur la terre! Oh, paix à vous, tous les peuples! Paix à vous, à ceux sans paix, car il est temps que vous veilliez![/legatura_la_teme]
 
 Paix à vous dirigeants des peuples, et de la paix entre vous! La guerre n’est pas de Dieu, mais elle est ennemie de Dieu et de l’homme. De Dieu c’est la paix qui vient. Oh, paix à vous, de la foi et de la paix, la croix et la victoire par la croix! Heureux les peuples qui ont la croix sur leur front, le signe du Fils de l’Homme, le signe de la victoire avec Dieu!
 

@@ -28,7 +28,7 @@ Fiilor, atât rămâne întru împărăţia Mea: Avraam.
 
 ... Uite ce vă învaţă Domnul: când veniţi spre ieslea Mea, lăsaţi glumele şi toate lucrurile ce vă pot aduce păcate. Fiilor, ştiu că sunteţi tineri, dar fericită este nunta şi patul neîntinat. Iacob a slujit ani întregi pentru a câştiga mireasa sa. Crezi? Acum, cu un zâmbet al unui tânăr, ai câştigat mireasa, dar nu este de la Dumnezeu acest lucru. Vedeţi că multul omenirii cu un zâmbet a stricat pământul. Sunt drumurile pline de curvie. Acest lucru nu a fost de când e veacul, şi am profeţit dinainte că fericit este creştinul care trece peste trup de femeie şi nu se atinge de el. Vai de acela care s-a întinat cu curvia de azi!
 
-[legatura_la_teme id_capitol="6" id_subcapitol="2"]... Adevăr vă spun că mulţi dintre voi nu veţi primi moartea, ci cu trupul veţi primi pe Domnul. [/legatura_la_teme]
+[legatura_la_teme id_capitol="6" id_subcapitol="2"]... Adevăr vă spun că mulţi dintre voi nu veţi primi moartea, ci cu trupul veţi primi pe Domnul.[/legatura_la_teme]
 
 ... Fiilor, puneţi mâna pe carte. Nu s-o citeşti, că mulţi o citesc, dar s-o înveţi, s-o pricepi, s-o înţelegi. Fiule, fă-ţi socoteala, şi dacă nu ştii s-o faci, cere la care o ştie; şi dacă ai învăţat, fereşte-te de mândrie şi de a înstrăina învăţătura.
 

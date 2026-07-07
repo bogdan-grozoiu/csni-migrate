@@ -18,7 +18,7 @@ audio_file:
 
 ... Trupul acesta este o mână de ţărână, pe care l-am purtat prin foc şi prin apă şi prin mare şi prin tot felul de durere fără mângâiere.
 
-[legatura_la_teme id_capitol="2" id_subcapitol="2"]... Cununa pentru fapte nu a primit-o nimeni. Se duc sfinţii şi întreabă: *„Mai e mult, Doamne?“. „Mergeţi la locurile voastre, căci până nu vin cei din necazul cel mare, nu vom împărţi darurile.“* Aşa vă spune Domnul: tu vei fi cel din necazul cel mare, pe care te aşteaptă cerul cu pompă. [/legatura_la_teme]
+[legatura_la_teme id_capitol="2" id_subcapitol="2"]... Cununa pentru fapte nu a primit-o nimeni. Se duc sfinţii şi întreabă: *„Mai e mult, Doamne?“. „Mergeţi la locurile voastre, căci până nu vin cei din necazul cel mare, nu vom împărţi darurile.“* Aşa vă spune Domnul: tu vei fi cel din necazul cel mare, pe care te aşteaptă cerul cu pompă.[/legatura_la_teme]
 
 ... Am văzut la mare preoţi în pieile goale. Plângeţi şi vă tânguiţi, că acela nu are voie în pielea goală. Pe acela nu-l mai ascultă Dumnezeu.
 
@@ -30,6 +30,6 @@ Spune, creştine, ce auzi de la Mine? Nu e îngăduit preotului să-şi părăse
 
 [legatura_la_teme id_capitol="6" id_subcapitol="3"]... Cine bea alcool, acela să nu se aştepte la bine. Cine a pus o picătură de alcool pe masa sa, nu zic în gura sa, de la acela a plecat Dumnezeu cu binecuvântarea Sa. Ai văzut pe Domnul bând alcool pe pământ? Dar nu a băut decât apă şi vin. Vin a băut ca să se împlinească ce s-a zis prin prooroci.
 
-Cine pune alcool la pomană, la praznic sau la parastase, nu este primit de Mine. [/legatura_la_teme]
+Cine pune alcool la pomană, la praznic sau la parastase, nu este primit de Mine.[/legatura_la_teme]
 
 Multe fiinţe au încercat şi vor mai încerca să ispitească lucrarea Mea, dar nu vor putea. Multe lucrări sunt sfinte, dar vei auzi de proorocie, că e colo şi e colo. Nu te amăgi, că o fac duhurile rele mai gustoasă şi o laşi pe cea sfântă.

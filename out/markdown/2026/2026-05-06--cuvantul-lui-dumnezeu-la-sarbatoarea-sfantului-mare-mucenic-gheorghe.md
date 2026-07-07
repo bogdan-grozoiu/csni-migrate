@@ -8,9 +8,7 @@ audio: https://noul-ierusalim.ro/audio/1835.mp3
 audio_file: 26.05.06.mp3
 ---
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Deasupra pământului și neamului român stă Dumnezeu cu oștirile cerești și îngerești și veghează clipă de clipă și păstorește cu glasul cuvântului Său și desparte la dreapta și la stânga lumina și întunericul, pe cei curați cu inima și cu mâinile la dreapta, iar pe slujitorii minciunii și ai trădării, aleși bob cu bob la stânga și îi arată dușmani ai neamului român și ai lui Dumnezeu pe acest meleag, și iată, Eu, Domnul, Eu sunt Cel ce veghez și lucrez și învederez și dau de știre, căci s-a scris prin îngeri rușinea trădătorilor de neam și de țară în ziua care a trecut, când am stat de veghe cu cei din cer ca să fie scrise numele celor ce sunt de la mijloc dușmani ai neamului român și să se facă cunoscut numărul lor.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Deasupra pământului și neamului român stă Dumnezeu cu oștirile cerești și îngerești și veghează clipă de clipă și păstorește cu glasul cuvântului Său și desparte la dreapta și la stânga lumina și întunericul, pe cei curați cu inima și cu mâinile la dreapta, iar pe slujitorii minciunii și ai trădării, aleși bob cu bob la stânga și îi arată dușmani ai neamului român și ai lui Dumnezeu pe acest meleag, și iată, Eu, Domnul, Eu sunt Cel ce veghez și lucrez și învederez și dau de știre, căci s-a scris prin îngeri rușinea trădătorilor de neam și de țară în ziua care a trecut, când am stat de veghe cu cei din cer ca să fie scrise numele celor ce sunt de la mijloc dușmani ai neamului român și să se facă cunoscut numărul lor.
 
 Și pace poporului cuvântului Meu prin care Îmi așez în carte cuvântul și lucrarea și veghea cea de sus, căci dacă Eu sunt pe pământ cuvânt, Eu sunt lumina care învederez, Eu sunt, și lucrez cuvântând și scriind prin îngeri pe toți slujitorii lui satana, care dau acum să dărâme cârma neamului român, pe toți cei mincinoși și cuprinși de mare teamă din pricina faptelor lor de hoție și trădare și minciună, temându-se ei de lumina care învederează umblând și descoperind și scoțând deasupra lucrarea întunericului, și iată, îngerii Mei au avut lucrarea lor în ziua ce a trecut, și, stând ei alături în casa de sus a țării față în față cu trădătorii de neam, au scris pe toți cei care au fost mituiți cu bani și cu promisiuni vândute pe bani ca să strige toți în cor împotriva celui care stă la cârma gospodăririi țării cu lumina și cu adevărul, și să ceară toți laolaltă strigând: Răstignește-l!
 
@@ -42,6 +40,4 @@ Binecuvintez iubirea celor cu iubire de neam și de țară pe vatra neamului rom
 
 Pace poporului român iubitor de pace și de lumină! Eu sunt lumina lumii, Eu sunt Păstorul Cel bun și păstoresc peste pământ pe limba neamului român și umblu luminând și descoperind minciuna și hoția și tâlhăria și trădarea și pe toți cei care așa lucrează, dar Eu merg pe urma lor și răstorn planurile lor vrăjmașe din mijlocul acestui neam.
 
-Rămân cuvânt de Păstor peste tine, popor român. Am nume nou și mare acum, la sfârșit de timp, și cu el am putere multă și lucrez cu răbdare și cu glas duios, căci sunt Dumnezeul neamului român, și numele Meu se cheamă *Cuvântul lui Dumnezeu*, Care iarăși vine, și totul se va înnoi în lumină precum este scris. Amin, amin, amin.
-
-[/legatura_la_teme]
+Rămân cuvânt de Păstor peste tine, popor român. Am nume nou și mare acum, la sfârșit de timp, și cu el am putere multă și lucrez cu răbdare și cu glas duios, căci sunt Dumnezeul neamului român, și numele Meu se cheamă *Cuvântul lui Dumnezeu*, Care iarăși vine, și totul se va înnoi în lumină precum este scris. Amin, amin, amin.[/legatura_la_teme]

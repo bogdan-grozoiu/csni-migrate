@@ -8,7 +8,7 @@ audio:
 audio_file: 
 ---
 
-[legatura_la_teme id_capitol="3" id_subcapitol="4"]... În numele Tatălui şi al Fiului şi al Sfântului Duh, amin. Domnul Iisus Hristos a luat de pe pământ scaunul de împărăţie tuturor împăraţilor pământului. Dacă mai doreşte cineva să stea în împărăţia sa, să stea cum a stat Domnul, cu mâinile întinse. Nu de scaun este vorba, ci de darul de împărat pe care l-a luat Sfânta Treime. Vine o păsărică din cer să fie împărat pe pământ. Da, da, vine. [/legatura_la_teme]
+[legatura_la_teme id_capitol="3" id_subcapitol="4"]... În numele Tatălui şi al Fiului şi al Sfântului Duh, amin. Domnul Iisus Hristos a luat de pe pământ scaunul de împărăţie tuturor împăraţilor pământului. Dacă mai doreşte cineva să stea în împărăţia sa, să stea cum a stat Domnul, cu mâinile întinse. Nu de scaun este vorba, ci de darul de împărat pe care l-a luat Sfânta Treime. Vine o păsărică din cer să fie împărat pe pământ. Da, da, vine.[/legatura_la_teme]
 
 ... Port în mână un steguleţ pe care scrie: *„Sfârşitul tuturor“.* De când M-am născut am vestit acest cuvânt, această veste. Să nu creadă cineva că e minciună acest cuvânt. Nu a rămas sfânt sau înger în cer să nu vină cu mătura să măture calea voastră; mai ales proorocii, care mătură să veniţi mai curând.
 

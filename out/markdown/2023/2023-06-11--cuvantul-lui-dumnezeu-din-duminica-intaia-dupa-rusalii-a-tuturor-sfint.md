@@ -28,9 +28,9 @@ Vă dăm mângâiere vouă. În numele Tatălui și al Fiului și al Sfântului 
 
 Iată, se ridică acum aici cerere de iertare de la Tatăl a celor de acum două mii de ani care M-au alungat de pe pământ, și a celor de azi care iarăși M-au prigonit ca și cei de atunci, căci Eu am fost și sunt acest cuvânt de dor cu care Mă las peste pământ prin purtătorii Mei, prin cei mai mici ucenici ai lui Verginica.
 
-Vă dăruim acum cămășuțe albe de in ca și ale sfinților Mei, ca și cămășuța Mea, ca să puteți sta înaintea jertfelnicului Meu de foc de aici, din cetatea Mea de cuvânt, unde Îmi am scaunul de judecată, căci judecata aceasta pentru voi acum se sfârșește cu iertarea, cu împăcarea cu Tatăl, cu mângâierea cea pentru voi, căci Eu sunt Mângâietor ca și atunci pe cruce când privirea Mea a mângâiat pe cei de sub cruce, dar mai ales pe cel ce M-a dat spre jertfă, căci el apoi a mărturisit învierea Mea peste pământ. Voi ați împlinit și voi în vremea de pe urmă Scriptura prigonirii lui Hristos și a disprețului pe care Mi l-ați dăruit, ca apoi Eu să vin cuvânt și să vă fiu Mântuitor vouă și celor care M-au împuns în toate vremile lucrărilor Mele cu omul, și acum sunteți dezlegați de tot ce ați greșit lui Dumnezeu și mersului Meu cu trâmbița Mea, iar ea e plină de iubire pentru voi și vă cuprinde acum pe voi ca fii ai lui Dumnezeu. Amin.
+Vă dăruim acum cămășuțe albe de in ca și ale sfinților Mei, ca și cămășuța Mea, ca să puteți sta înaintea jertfelnicului Meu de foc de aici, din cetatea Mea de cuvânt, unde Îmi am scaunul de judecată, căci judecata aceasta pentru voi acum se sfârșește cu iertarea, cu împăcarea cu Tatăl, cu mângâierea cea pentru voi, căci Eu sunt Mângâietor ca și atunci pe cruce când privirea Mea a mângâiat pe cei de sub cruce, dar mai ales pe cel ce M-a dat spre jertfă, căci el apoi a mărturisit învierea Mea peste pământ. Voi ați împlinit și voi în vremea de pe urmă Scriptura prigonirii lui Hristos și a disprețului pe care Mi l-ați dăruit, ca apoi Eu să vin cuvânt și să vă fiu Mântuitor vouă și celor care M-au împuns în toate vremile lucrărilor Mele cu omul, și acum sunteți dezlegați de tot ce ați greșit lui Dumnezeu și mersului Meu cu trâmbița Mea, iar ea e plină de iubire pentru voi și vă cuprinde acum pe voi ca fii ai lui Dumnezeu. Amin.[/legatura_la_teme]
 
-[/legatura_la_teme][legatura_la_teme id_capitol="5" id_subcapitol="6"]Și acum, fiilor slujitori în grădină înaintea Mea, ridicați la Tatăl rugăciune de iertare pentru ei, și apoi binecuvântăm crucea coloană de cruci, o, și petrecem apoi cu serbare dulce toată vremea sărbătorii, iar Eu stau cu voi în cuvânt toată lungimea zilei. [/legatura_la_teme]
+[legatura_la_teme id_capitol="5" id_subcapitol="6"]Și acum, fiilor slujitori în grădină înaintea Mea, ridicați la Tatăl rugăciune de iertare pentru ei, și apoi binecuvântăm crucea coloană de cruci, o, și petrecem apoi cu serbare dulce toată vremea sărbătorii, iar Eu stau cu voi în cuvânt toată lungimea zilei.[/legatura_la_teme]
 
 Și va fi acum așezarea la masă și apoi ridicarea cărții spre Tatăl pentru binecuvântare și împărțirea ei la frați, și iarăși cuvântul Meu stă cu voi și se așează în cartea sa pentru mărturie cu tot ce este de lucrat și de binecuvântat în această zi.
 
@@ -44,7 +44,7 @@ Acum ridicăm privirea spre Tatăl și cerem binecuvântarea cărții și împă
 
 O, Tată, ridică-Te și binecuvintează această carte de mărturie și dă-ne-o nouă ca s-o putem împărți, dar trimite înaintea ei duhul înțelepciunii și al credinței sfinte spre cei ce o vor deschide și o vor cunoaște pe ea.
 
-Și acum, binecuvintează, Tată! [/legatura_la_teme]
+Și acum, binecuvintează, Tată![/legatura_la_teme]
 
 ***
 
@@ -66,7 +66,7 @@ Eu, Domnul, Mă bucur cu voi și de la voi cu zile de nuntă cerească, o, fiilo
 
 Pe creștinii care știu lucrarea cuvântului Meu, și nu au avut așezare în ea după ascultarea cea de sus, îi las la voia lor, îi las să aleagă sau nu pe Dumnezeu ca viață a lor, căci au cuvântul călăuzitor, dar le mai trebuie temerea de Dumnezeu, și mai presus de toate dragostea, o, fiilor, căci dragostea vindecă omul de păcat, numai ea, o, numai ea. Să poți întru totul cu voia lui Dumnezeu, aceasta este o minune mare și mărturisitoare, fiilor. Vremea însă îi încântă cu ale ei pe creștini și mulți s-au dat vremii și Îmi fac lacrimi uitându-Mă la ei cât și-au împrumutat de mult și de multe din ale vremii de azi, căci dacă înainte vreme spuneam: *«Creștine, nu purta ceas la mână, ca să semeni cu lumea și să nu te cunoască Dumnezeu între cei din lume»*, o, acum mai pot să spun așa ceva pentru neasemănarea cu lumea a celui ce știe din cuvântul Meu cu care stau tot timpul pe pământ între creștini și între oameni ca să-Mi fac fii și să-i dau Tatălui crescuți frumos prin cuvântul Meu de Păstor?
 
-Te-au dus, creștine, te-au dus pe tine din fața asemănării tale cu Dumnezeu și cu strămoșii, te-au dus asemănările tale cu lumea, iar dorul Meu de tine te dovedește departe de Dumnezeu. Eu așa strig: Întoarce-te la dragostea dintâi, la ziua când ai cunoscut cuvântul Meu și te-ai zidit prin el și ai venit să fii al Meu apoi, dar iată, acum scazi și tot scazi prin obiceiuri străine de slava Domnului cu tine, creștine, copilul Meu cel de demult al Meu. [/legatura_la_teme]
+Te-au dus, creștine, te-au dus pe tine din fața asemănării tale cu Dumnezeu și cu strămoșii, te-au dus asemănările tale cu lumea, iar dorul Meu de tine te dovedește departe de Dumnezeu. Eu așa strig: Întoarce-te la dragostea dintâi, la ziua când ai cunoscut cuvântul Meu și te-ai zidit prin el și ai venit să fii al Meu apoi, dar iată, acum scazi și tot scazi prin obiceiuri străine de slava Domnului cu tine, creștine, copilul Meu cel de demult al Meu.[/legatura_la_teme]
 
 O, Mi-e dor, și rămân cu dor, și vremea Mă rănește. Acum însă Mă bucur cu bucuria zilei de azi în sărbătoare aici, în grădină, și stau de vorbă cu Verginica Mea acum, cu trâmbița Mea, și-i spun ei:
 

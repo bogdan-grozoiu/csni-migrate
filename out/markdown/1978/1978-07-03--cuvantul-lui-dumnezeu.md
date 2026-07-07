@@ -18,6 +18,6 @@ O, lucrul Meu! O, lucrul mâinii lui Dumnezeu! Răspunde! Răspunde! De eşti fu
 
 O, lună şi soare, nu aţi văzut pe acela pe care-l strig? Luminează, văzduhule, pământul, întunericul, ca să găsesc lucrul care-Mi trebuieşte.
 
-*„N-oi fi eu, şi nu mă mai cunoaşte Dumnezeu? N-oi fi eu, şi nu mă mai iubeşte Dumnezeu? N-oi fi eu, şi nu voi şti răspunsul Său?“* [/legatura_la_teme]
+*„N-oi fi eu, şi nu mă mai cunoaşte Dumnezeu? N-oi fi eu, şi nu mă mai iubeşte Dumnezeu? N-oi fi eu, şi nu voi şti răspunsul Său?“*[/legatura_la_teme]
 
 ... Tată, Dumnezeu vă spune astăzi: e păcat să mai fac semnul crucii pentru fiece în acest veac. E păcat şi de lună şi de soare să mai stea în veacul acesta. E păcat, că totul s-a întinat şi s-a stricat. Dumnezeu nu mai e pe nici o lucrare. S-a şters numele Său, că dacă nu se ştergea, se ivea lucrul care trebuia să servească la căutarea dumnezeiască.

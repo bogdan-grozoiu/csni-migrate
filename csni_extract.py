@@ -263,6 +263,48 @@ def _redistribute_emphasis(body_html):
     return body_html
 
 
+_THEME_CLOSE = "[/legatura_la_teme]"
+
+
+def _tighten_theme_shortcodes(paras):
+    """Make each theme-link shortcode hug the text it wraps at paragraph edges.
+
+    A shortcode must open flush against its first word and close flush against
+    its last word, but the source scatters whitespace and block tags (</p>,
+    <br>, </span>) between the <a>/</a> and the text. Intra-paragraph slack is
+    squeezed by regex in the paragraph loop; here we handle the shortcode left
+    marooned at a paragraph boundary by a </p>: a close that *begins* a
+    paragraph belongs to the end of the previous one, and an open that *ends* a
+    paragraph belongs to the start of the next one. We move only the shortcode
+    token across the break, never merging the paragraphs on its far side.
+    """
+    # A close at the head of a paragraph -> tail of the previous paragraph.
+    joined = []
+    for p in paras:
+        if p.startswith(_THEME_CLOSE) and joined:
+            joined[-1] += _THEME_CLOSE
+            rest = p[len(_THEME_CLOSE):].lstrip()
+            if rest:
+                joined.append(rest)
+        else:
+            joined.append(p)
+    # An open at the tail of a paragraph -> head of the next paragraph. Anchor
+    # at the end: a paragraph may hold earlier shortcodes (e.g. a preceding
+    # close, `…word.[/legatura_la_teme][legatura_la_teme …]`), so only the
+    # trailing open — the one orphaned from its text by a </p> — is moved.
+    out = []
+    for i, p in enumerate(joined):
+        m = re.search(r"\[legatura_la_teme[^\]]*\]$", p)
+        if m and i + 1 < len(joined):
+            head = p[: m.start()].rstrip()
+            if head:
+                out.append(head)
+            joined[i + 1] = m.group(0) + joined[i + 1]
+        else:
+            out.append(p)
+    return out
+
+
 def html_to_md(body_html):
     # Resolve anchors first, on the whole body: a subcapitole link can span
     # several <p> blocks, so it must be handled before paragraph splitting.
@@ -288,9 +330,15 @@ def html_to_md(body_html):
         s = strip_tags(s)
         s = html.unescape(s)
         s = re.sub(r"[ \t]+", " ", s).strip()
+        # A theme shortcode must sit flush against the text it wraps, but the
+        # source leaves whitespace between the word and the <a>/</a> (e.g.
+        # `a toate. </a>`), and _emphasize hoists a space out of `apoi. </i>`
+        # to the same spot. Squeeze it off both the open and the close.
+        s = re.sub(r"\s+\[/legatura_la_teme\]", "[/legatura_la_teme]", s)
+        s = re.sub(r"(\[legatura_la_teme[^\]]*\])\s+", r"\1", s)
         if s:
             paras.append(s)
-    return "\n\n".join(paras)
+    return "\n\n".join(_tighten_theme_shortcodes(paras))
 
 
 def write_markdown(year, iso, cheie, title, audio, audio_file, body):

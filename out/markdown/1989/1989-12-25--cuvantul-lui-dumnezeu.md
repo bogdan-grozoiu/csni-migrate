@@ -20,4 +20,4 @@ Am văzut cursele întinse pentru ca iubitorii Mei să fie prinşi, dar Eu, Domn
 
 ... Românie, Românie, ţara Mea sfântă şi iubită! Ce te copleşise! Ce te păcălise!
 
-Fiţi atenţi, că acum este prag de sfârşit de veac. România va deveni Noul Ierusalim şi veţi vedea cu ochii că Dumnezeu a fost şi este cu voi. [/legatura_la_teme]
+Fiţi atenţi, că acum este prag de sfârşit de veac. România va deveni Noul Ierusalim şi veţi vedea cu ochii că Dumnezeu a fost şi este cu voi.[/legatura_la_teme]

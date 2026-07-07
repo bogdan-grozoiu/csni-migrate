@@ -15,9 +15,7 @@ Oh, gloire entre ceux du ciel, à Dieu, et paix sur la terre entre les hommes! C
 
 Oh, paix à toi, petit peuple, cueilli de la nation roumaine à Ma parole, qui vient avec les nuages au-dessus de la terre de ce peuple, choisi du Père il y a deux mille ans pour l’avoir comme demeure de Ma venue en parole sur la terre à la fin de temps!
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Paix à toi, peuple roumain, paix à toi du milieu de ce tout petit peuple, en fête de mariage depuis presque soixante-dix ans, avec les saints à sa table, avec Dieu sur elle! J’ai cité de venue au milieu de toi, peuple roumain, et J’ai un peuple et Je Me tiens à table avec lui maintenant, en jour de fête pour Ma naissance sur la terre.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Paix à toi, peuple roumain, paix à toi du milieu de ce tout petit peuple, en fête de mariage depuis presque soixante-dix ans, avec les saints à sa table, avec Dieu sur elle! J’ai cité de venue au milieu de toi, peuple roumain, et J’ai un peuple et Je Me tiens à table avec lui maintenant, en jour de fête pour Ma naissance sur la terre.
 
 C’est en grand secret que Je suis venu il y a deux mille ans, secret découvert du Père à une poignée d’hommes, qui ont porté le secret de Ma venue, l’incarnation et Ma naissance de mère Vierge, oh, et comment auraient-ils pu croire ceux d’alors cette vérité mystérieuse? Mais ensuite beaucoup de peuple l’ont cru, car le mystère a travaillé par lui-même la vérité de Ma venue du Père, qui s’est accomplie par Ma mort et Ma résurrection par la croix, car J’ai vécu avec les hommes sur la terre trente-trois ans et Je suis rentré ensuite au Père avec toute la victoire, accomplie selon Son projet.
 
@@ -51,9 +49,7 @@ Je vais secouer de toute la terre l’œuvre contraire à Dieu, avec tous les ho
 
 Quand J’ai établi le premier roi sur toi, maintenant, à la fin de temps, Mon pays, J’ai pris un rejeton de grande origine, un fils bon pour toi, Je l’ai amené et il a embrassé ta loi chrétienne avec toute sa maison ensuite dans le temps, par les descendants, car J’ai voulu que ce soit symbole impérial sur toi, pour qu’ensuite Je te donne le royaume des cieux, sur lequel c’est Moi l’Empereur de la part de Mon Père. Amassez, donc, beaucoup d’amour dans le ciel, fils roumains, car l’amour de Dieu vous tire à Lui et le Père vous accorde l’empire.
 
-J’ai payé de Ma vie sur la croix pour te donner le royaume du Père, oh, Mon église et J’ai sur Mon corps en témoignage les empreintes des clous par lesquels J’ai été fixé sur la croix, et leurs plaies ne se sont plus fermées. C’est cela que satan verra et il sera effrayé par un si grave péché, travaillé depuis deux mille ans contre Celui mis sur la croix et cloué sur elle, car ce péché va humilier le cœur de tous Mes adversaires durant deux mille ans, même s’ils ne pourront pas s’incliner et recevoir leur pardon.
-
-[/legatura_la_teme]
+J’ai payé de Ma vie sur la croix pour te donner le royaume du Père, oh, Mon église et J’ai sur Mon corps en témoignage les empreintes des clous par lesquels J’ai été fixé sur la croix, et leurs plaies ne se sont plus fermées. C’est cela que satan verra et il sera effrayé par un si grave péché, travaillé depuis deux mille ans contre Celui mis sur la croix et cloué sur elle, car ce péché va humilier le cœur de tous Mes adversaires durant deux mille ans, même s’ils ne pourront pas s’incliner et recevoir leur pardon.[/legatura_la_teme]
 
 On a jour de fête de naissance, fils de la cité de Ma parole, et maintenant nous faisons place aux Noëls et à la table de fête sainte, car nous avons des hôtes chanteurs de Noëls, et Je vais ensuite plus loin avec Ma parole et avec Ma mère la Vierge en œuvre de parole, car Nous sommes fêtés, Moi et elle par ceux du ciel et ceux de la terre, qui se tiennent comme dans le ciel au temps des fêtes, et par cette obéissance elles viennent sur la terre des bénédictions, de la grâce et garde sainte sur eux, grande lumière en ce temps de si grande obscurité et tant de peuple sans Dieu sur la terre.
 

@@ -12,4 +12,4 @@ audio_file:
 
 *Ştiţi cum să vă fie cuvintele? Dulci ca mierea, şi să vă uniţi şi să vă iubiţi ca albinele în stup; cum lucrează ele şi muncesc şi aleargă toată ziulica, din floare în floare, şi din munca lor iese numai unire şi dragoste şi miere dulce, de se îndulcesc toţi care mănâncă. Fiţi deosebiţi de lume şi la purtare, şi la cuvinte, şi la post, şi la hrană. Fii deosebit cu totul de lume, ca să te cunoască Domnul când va veni să aleagă oile din capre şi neghina din grâu.*
 
-[legatura_la_teme id_capitol="2" id_subcapitol="4"]*... O, zice Domnul:* „Verginico, vei merge înapoi pe pământ şi întări-voi trâmbiţa Mea prin mlădiţa crescută dintr-o rădăcină cu tine, pentru pregătirea poporului pe care l-ai câştigat“. [/legatura_la_teme]
+[legatura_la_teme id_capitol="2" id_subcapitol="4"]*... O, zice Domnul:* „Verginico, vei merge înapoi pe pământ şi întări-voi trâmbiţa Mea prin mlădiţa crescută dintr-o rădăcină cu tine, pentru pregătirea poporului pe care l-ai câştigat“.[/legatura_la_teme]

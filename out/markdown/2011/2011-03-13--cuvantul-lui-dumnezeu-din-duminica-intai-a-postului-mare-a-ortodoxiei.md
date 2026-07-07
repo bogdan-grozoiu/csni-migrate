@@ -34,8 +34,8 @@ Eu, Domnul, stau în mijlocul unui popor mititel, pregătit de Mine în zilele a
 
 O, pace vouă, slujitori de biserici, dar primiţi cuvântul lui Dumnezeu în voi, fiilor, ca să puteţi şi pacea Mea s-o primiţi, căci Eu vă dau nu cum vă dă lumea şi duhul ei, şi voi privi la voi şi voi măsura acum înţelepciunea voastră şi apoi credinţa voastră, fiilor! V-aş învăţa mult şi multe, şi voi face aceasta îndată ce voi vedea că luaţi spre lucrare cuvântul Meu în voi. Opriţi lucrarea lui antichrist, căci vă dau putere să puteţi aceasta şi să vă scuturaţi de cursa lui cea tainic întinsă peste neamul cel creştinesc, căci omul fărădelegii are ce are cu cei tari, cu cei ce cred lui Dumnezeu, şi prin care Eu voi birui, şi vor birui şi ei în numele Meu, iar partea lor va fi cu cei credincioşi, va fi a celor credincioşi. Amin.
 
-O, înapoia Mea, satano, înapoia Mea antichrist! Du-te în pământ pustiu şi lasă neamul creştinesc, că este neamul lui Dumnezeu Cel veşnic viu! Fii cuminte, că Eu, Domnul Iisus Hristos Îţi poruncesc aceasta ţie, iar tu va fi să asculţi aşa. Amin.
+O, înapoia Mea, satano, înapoia Mea antichrist! Du-te în pământ pustiu şi lasă neamul creştinesc, că este neamul lui Dumnezeu Cel veşnic viu! Fii cuminte, că Eu, Domnul Iisus Hristos Îţi poruncesc aceasta ţie, iar tu va fi să asculţi aşa. Amin.[/legatura_la_teme]
 
-[/legatura_la_teme]O, pace ţie, popor al cuvântului Meu, în mijlocul căruia grăiesc ţie şi celor spre care se îndreaptă el spre lucrare! Amin.
+O, pace ţie, popor al cuvântului Meu, în mijlocul căruia grăiesc ţie şi celor spre care se îndreaptă el spre lucrare! Amin.
 
 Pace şi ţie, biserică a neamului român, căci Eu te dăruiesc cu credinţă sfântă, spre biruinţa ta cu Mine în zilele acestea şi spre slava Mea, slava lui Dumnezeu în mijlocul tău! Amin, amin, amin.

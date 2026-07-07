@@ -15,7 +15,7 @@ Come to your senses, children, for we will climb the mountain, up there, with ma
 
 Wake up! Do not be drunk in this time. Oh, you drunkard man of this time, who cast your own eyes and make them dirty! It is better for you to get them out than to remain in the world, for this is a crazy time.
 
-[legatura_la_teme id_capitol="8" id_subcapitol="5"]I tell you once more that we will go up the mountain with many sheep and we will hear what we have never heard, and will see what we have never seen, and Christians will be as many as the stars, there where we will be. [/legatura_la_teme]
+[legatura_la_teme id_capitol="8" id_subcapitol="5"]I tell you once more that we will go up the mountain with many sheep and we will hear what we have never heard, and will see what we have never seen, and Christians will be as many as the stars, there where we will be.[/legatura_la_teme]
 
 I have come down on earth to build a house and to enrich you, for this work that I do with you is great. Sons, pray so that you may not lose it, for many come to Me empty and ask Me to give to them.
 

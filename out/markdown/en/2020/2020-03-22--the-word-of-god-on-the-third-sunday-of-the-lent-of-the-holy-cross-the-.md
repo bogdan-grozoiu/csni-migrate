@@ -23,9 +23,7 @@ Oh, the same is now, I am leaving the word and exhortation over the Christian fl
 
 However, I, the Lord, wait for the man to call out to Me so that I may come. Even if there are some who do not believe in God, if they call out to Me in time of trouble with faith and with their entire hearts, then I come and show My glory, I come and make deliverance; I come, for it is written for Me to come at the calling of the man’s heart.
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Oh, Romanian people, oh, My Orthodox country, here it is what I am saying now to you: That is why, I, the Lord, still keep the earth; for the countries which have the Orthodoxy as their church, for the Orthodox church and those who are obedient in it are My bride, for I am the Bridegroom and I have a bride, and all the saints of the Orthodoxy have been My bride for two thousand years, My flock, My rest on earth, My house and all is holy ordinance, only for it to be kept with holiness for the holy life is from God, and sin is from the devil, but there is repentance for sin, and behold, I call out to the sons of the Orthodox church and first I am addressing to them: Repent, for the kingdom of the heavens is with you and you know how it is, and you have to fulfill it with your holy life on earth among people!
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Oh, Romanian people, oh, My Orthodox country, here it is what I am saying now to you: That is why, I, the Lord, still keep the earth; for the countries which have the Orthodoxy as their church, for the Orthodox church and those who are obedient in it are My bride, for I am the Bridegroom and I have a bride, and all the saints of the Orthodoxy have been My bride for two thousand years, My flock, My rest on earth, My house and all is holy ordinance, only for it to be kept with holiness for the holy life is from God, and sin is from the devil, but there is repentance for sin, and behold, I call out to the sons of the Orthodox church and first I am addressing to them: Repent, for the kingdom of the heavens is with you and you know how it is, and you have to fulfill it with your holy life on earth among people!
 
 And I am calling out to all the others: Repent and ask from the Lord time for repentance and ask for wisdom from above over you, too, so that it may be revealed to you the right way, the way of My kingdom with man, and from which many have been turning away, in the last one thousand years, since My resurrection from the dead.
 
@@ -65,6 +63,4 @@ The synod of those forty martyrs, crowned for the heavenly hosts in the lake of 
 
 Peace to you, peace, Romanian sons! Peace to the right and faithful people all over the earth!
 
-Peace to you, all peoples, if you seek after God, for the Lord waits to be faith everywhere, all over the earth for Him! Amen, amen, amen.
-
-[/legatura_la_teme]
+Peace to you, all peoples, if you seek after God, for the Lord waits to be faith everywhere, all over the earth for Him! Amen, amen, amen.[/legatura_la_teme]

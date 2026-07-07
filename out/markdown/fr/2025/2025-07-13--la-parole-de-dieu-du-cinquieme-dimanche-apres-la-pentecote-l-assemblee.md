@@ -9,9 +9,7 @@ audio: https://noul-ierusalim.ro/audio/369fr.mp3
 audio_file: 25.07.13-fr.mp3
 ---
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Voix venue du ciel s’approche encore et encore et parle au-dessus de la terre roumaine.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Voix venue du ciel s’approche encore et encore et parle au-dessus de la terre roumaine.
 
 Encore et encore Je parle du nuage, encore et encore le Seigneur Se laisse en parole au-dessus de toi, Mon pays de noce, Ma Roumanie, car Je suis tendre envers toi et Je suis Pasteur plein de parole au-dessus de toi et Je prends soin de toi, Je t’enveloppe dans Ma tendre parole, afin d’éloigner tout le temps l’œuvre du mauvais esprit qui te guette toujours perfidement, pour te trouver sous la faiblesse et t’extorquer toujours toute ta vigueur, oh, car il ne peut Mon ennemi et le tien se tenir sage, quand il sait et il voit ton sort venu de Dieu, et la gloire que Moi, le Seigneur, Je prépare pour Moi et pour toi, pour qu’ils s’inclinent sous cette gloire des peuples et des rois, des peuples et des langues de la terre, comme il est écrit de la montagne sainte, dont beaucoup vont prendre Mon enseignement et ils apprendront la voie et la marche heureuse, tant heureuse, oh, car ce n’est pour autre chose que le Seigneur vient et prépare Sa gloire sur ta terre, et pour mettre table impériale sur ta terre, et venir avec les troupeaux des saints et avec des jours de noce éternelle, avec les jours de l’éternité, avec le ciel et la terre ensemble en fête tout à fait douce, même si à présent ceux de la terre ne connaissent pas un autre doux pour eux, que la vie avec des plaisirs passagers et tant pécheurs face au Seigneur, Qui vient préparer Son repos sur ton foyer, oh, et pourquoi, donc, pourquoi en toi, pourquoi dans tes jardins, Mon pays?
 
@@ -33,6 +31,4 @@ Et maintenant embrassez-vous avec les deux fils qui sacrifient leur bon pouvoir 
 
 Maintenant, paix et union et bienveillance avec persévérance pour l’esprit de la justice de tout, que celles-là s’installent comme œuvre de ceux qui commencent maintenant la correction des choses tant gâtées si longtemps, oh, et les puissances célestes vont veiller et aider du ciel pour le relèvement du peuple roumain à l’unité, à la foi, au Christ le Pasteur, Qui Se fait parole à travers la terre dans le pays du peuple roumain, où Il exerce Son autorité pastorale maintenant sur Son troupeau.
 
-Paix à toi, Mon beau pays, Mon royaume d’aujourd’hui et celui de demain sur la terre! Je te porte dans Mes bras comme Mon enfant si doux. Oh, paix a toi tout le temps, tout le temps! Je te veillerai et Je te parlerai et Je vais te paître doucement, doucement, et Je vais te caresser avec Ma consolation, oh, car tu es douce pour Moi, Ma Roumanie, c’est pourquoi Je tiens ta petite main et Je porte tes pas sur la voie, sur Ma voie avec toi vers Ma victoire et la tienne, toujours le Seigneur avec toi sur la voie, oh, Mon pays d’aujourd’hui toujours la Mienne, Ma Roumanie, toujours et toujours, Amen, amen, amen.
-
-[/legatura_la_teme]
+Paix à toi, Mon beau pays, Mon royaume d’aujourd’hui et celui de demain sur la terre! Je te porte dans Mes bras comme Mon enfant si doux. Oh, paix a toi tout le temps, tout le temps! Je te veillerai et Je te parlerai et Je vais te paître doucement, doucement, et Je vais te caresser avec Ma consolation, oh, car tu es douce pour Moi, Ma Roumanie, c’est pourquoi Je tiens ta petite main et Je porte tes pas sur la voie, sur Ma voie avec toi vers Ma victoire et la tienne, toujours le Seigneur avec toi sur la voie, oh, Mon pays d’aujourd’hui toujours la Mienne, Ma Roumanie, toujours et toujours, Amen, amen, amen.[/legatura_la_teme]

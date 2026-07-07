@@ -9,7 +9,7 @@ audio:
 audio_file: 
 ---
 
-… Oh, dear brother, how you will crave to rest in a heavenly place! Oh, Christian, you got where the light separates from the darkness, you came to the evil of evils. [legatura_la_teme id_capitol="1" id_subcapitol="4"]But I cry: stop sinning! I cry and I watch the way Noah looked forth from the ark and I look down on earth to see if there is much to bring to an end all that are written in the book. [/legatura_la_teme]
+… Oh, dear brother, how you will crave to rest in a heavenly place! Oh, Christian, you got where the light separates from the darkness, you came to the evil of evils. [legatura_la_teme id_capitol="1" id_subcapitol="4"]But I cry: stop sinning! I cry and I watch the way Noah looked forth from the ark and I look down on earth to see if there is much to bring to an end all that are written in the book.[/legatura_la_teme]
 
 … All human being will move here on earth and the judgment for all the world will be made here. Do not look at that liar who says that there is no God and that the man is not made by Me. And when you see him chained tight, you will look at him and tremble with fear for fear that you may not be chained like him. And you will curse him and say, *“You cheated us, for you kept saying that you were God!”*
 

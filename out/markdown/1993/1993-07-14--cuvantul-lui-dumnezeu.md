@@ -12,4 +12,4 @@ audio_file:
 
 ... Această preoţime de astăzi este vrednică de tăiere şi de ardere în foc, ca smochinul fără roade. Cei ce n-au suferit pe pământ, vor avea de suferit în veci.
 
-[legatura_la_teme id_capitol="4" id_subcapitol="5"]... Irineu, nume mare şi plăcut lui Dumnezeu! Numele şi viaţa ta sunt scrise în cartea Mea. Nu te teme de praful nelegiuirii. Nu te teme de necredincioşi. [/legatura_la_teme]
+[legatura_la_teme id_capitol="4" id_subcapitol="5"]... Irineu, nume mare şi plăcut lui Dumnezeu! Numele şi viaţa ta sunt scrise în cartea Mea. Nu te teme de praful nelegiuirii. Nu te teme de necredincioşi.[/legatura_la_teme]

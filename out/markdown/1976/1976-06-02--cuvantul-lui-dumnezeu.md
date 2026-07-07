@@ -24,7 +24,7 @@ audio_file:
 
 ... Până acum aţi scris ce aţi voit, aţi umblat în lărgime, dar acum vă spun: puneţi toate bine, că afară e vreme rea pentru voi.
 
-... Mai avem un pic şi vom ieşi şi vom controla pământul în lung şi în lat şi veţi vedea ce nu au văzut ochii voştri. [legatura_la_teme id_capitol="3" id_subcapitol="4"]Oiţele Mele, va veni vremea ca dintr-o sută de preoţi să rămână unul, şi dintr-o mie să rămână zece. De ce? Pentru că fiecare s-a lăcomit, a pus preţ. O, tată, dacă auzi cum se ceartă pe bani, cum se ceartă pe prosoape, cum se ceartă pe batiste! Păcat. Iată, şi cei ce slujesc slujbele, zic: *„Slugărimea mea să fie plătită tot de preot, că pe el îl slujesc“.* [/legatura_la_teme]
+... Mai avem un pic şi vom ieşi şi vom controla pământul în lung şi în lat şi veţi vedea ce nu au văzut ochii voştri. [legatura_la_teme id_capitol="3" id_subcapitol="4"]Oiţele Mele, va veni vremea ca dintr-o sută de preoţi să rămână unul, şi dintr-o mie să rămână zece. De ce? Pentru că fiecare s-a lăcomit, a pus preţ. O, tată, dacă auzi cum se ceartă pe bani, cum se ceartă pe prosoape, cum se ceartă pe batiste! Păcat. Iată, şi cei ce slujesc slujbele, zic: *„Slugărimea mea să fie plătită tot de preot, că pe el îl slujesc“.*[/legatura_la_teme]
 
 Dar să fiţi cuminţi, că va veni cezarul să vă ia şi vaca, şi porcul, şi oaia, şi capra, şi pasărea, şi tot, şi vă va lăsa curtea goală şi nu va zice: *„Ce va mânca omul acesta?“.* Dar Eu zic: dă-i cezarului ce vrea să-ţi ia, şi inima ta să fie a Mea.
 

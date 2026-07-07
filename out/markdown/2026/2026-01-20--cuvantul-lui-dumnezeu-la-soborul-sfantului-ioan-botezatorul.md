@@ -38,7 +38,7 @@ Suntem pomeniți unul lângă altul, Ioane botezător. Ne așezăm în carte cuv
 
 Vin după tine, omule care cauți, și nu găsești dacă nu ai înăuntrul tău ceea ce cauți. O, nu te teme. Am venit să-ți dau înțelepciune din cer ca să știi, că altfel nimic nu vei ști vreodată. Am venit să te iert. Am venit iarăși de la Tatăl ca să-ți dau iarăși iertare și înviere. Mi-e dor de tine, de aceea am venit. Nu ca să te cert pentru păcatele tale, nu de aceea am venit. Am venit să-ți spun de iubire și să-ți spun să Mă iubești cum te iubesc Eu, și să te faci sfânt cum sunt Eu, și ca să poți cu Mine. Voiesc să fii harnic ca să-ți pot da har. O, ai grijă, timpul trece, ai grijă! Te aștept să-Mi deschizi ca să intru și să nu mai plec, iar tu ai nevoie de Dumnezeu.
 
-În duh de Bobotează te cuprind. Învață umilința Mea, că n-ai de unde să înveți de pe pământ, iar Eu vin din cer și vin cu înnoirea, care este scrisă să se ivescă și să-și arate frumusețea ei toată, și toate pentru tine, omule, pentru că Mi-e dor de Mine cu tine. [/legatura_la_teme]
+În duh de Bobotează te cuprind. Învață umilința Mea, că n-ai de unde să înveți de pe pământ, iar Eu vin din cer și vin cu înnoirea, care este scrisă să se ivescă și să-și arate frumusețea ei toată, și toate pentru tine, omule, pentru că Mi-e dor de Mine cu tine.[/legatura_la_teme]
 
 Și acum, pace vouă în cetatea Mea cu voi, fiilor primitori de Dumnezeu! Și am petrecut cu voi praznicul Bobotezei, Eu și Ioan Botezătorul, și voi, și cei adunați pentru apa de Bobotează.
 

@@ -25,7 +25,7 @@ Lorsque l’esprit vient en contrôle, l’homme se cache et se tait sans parler
 
 Oh, les fils, oh, peuple de Ma parole, Je vous ai parlé aujourd’hui pour que vous appreniez de Dieu comment faire pour rester avec le Seigneur, et comment vous pourrez Le perdre et qu’il vienne le serpent pour montrer la voie sans veille sur vous, afin de la travailler.
 
-Oh, les fils, on a besoin de veille sans arrêt, on a besoin en tout et toujours. Réunissez-vous comme dans une seule personne et prenez Ma parole et approfondissez-vous dans son mystère avec lequel Je suis venu et Je l’ai mis dans le livre d’enseignement pour vous et pour tous ceux qui Me prennent de vous pour leur vie avec Dieu, ou pour leur désobéissance envers Dieu. [/legatura_la_teme]
+Oh, les fils, on a besoin de veille sans arrêt, on a besoin en tout et toujours. Réunissez-vous comme dans une seule personne et prenez Ma parole et approfondissez-vous dans son mystère avec lequel Je suis venu et Je l’ai mis dans le livre d’enseignement pour vous et pour tous ceux qui Me prennent de vous pour leur vie avec Dieu, ou pour leur désobéissance envers Dieu.[/legatura_la_teme]
 
 Et maintenant dépêchez-vous avec joie, les fils, dépêchez-vous de bonne humeur et avec l’amour qui se présente par lui -même, et soyez travailleurs avec Dieu, et réjouissez-vous de toute miette de votre travail avec Moi, puisqu’en obéissant et en travaillant avec joie et beaucoup de bonne humeur, vous travaillerez en chantant et travaillant, oh, et c’est ainsi qu’ils doivent être la tenue et le visage et l’œuvre des fils de Dieu, de Mes jours avec vous.
 

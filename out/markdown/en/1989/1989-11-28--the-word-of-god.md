@@ -9,7 +9,7 @@ audio:
 audio_file: 
 ---
 
-… Children beware for I want to tell you something. [legatura_la_teme id_capitol="1" id_subcapitol="6"]St. Elijah comes to pay a visit on this earth and takes with him a little part of what he knows that is needed for the sting and humiliation of those who have run away from God. Then I will see those which have not loved God. [/legatura_la_teme]
+… Children beware for I want to tell you something. [legatura_la_teme id_capitol="1" id_subcapitol="6"]St. Elijah comes to pay a visit on this earth and takes with him a little part of what he knows that is needed for the sting and humiliation of those who have run away from God. Then I will see those which have not loved God.[/legatura_la_teme]
 
 The rock of Golgotha is sprinkled with innocent blood and is reinforced on the foundations and will never come down, and not even those who will stick to it shall fall down and perish forever.
 

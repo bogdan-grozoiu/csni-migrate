@@ -46,7 +46,7 @@ Fiilor, fiilor, iată ce vă învăț pe voi: Dacă dă să vină peste voi un g
 
 Iar cât privește locul cetății cuvântului Meu, o, acesta este loc înalt de tot, înalt, fiilor din cetate, și trebuie să fiți pe potrivă cu purtarea, cu iubirea, cu veghea, cu ascultarea, cu tot lucrul vostru pentru Domnul, după măreția locului, căci fiii lui Dumnezeu trebuie să aibă măreția cea de la Dumnezeu peste ei, și spun acestea ca să se audă de cei ce veneau și nu aveau grijă de măreția acestui loc, muntele înalt al Domnului, cetatea cuvântului lui Dumnezeu.
 
-Iar azi am grăit la fântână, că e zi de sărbătoare a fântânii și a îngerului fântânii și Îmi învăț poporul ca pe cei din Samaria, care au mărturisit apoi pe Hristos peste tot, spre iertarea păcatelor lor și spre o altă viață apoi, viața cea sfântă, iubirea de Dumnezeu cu viața lor. [/legatura_la_teme]
+Iar azi am grăit la fântână, că e zi de sărbătoare a fântânii și a îngerului fântânii și Îmi învăț poporul ca pe cei din Samaria, care au mărturisit apoi pe Hristos peste tot, spre iertarea păcatelor lor și spre o altă viață apoi, viața cea sfântă, iubirea de Dumnezeu cu viața lor.[/legatura_la_teme]
 
 O, fiilor din cetate, din nou vă grăbesc la lucrul cel pentru popasul celor din cer la voi cu praznic de Rusalii, fiilor. Într-un suflet toți să lucrați și să pregătiți serbarea, căci aveți cetele cerești oaspeți la masa sărbătorii Duhului Sfânt, fiilor. O, măi fiilor, căutați să fiți odihniți mai înainte de ziua și masa de praznic, și faceți, așadar, din vreme așezarea minunii care va mângâia de la voi pe Domnul și pe toți însoțitorii Lui cerești.
 

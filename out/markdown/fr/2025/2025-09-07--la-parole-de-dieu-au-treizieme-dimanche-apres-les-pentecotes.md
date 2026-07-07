@@ -9,9 +9,7 @@ audio: https://noul-ierusalim.ro/audio/376fr.mp3
 audio_file: 25.09.07-fr.mp3
 ---
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Je te pais, Mon pays d’aujourd’hui, Ma Roumanie. Oh, prends de Mon Esprit, prends de Dieu, prends et nourris-toi du ciel, car le ciel de saints se tient au-dessus de toi et te veille et te partage nourriture bénie, car il n’y a plus de nourriture propre sur la terre, il n’y a plus rien de bon pour l’âme, et pour le corps non plus, et Moi, ton Seigneur Dieu, Je Me tien au-dessus de toi et Je te donne de Moi, afin que tu te sanctifies avec Ma parole et que tu aies sur toi la parole de Dieu, Mon pays.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Je te pais, Mon pays d’aujourd’hui, Ma Roumanie. Oh, prends de Mon Esprit, prends de Dieu, prends et nourris-toi du ciel, car le ciel de saints se tient au-dessus de toi et te veille et te partage nourriture bénie, car il n’y a plus de nourriture propre sur la terre, il n’y a plus rien de bon pour l’âme, et pour le corps non plus, et Moi, ton Seigneur Dieu, Je Me tien au-dessus de toi et Je te donne de Moi, afin que tu te sanctifies avec Ma parole et que tu aies sur toi la parole de Dieu, Mon pays.
 
 Oh, elle vient du ciel, elle vient du Christ Sa parole au-dessus de la terre et elle appelle à l’esprit de paix les peuples montés les uns contre les autres par leurs chefs à froids sentiments envers ceux qui périssent à l’improviste au milieu de l’effroi de tous les jours, et voilà, J’essaie de dire pour les chefs: Paix à vous! Paix entre vous! Paix du ciel entre vous sur vous et sur le peuple qui soupire jour et nuit, ne sachant pas s’ils auront encore des jours, si elle viendra la quiétude! Moi, le Seigneur, Je les prends dans les bras de Mon Esprit et Je leur fais place dans les demeures de Mon Père, puisque la pitié déchire Mon Esprit et J’appelle à la paix les peuples brouillés entre eux et Je leur dis encore et encore: Assez!
 
@@ -31,6 +29,4 @@ Peu de temps reste encore. Nous devons travailler et veiller jour et nuit par de
 
 Maintenant bénédiction pour ce qui est encore à ranger, et nous lançons ensuite l’annonce en entier, tout sous Mon œil paternel, les fils.
 
-Je ne vous laisse seuls, pas un moment! Vous non plus, ne vous laissez pas du conseil de Ma parole. Tenez votre petite main dans la Mienne, dans l’esprit de l’amour et l’harmonie fraternelle, oh, et que J’aie cela Moi, le Seigneur, tout le temps de vous, tout le temps entre Moi et vous, et tout le temps entre vous et Moi, oh, les fils. Amen, amen, amen.
-
-[/legatura_la_teme]
+Je ne vous laisse seuls, pas un moment! Vous non plus, ne vous laissez pas du conseil de Ma parole. Tenez votre petite main dans la Mienne, dans l’esprit de l’amour et l’harmonie fraternelle, oh, et que J’aie cela Moi, le Seigneur, tout le temps de vous, tout le temps entre Moi et vous, et tout le temps entre vous et Moi, oh, les fils. Amen, amen, amen.[/legatura_la_teme]

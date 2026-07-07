@@ -9,7 +9,7 @@ audio:
 audio_file: 
 ---
 
-[legatura_la_teme id_capitol="3" id_subcapitol="4"]… In the name of the Father, of the Son and of the Holy Spirit, amen. The Lord, Je-sus Christ, took away from the earth the ruling throne of all the kings of the earth. If some-one wants to remain within his kingdom, let him stay as the Lord did, with his hands stretched out. It is not about the seat but rather of the gift of king, which the Holy Trinity took away. There comes a little bird from heaven to be king over the earth. Yes, yes, it is coming. [/legatura_la_teme]
+[legatura_la_teme id_capitol="3" id_subcapitol="4"]… In the name of the Father, of the Son and of the Holy Spirit, amen. The Lord, Je-sus Christ, took away from the earth the ruling throne of all the kings of the earth. If some-one wants to remain within his kingdom, let him stay as the Lord did, with his hands stretched out. It is not about the seat but rather of the gift of king, which the Holy Trinity took away. There comes a little bird from heaven to be king over the earth. Yes, yes, it is coming.[/legatura_la_teme]
 
 … I carry into My hand a little flag on which it is written: *„The end of all things”*. Since I was born I have been preaching this word, this gospel. Let no one believe that this word has been a lie. There has been no saint or angel left in heaven not to come with the broom to brush away your way; especially the prophets, which have been brushing so that you may come sooner.
 

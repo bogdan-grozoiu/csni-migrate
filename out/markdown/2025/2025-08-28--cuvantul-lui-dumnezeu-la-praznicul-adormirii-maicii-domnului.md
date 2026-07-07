@@ -8,9 +8,7 @@ audio: https://noul-ierusalim.ro/audio/1779.mp3
 audio_file: 25.08.28.mp3
 ---
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-Intru în carte cuvânt de veghe și de mângâiere, intru cuvânt de facere și de lumină, intră Domnul cu masă de cuvânt și cu praznic sfânt.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]Intru în carte cuvânt de veghe și de mângâiere, intru cuvânt de facere și de lumină, intră Domnul cu masă de cuvânt și cu praznic sfânt.
 
 Intru la tine, țara Mea cea de azi, țară română. O, pace ție, țara Mea! Se face Domnul în tine lumină peste tot pământul, iubito. Cuvântul Meu este lumina, și am în tine pe poporul Meu mezin, care-Mi împarte lumina peste pământ, iar în ziua aceasta Mă port cu suite de sfinți și de îngeri și intru cu praznic ceresc pentru mama Mea Fecioara, intru în cetate cu masă de cuvânt, căci acum două mii de ani în ziua aceasta am împlinit dorul ei de mamă a Mea și am suit-o lângă Mine și lângă Tatăl și i-am dat un dar frumos, pe care Tatăl Mi l-a dat, după ce am sfârșit suferința Mea de pe cruce și te-a dat Tatăl Mie de țară a venirii Mele la sfârșit de timp, dar Eu am dat mamei Mele să te vegheze și să te poarte spre Dumnezeu și să însemneze cu pază de sus hotarele și via ta, țara Mea, și i-am spus că ești țara venirii Mele cu sfinții la sfârșit de timp și cu facerea cea nouă a lumii, o, și trebuie lumină mai întâi să fie, și cu ea să lucrez facerea cea nouă, ca și la început când cuvântul Meu era lumina și toate se iveau prin cuvânt, prin lumină, și iată, cuvântul este lumina, și își face cale cuvântul Meu peste pământ și luminează în întuneric lumina cuvântului Meu, iar întunericul nu o poate pătrunde, nu poate întunericul în fața luminii, o, și de aceea vine Domnul pe pământ cuvânt, vine lumina și facerea cea nouă și poate lumina peste întuneric, poate ea, poate Domnul. Amin.
 
@@ -40,6 +38,4 @@ Acum binecuvântarea praznicului de azi se împarte vouă, celor adunați la mas
 
 Slăvită să fie între popoare țara română, peșteoaica Mea, căreia i-au fost smulse de pe trup aripioarele, dar ea rămâne peșteoaica Mea, iubirea Mea, frumoasa Mea, semnul Meu, dorul Meu de ea după șapte mii de ani, de când Eu, Domnul, am stat pe pământul ei și am rostit toate cuvintele cele pentru facerea cerului și a pământului și a toate câte s-au ivit prin cuvânt, și apoi facerea omului din lutul acestui meleag, și pe care taină Eu, Domnul, am descoperit-o peste pământ acum la sfârșit de timp.
 
-Pace ție, neam român, țara Mea! Cu tine încep noul Meu răsărit, și curând, curând, noaptea nu se va mai coborî peste tine și vei fi lumina Mea peste pământ, căci Eu sunt lumină peste tine, sunt cuvântul de facere din nou a lumii și sunt Păstorul tău, iar tu ești glia Mea pe pământ, casa Mea, venirea Mea, ești iubirea Mea de la sfârșit de timp, ești mângâiere, ești și vei fi tot o mângâiere peste tot și peste toate curând, curând, o, țara Mea cea de azi. Amin, amin, amin.
-
-[/legatura_la_teme]
+Pace ție, neam român, țara Mea! Cu tine încep noul Meu răsărit, și curând, curând, noaptea nu se va mai coborî peste tine și vei fi lumina Mea peste pământ, căci Eu sunt lumină peste tine, sunt cuvântul de facere din nou a lumii și sunt Păstorul tău, iar tu ești glia Mea pe pământ, casa Mea, venirea Mea, ești iubirea Mea de la sfârșit de timp, ești mângâiere, ești și vei fi tot o mângâiere peste tot și peste toate curând, curând, o, țara Mea cea de azi. Amin, amin, amin.[/legatura_la_teme]

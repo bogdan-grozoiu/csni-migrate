@@ -9,9 +9,7 @@ audio: https://noul-ierusalim.ro/audio/1041en.mp3
 audio_file: 25.07.20-en.mp3
 ---
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-I am carrying you in My word, I am carrying you in My Spirit, in My love for you, My country of today, Romanian people. I am holding your hand and giving you words of encouragement, and spiritual gifts I am giving to place upon your sons, Romanian people.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]I am carrying you in My word, I am carrying you in My Spirit, in My love for you, My country of today, Romanian people. I am holding your hand and giving you words of encouragement, and spiritual gifts I am giving to place upon your sons, Romanian people.
 
 Oh, you need love, My love! Peace to you from God, peace and love! May your love be blessed, and love means God!
 
@@ -43,6 +41,4 @@ I will always shepherd you on the days of rest, Romanian people, and My word ove
 
 I am embracing you again and again in My comforting wish for Mine: Peace to you, My country, My Romania! You are the riverbed through which My word flows and is written on the earth for My testimony, and I am your Shepherd all the time. Peace to you! You are My gift from the Father for this time of Mine with you. I am embracing you in My love and kissing your face and soul and comforting Me by embracing you in My word. Oh, remain in My love, remain Mine, remain under My blessing, you, the blessed one among the peoples with the name of Romania, the mysterious name of My choice now, of the earth chosen at the beginning and at the end for My glory and of My chosen people to prepare it for Me, for God, for My coming word on earth, now, at the end of time, as it is written.
 
-I am walking with you across the earth with My new name and yours, My country, the Word of God **(Apoc: 19/13)** and His people, the Romanian people now shepherded by this word. Amen, amen, amen.
-
-[/legatura_la_teme]
+I am walking with you across the earth with My new name and yours, My country, the Word of God **(Apoc: 19/13)** and His people, the Romanian people now shepherded by this word. Amen, amen, amen.[/legatura_la_teme]

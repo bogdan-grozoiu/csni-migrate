@@ -14,9 +14,7 @@ Sunt Fiul lui Dumnezeu Tatăl, iar Tatăl Îmi dă tot lucrul Meu, și Îl ascul
 
 Mă vestesc când vin cuvânt pe pământ, și Mi-l așez în cartea Mea cea de azi, carte deschisă pe vatra neamului român, și-Mi scriu în ea cuvântul, îl scriu din anul 1955 și scriu mereu și împlinesc așa Scripturile care spun că vine Domnul cu zecile de mii de sfinți ai Săi, că vine Domnul pe cal alb, și numele Lui se cheamă *Cuvântul lui Dumnezeu.*
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-O, pace ție, neam român! De pe vatra ta rostesc și peste pământul tot și spun:
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]O, pace ție, neam român! De pe vatra ta rostesc și peste pământul tot și spun:
 
 Pace vouă, popoarelor de pe pământ! Eu sunt Cel credincios și adevărat prin cuvântul Meu cel rostit, iar după ce îl rostesc îl împlinesc, îi dau putere de împlinire și pun pace în el, și aleargă el repede din cer și până pe pământ, până pe pământul român, aici, unde-Mi am așternut picioarelor, și apoi de aici peste tot, cu pace în el, cu viață în el, iar viața este lumină neamurilor pământului, precum este scris.
 
@@ -24,9 +22,7 @@ O, neam român, primește-Mi mângâierea! Pace ție, țara Mea cea de azi! Mă 
 
 Iar tu, țara Mea cea de azi, pune-ți inima înaintea Mea și cheamă-Mă în vreme de încercare ca să te izbăvesc. O, așteaptă-Mă și cheamă-Mă, așa cum M-au chemat ucenicii Mei pe mare în vreme de furtună, iar Eu am venit și am spus furtunii să se liniștească și le-am dat lor liniștea, pacea Mea le-am dat lor și am stat cu ei și i-am scos la liman. O, așa și cu tine voiesc să împlinesc, țara Mea română, dar vreau să Mă ajuți, iubito, și să-Mi crezi cuvântul cel din mijlocul tău și să te împlinești în dragostea de Dumnezeu și să împlinești poruncile vieții, căci împlinirea lor este scăparea ta, biruința ta, o, și sus crucea, prin care Eu am biruit lumea, și prin care și tu vei fi biruitoare. O, și te vor dori și-ți vor căuta frumusețea toate neamurile pământului, și glasul Meu va răsuna cu duhul și mulți vor umbla pe calea salvării și vor cere de la Dumnezeu izbândă de sub întunericul de pe pământ, iar tu vei fi slava popoarelor, țara Mea cea de azi, și Domnul Dumnezeul tău grăiește aceasta.
 
-Vin la tine ca să te mângâi și să te înfiripez în nădejde, și ca să așezăm la loc pe cele stricate de vreme și să-ți pun mersul cel sfânt sub picioare, țara Mea, o, și n-ai de ales dacă Eu așa voiesc cu tine ca să petrec cu tine slava venirii Mele după două mii de ani de la învierea Mea și de la suirea Mea la Tatăl, și când am lăsat promisiunea că așa cum M-am suit, așa voi și veni iarăși, și iată-Mă pe nori stând și umblând și venind și vestindu-Mi cuvântul și chemând sub mantia Mea pe cei care gem și plâng din pricina minciunii duhului satanic și din pricina lucrării lui antichrist, omul fărădelegii de pe pământ, și pe care Eu îl mustru și îl dau în lături și îl trimit în întunericul lui cel fără Dumnezeu, iar peste tine răsare soare nou, țara Mea, și Eu te păstoresc pentru Mine, și să știe duhul rău aceasta și să se depărteze din calea Mea cu tine, căci îi poruncesc aceasta Eu, Iisus Hristos, că vin să biruiesc întunericul de pe pământ și să fiu lumina lumii prin cuvânt, precum este scris, căci omul nu este în stare să fie și să facă lumină și să umble întru ea apoi, că aceasta este a lui Dumnezeu, nu a omului.
-
-[/legatura_la_teme]
+Vin la tine ca să te mângâi și să te înfiripez în nădejde, și ca să așezăm la loc pe cele stricate de vreme și să-ți pun mersul cel sfânt sub picioare, țara Mea, o, și n-ai de ales dacă Eu așa voiesc cu tine ca să petrec cu tine slava venirii Mele după două mii de ani de la învierea Mea și de la suirea Mea la Tatăl, și când am lăsat promisiunea că așa cum M-am suit, așa voi și veni iarăși, și iată-Mă pe nori stând și umblând și venind și vestindu-Mi cuvântul și chemând sub mantia Mea pe cei care gem și plâng din pricina minciunii duhului satanic și din pricina lucrării lui antichrist, omul fărădelegii de pe pământ, și pe care Eu îl mustru și îl dau în lături și îl trimit în întunericul lui cel fără Dumnezeu, iar peste tine răsare soare nou, țara Mea, și Eu te păstoresc pentru Mine, și să știe duhul rău aceasta și să se depărteze din calea Mea cu tine, căci îi poruncesc aceasta Eu, Iisus Hristos, că vin să biruiesc întunericul de pe pământ și să fiu lumina lumii prin cuvânt, precum este scris, căci omul nu este în stare să fie și să facă lumină și să umble întru ea apoi, că aceasta este a lui Dumnezeu, nu a omului.[/legatura_la_teme]
 
 O, e zi de duminică, fii români, fii creștini. Mai înainte de Paștele Domnului cu două săptămâni au așezat sfinții părinți în zi de duminică pomenirea sfintei cuvioase Maria Egipteanca, cea care a biruit păcatul și lucrarea lui și lumea și iadul, o, și Mă așez acum cu ea în sfat pentru hrană bisericească peste turma creștină, ca să o deprind pe ea cu puterea cea împotriva păcatului și cu viață de rai apoi peste ea, căci dragostea de Dumnezeu dă puteri sfinte turmei creștine, dă înviere multă și mereu.
 
@@ -52,9 +48,7 @@ O, grăiește tu acum cu Domnul tău, cu Cel pentru Care ai înviat în tine lup
 
 — O, mângâie-ți tu acum rana iubirii tale de Dumnezeu, fiică atât de fierbinte cu iubirea și cu lacrima ei. Voi lua lacrimile tale de pe pământ și voi spăla în ele întinăciunea celor ce ca și tine vor alege iubirea de Dumnezeu, iubirea cea înlăcrimată prin puterea ei, și voi face pe pământ un neam sfânt prin iubirea de Dumnezeu, și care va iubi să facă poruncile vieții, iar Eu voi păstori popoarele cu această lumină, precum este scris.
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-O, neam român, caută cu iubire și cu dor după Domnul Dumnezeul tău și fă-I loc lângă tine. Eu, Domnul, te îndemn aceasta. O, ai răbdare și fii cuminte până ce strâmtorarea va trece, dar nu te întoarce apoi iarăși spre păcat, ci învață să poți cu Dumnezeu pe pământ, că voiesc să aprind o făclie mare în mijlocul tău ca s-o știe și s-o vadă toate popoarele și să tragă ele spre lumina ei, spre povețe din cer peste popoare.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]O, neam român, caută cu iubire și cu dor după Domnul Dumnezeul tău și fă-I loc lângă tine. Eu, Domnul, te îndemn aceasta. O, ai răbdare și fii cuminte până ce strâmtorarea va trece, dar nu te întoarce apoi iarăși spre păcat, ci învață să poți cu Dumnezeu pe pământ, că voiesc să aprind o făclie mare în mijlocul tău ca s-o știe și s-o vadă toate popoarele și să tragă ele spre lumina ei, spre povețe din cer peste popoare.
 
 O, pace ție, țara Mea de azi! Nu te întrista de sărbătorile Paștilor, ci cântă tu cu Mine și cu îngerii Mei: Hristos a înviat! Când mergeai la biserică pentru praznicul Paștilor nu știai cum să stai frumos înaintea Mea, și mulți necinsteau praznicul Domnului prin purtarea lor urâtă și prin obiceiuri necreștinești în toate zilele praznicului de Paști, iar Eu suspinam. Acum însă poți să stai aproape cu Mine, să Mă apropii de tine și să fii tu țara Mea creștină și să prețuiești ce ai de la Domnul, că iată, lipsește acum mângâierea cu care ești învățat, dar Eu te aștept să te faci frumoasă pentru Domnul Dumnezeul tău după rânduiala cea sfântă, și pe care s-o înveți bine, precum ai învățat bine să te desparți de ea, iar acum întoarce-te și învață de la Mine cum să-ți lucrezi mersul și viața și cum să ai pacea Mea cu tine, pacea cea de la Mine, nu de la duhul lumii, o, nu tot așa, căci lumina învierii voiește să-l învețe acum pe creștin viața cu Dumnezeu.
 
@@ -64,9 +58,7 @@ O, închideți fereastra cea dinspre duhul lumii și deschideți fereastra cea s
 
 Acum, pace ție, popor român, pace ție, țara Mea, casa Mea cea de azi, iar preoții bisericii să țină aprins duhul turmei și să-i dea din cer!
 
-Pace vouă, fii români binecredincioși!
-
-[/legatura_la_teme]
+Pace vouă, fii români binecredincioși![/legatura_la_teme]
 
 Pace vouă, popoarelor de pe pământ, pacea Mea peste voi!
 

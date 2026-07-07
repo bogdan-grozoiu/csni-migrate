@@ -26,9 +26,7 @@ O, mama Mea duioasă ca și Fiul tău, M-am așezat să-l învăț pe om în ziu
 
 O, întărim hotarele și harul cel întreit aici, pe pământul român în tot văzduhul acestui tărâm, și îndemnăm la dragoste, la pace popoarele, căci planurile Mele nu sunt ca ale oamenilor, și sunt din cer, mamă.
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-O, neam român, pace ție! Așa vreau să fii. O, ești jumătate într-un fel și în alt fel cealaltă jumătate, iar cuvântul Meu de peste tine îl voiesc făcătorul tău să fie și să te aducă la Mine și la pace, căci dacă de două feluri dau să fie fiii neamului român nu poate pacea peste acest neam.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]O, neam român, pace ție! Așa vreau să fii. O, ești jumătate într-un fel și în alt fel cealaltă jumătate, iar cuvântul Meu de peste tine îl voiesc făcătorul tău să fie și să te aducă la Mine și la pace, căci dacă de două feluri dau să fie fiii neamului român nu poate pacea peste acest neam.
 
 O, țara Mea de azi, o, grădina Mea, în care voiesc numai flori să am, voiesc să înmulțesc în tine mireasma florilor, a celor ce înfloresc și nu se veștejesc prin vreme. Mereu, mereu vin vremi de cumpănă peste tine, iar Eu, Domnul, mereu, mereu te veghez ca să te pot lucra, să te pot numi via Mea cea dragă, noua Mea casă, o, țara Mea.
 
@@ -58,4 +56,4 @@ O, măi neam român, n-ai înțelepciunea toată. Ia de la Dumnezeu ca să ai, c
 
 O, pace ție, țara Mea română! Ești țara Domnului. Eu Însumi te numesc a Mea. Duhul fățărniciei voiesc să-l iau de peste tine. Acest aluat are ca viață păcatul, iar Eu voiesc să nu mai fie farisei în poporul român, și voiesc aceasta începând cu poporul cuvântului Meu, cu care sunt așezat în cetatea Mea de scaun, aici, la izvorul Meu de cuvânt, la tronul cuvântului. Celor fățarnici le-am spus acum două mii de ani *„vai vouă!”*. Așa le spuneam celor ce voiau să se dea aleși și drepți și sfinți. O, tot așa și azi le spun celor ce se fățărnicesc: *«Vai vouă!»*, așa le spun și lor, și așa va fi și cu ei, vai lor va fi, căci așa își aleg să fie.
 
-Vine ziua când lucrarea fățărniciei nu va mai avea putere. Așadar, pedepsiți acest păcat, ca să scăpați de pedeapsa cea pentru el, și ieșiți spre lumină mare, fii români, și priviți la Domnul, priviți în cuvântul Meu, care vă cheamă și vă îndeamnă spre lumină, căci Eu, Domnul voiesc să fac din voi lumină a lumii peste pământ precum Eu sunt. Eu, Cel ce povățuiesc neamul omenesc pe calea Mea cu sfințenie pe ea, spre slava Mea cu omul sfânt, căci așa fel de viață voiesc Eu, Domnul, să-i pregătesc omului pe pământ. Amin, amin, amin. [/legatura_la_teme][legatura_la_teme id_capitol="4" id_subcapitol="4"][/legatura_la_teme]
+Vine ziua când lucrarea fățărniciei nu va mai avea putere. Așadar, pedepsiți acest păcat, ca să scăpați de pedeapsa cea pentru el, și ieșiți spre lumină mare, fii români, și priviți la Domnul, priviți în cuvântul Meu, care vă cheamă și vă îndeamnă spre lumină, căci Eu, Domnul voiesc să fac din voi lumină a lumii peste pământ precum Eu sunt. Eu, Cel ce povățuiesc neamul omenesc pe calea Mea cu sfințenie pe ea, spre slava Mea cu omul sfânt, căci așa fel de viață voiesc Eu, Domnul, să-i pregătesc omului pe pământ. Amin, amin, amin.[/legatura_la_teme][legatura_la_teme id_capitol="4" id_subcapitol="4"][/legatura_la_teme]

@@ -36,7 +36,7 @@ Copilaşii Mei iubiţi, cu multă suferinţă şi cu multe lacrimi plătiţi! Su
 
 ... Nu e nimic, nimic, din vârful degetului şi până în vârful picioarelor nu e nimic sănătos în acest trup de care Eu Mă servesc. Şi rărunchii, şi creierii din cap, şi stomacul, şi totul e putrezit, stând în apă. E ca un burete cu care te ştergi de praf pe pantof, aşa sunt de umflate toate de pe ea. Şi nu e departe, şi se va stinge această viaţă, pentru că în tot locul e supărată şi lovită.
 
-[legatura_la_teme id_capitol="7" id_subcapitol="3"]... Mulţi dintre voi nu veţi avea moarte, şi mulţi, în timpul acela când Domnul Se va arăta în slava Sa, vor fi pe spate, adormiţi în casă. Şi atunci se va striga: *„Osana, Fiul lui Dumnezeu!“.* [/legatura_la_teme]
+[legatura_la_teme id_capitol="7" id_subcapitol="3"]... Mulţi dintre voi nu veţi avea moarte, şi mulţi, în timpul acela când Domnul Se va arăta în slava Sa, vor fi pe spate, adormiţi în casă. Şi atunci se va striga: *„Osana, Fiul lui Dumnezeu!“.*[/legatura_la_teme]
 
 ... Vă repet, tată: mulţi din creştini sunt în uzină, şi în uzină sunt şi câini, şi miei îmbrăcaţi în piei de lup. Nu staţi la masă cu duhurile necurate, nu beţi apă dintr-un vas cu duhurile necurate. Mâncarea ta şi purtarea ta să fie deosebite. Eu aş zice, dacă se poate, ia serviciu la tine acasă, iar dacă nu se poate, te întreb: poţi să duci două desage? adică una pentru Gog şi una pentru Dumnezeu?
 

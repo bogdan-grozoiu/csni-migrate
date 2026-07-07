@@ -20,7 +20,7 @@ Mergeți acum și pregătiți locul de întâlnire și calea până acolo și me
 
 O, binecuvântată să fie toată lucrarea pe care o pregătiți și toată clipa aceea de întâlnire însoțită de colindele nașterii Domnului, toată petrecerea cea dulce pe care voi o veți dărui celor ce se vor strânge și vor gusta cu inima simțirea cea sfântă a sărbătorii Crăciunului! Eu sunt Crăciunul, Eu sunt Hristos, Eu sunt Cel ce vin cuvânt pe pământ la voi și-Mi pregătesc slava venirii văzute căci vin curând, vin că așa este scris, și de aceea vin.
 
-Scumpă și sfântă se ridică la cer seara de veghe sfântă când voi veți sta în mijlocul celor ce se vor aduna în oraș ca să vă aștepte să veniți să colindați și să-i bucurați, iar îngerii vor scrie și vor mărturisi între cei din cer, precum și pe pământ se va mărturisi în lung și în lat sărbătoarea Crăciunului în orașul Pucioasa, și despre voi împărțitori de bucurii în duh de sărbătoare sfântă, seara de Crăciun. [/legatura_la_teme]
+Scumpă și sfântă se ridică la cer seara de veghe sfântă când voi veți sta în mijlocul celor ce se vor aduna în oraș ca să vă aștepte să veniți să colindați și să-i bucurați, iar îngerii vor scrie și vor mărturisi între cei din cer, precum și pe pământ se va mărturisi în lung și în lat sărbătoarea Crăciunului în orașul Pucioasa, și despre voi împărțitori de bucurii în duh de sărbătoare sfântă, seara de Crăciun.[/legatura_la_teme]
 
 Așa, fiilor, și pace vouă și petrecerii cu voi a celor ce locuiesc în acest oraș, și care vor purta apoi în ei multă vreme această clipă de bucurie, acest dar sfânt! Amin.
 
@@ -36,7 +36,7 @@ O, fiule creștin, plâng după tine acum, că te-am hrănit din cer multă vrem
 
 Vorbeam cu Tatăl pe pământ, vorbeam de pe pământ, iar Tatăl vorbea cu Mine din cer și S-a lăsat auzit la botezul Meu în Iordan, și pe munte apoi când Tatăl M-a slăvit în lumină mare înaintea ucenicilor Mei, o, și Mă alinam vorbind cu El, iar pe Mine Mă auzeau ucenicii când vorbeam cu Tatăl pentru Mine și pentru ei.
 
-O, fiilor, o, creștinilor, vorbiți și voi cu Tatăl, vorbiți și voi cu Mine, cu sfinții, cu îngerii, cu mama Mea Fecioara, vorbiți cu cei din cer, fiilor. Hrăniți-vă sufletele, hrăniți-l pe omul vostru ce va să fie după viața trupului. Faceți-vă odihnă îngrijită din vreme, o, că nu știți când vine Domnul, și ce veți face dacă sufletul nu are strânsură să stea înaintea Domnului cu bogăție, cu veșmânt, și nu gol? [/legatura_la_teme]
+O, fiilor, o, creștinilor, vorbiți și voi cu Tatăl, vorbiți și voi cu Mine, cu sfinții, cu îngerii, cu mama Mea Fecioara, vorbiți cu cei din cer, fiilor. Hrăniți-vă sufletele, hrăniți-l pe omul vostru ce va să fie după viața trupului. Faceți-vă odihnă îngrijită din vreme, o, că nu știți când vine Domnul, și ce veți face dacă sufletul nu are strânsură să stea înaintea Domnului cu bogăție, cu veșmânt, și nu gol?[/legatura_la_teme]
 
 L-am zidit pe om ca prin el să stea legate în lucrare cele ale facerii lui Dumnezeu, cerul și pământul, și iată, când se sărbătorește pe pământ un sfânt e și în cer sărbătoare, și din cer până pe pământ se întinde sărbătoarea, și iarăși, de pe pământ și până în cer, căci slava sfinților Mei este mare și vin cu ei întru venirea Mea precum este scris să vin.
 
@@ -54,7 +54,7 @@ Iar [legatura_la_teme id_capitol="3" id_subcapitol="3"]în ziua aceasta ierarhul
 
 Eu ies cu voi spre oameni, fiilor din cetatea cuvântului Meu, și vor vedea mulți lumina Mea cu voi și din voi. Mă arăt oamenilor iubindu-i prin voi și învățându-i iubirea și cerul cu ei pe pământ.
 
-Să piară păcatul de pe pământ și să rămână oamenii și să se facă ei fiii lui Dumnezeu, iubire să se facă ei așa precum Eu sunt! [/legatura_la_teme]
+Să piară păcatul de pe pământ și să rămână oamenii și să se facă ei fiii lui Dumnezeu, iubire să se facă ei așa precum Eu sunt![/legatura_la_teme]
 
 Merg cu voi între oameni, fiilor. Slava Tatălui este cu noi, iar sfinții sunt tainici și sunt cu noi, și pace vouă, fiilor mărturisitori de Dumnezeu!
 

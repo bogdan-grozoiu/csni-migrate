@@ -8,7 +8,7 @@ audio:
 audio_file: 
 ---
 
-[legatura_la_teme id_capitol="1" id_subcapitol="4"]... Astăzi este vremea lui Lot când propovăduia cuvântul şi nu-l auzea nimeni. Astăzi este vremea Sodomei şi Gomorei când omul lui Dumnezeu propovăduia cuvântul Său şi poporul nu-l asculta, şi aranja masa pentru sodomie şi curvie. Astăzi e vremea şi a lui Noe, că el lucra, şi lumea râdea de el şi juca. Astăzi este vremea şi a potopului. [/legatura_la_teme]
+[legatura_la_teme id_capitol="1" id_subcapitol="4"]... Astăzi este vremea lui Lot când propovăduia cuvântul şi nu-l auzea nimeni. Astăzi este vremea Sodomei şi Gomorei când omul lui Dumnezeu propovăduia cuvântul Său şi poporul nu-l asculta, şi aranja masa pentru sodomie şi curvie. Astăzi e vremea şi a lui Noe, că el lucra, şi lumea râdea de el şi juca. Astăzi este vremea şi a potopului.[/legatura_la_teme]
 
 ... Israele, dacă ai vedea cum s-a pregătit locul pentru sfârşit, ai zice că nu mai e timp nici să te duci să aduci un vas cu apă în casă, că ai zice că nu mai ai timp să ajungi în casă. Ucenicii, pe vremea când eram în trup, se ţineau după Mine şi Mă întrebau de toate şi le spuneam. Dar acum, Eu te îndemn: Israele, fă ca Mine!
 

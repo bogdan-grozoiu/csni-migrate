@@ -9,9 +9,7 @@ audio:
 audio_file: 
 ---
 
-[legatura_la_teme id_capitol="4" id_subcapitol="4"]
-
-On a day of the feast of My ascension to the Father, I, the Lord, Jesus Christ, am full of word and I am full of longing to speak, as several days ago, I said that I would speak My word for the Romanian people and I remind to this people that sixty years have passed since the word of My mouth has been turning into a book on the Romanian hearth and My book goes over the earth and preaches this time of the heavenly school, coming down from glory with its Teacher upon people, for I have raised one people whom I nourished with the world of My mouth all this time, and I have set it to do My will and to be My house, to come on earth as word to those who believe in the miracle of this time, in My coming as word among people, and to tell them that I am with My voice on earth and I have come to bring them light, as at My first coming two thousand years ago, I said that I was the Light of the world and now I am fulfilling it as I did at the time when I was working on earth the word for which I came being sent by the Father, that is the man’s salvation.
+[legatura_la_teme id_capitol="4" id_subcapitol="4"]On a day of the feast of My ascension to the Father, I, the Lord, Jesus Christ, am full of word and I am full of longing to speak, as several days ago, I said that I would speak My word for the Romanian people and I remind to this people that sixty years have passed since the word of My mouth has been turning into a book on the Romanian hearth and My book goes over the earth and preaches this time of the heavenly school, coming down from glory with its Teacher upon people, for I have raised one people whom I nourished with the world of My mouth all this time, and I have set it to do My will and to be My house, to come on earth as word to those who believe in the miracle of this time, in My coming as word among people, and to tell them that I am with My voice on earth and I have come to bring them light, as at My first coming two thousand years ago, I said that I was the Light of the world and now I am fulfilling it as I did at the time when I was working on earth the word for which I came being sent by the Father, that is the man’s salvation.
 
 I am setting the table of word on the hearth of the Romanian people and I am calling at the table with Me the sons of this nation and I am blessing from the right side of My Father My speaking of today, oh, and My Father is blessing the whole work of My word on a day of the feast of the Ascension, a day of holy memorial, because I, the Lord Jesus Christ, as I ascended so I will come, and behold, I will come on the clouds, as it is written.
 
@@ -47,9 +45,7 @@ I am coming close to an end with My word and I am empowering the sons of the Rom
 
 I am writing down My name when I finish speaking.
 
-Jesus Christ, the Word of God. Amen.
-
-[/legatura_la_teme]
+Jesus Christ, the Word of God. Amen.[/legatura_la_teme]
 
 ***
 

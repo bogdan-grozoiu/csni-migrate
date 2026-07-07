@@ -22,4 +22,4 @@ audio_file:
 
 ... Daniele, nu mai fiţi mâhniţi, că vine şi bucuria. Dimineaţa vine bucuria, ai auzit? Şi vom plămădi toate durerile, cu leacul. Aşa e, tată, în tot locul unde Dumnezeu lucrează, vine şi duhul rău şi strică. Plângeţi împreună cu Mine.
 
-[legatura_la_teme id_capitol="4" id_subcapitol="5"]... Creştinilor, urlă lupii la hotare. Măi creştinilor tată, aici e vatra românească, unde va curge miere şi lapte. Nu veţi mai merge în altă parte, şi aici veţi face casă. Aşteptaţi-l pe cel înstrăinat *(regele Mihai, n.r.),* care acum e în formare, departe, că Domnul îl aduce pe pământul său. [/legatura_la_teme]
+[legatura_la_teme id_capitol="4" id_subcapitol="5"]... Creştinilor, urlă lupii la hotare. Măi creştinilor tată, aici e vatra românească, unde va curge miere şi lapte. Nu veţi mai merge în altă parte, şi aici veţi face casă. Aşteptaţi-l pe cel înstrăinat *(regele Mihai, n.r.),* care acum e în formare, departe, că Domnul îl aduce pe pământul său.[/legatura_la_teme]
