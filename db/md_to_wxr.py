@@ -9,8 +9,8 @@ and let the live Divi 5 site's built-in D4->D5 converter upgrade on load.
 Validated against the site's own `_et_pb_divi_4_content` (see db/FINDINGS.md).
 
 Usage:
-    python3 md_to_wxr.py out/markdown/2025/2025-11-16--*.md ... -o db/out/sample.wxr
-    python3 md_to_wxr.py --emit-d4 out/markdown/2025/2025-11-16--*.md   # print D4 body only
+    python3 md_to_wxr.py out/markdown/ro/2025/2025-11-16--*.md ... -o db/out/sample.wxr
+    python3 md_to_wxr.py --emit-d4 out/markdown/ro/2025/2025-11-16--*.md   # print D4 body only
 """
 import argparse
 import copy

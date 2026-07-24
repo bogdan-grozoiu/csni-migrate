@@ -52,17 +52,18 @@ def fetch(url, cache_name, retries=4):
 
 
 def audio_filename(iso):
-    """ISO date 2026-01-04 -> local audio name 26.01.04.mp3."""
+    """ISO date 2026-01-04 -> local audio name 26.01.04-ro.mp3. The `-ro` marks
+    the language so all archives (en/fr carry -en/-fr) coexist in one uploads dir."""
     y, m, d = iso.split("-")
-    return f"{y[2:]}.{m}.{d}.mp3"
+    return f"{y[2:]}.{m}.{d}-ro.mp3"
 
 
 def download_audio(url, year, name):
-    """Download url to out/audio/<year>/<name>. Skip if already present.
+    """Download url to out/audio/ro/<year>/<name>. Skip if already present.
 
     Returns (local_name, bytes) or (None, 0) on failure.
     """
-    d = os.path.join(OUT_AUDIO, str(year))
+    d = os.path.join(OUT_AUDIO, "ro", str(year))
     os.makedirs(d, exist_ok=True)
     path = os.path.join(d, name)
     if os.path.exists(path) and os.path.getsize(path) > 0:
@@ -436,7 +437,7 @@ def html_to_md(body_html):
 
 
 def write_markdown(year, iso, cheie, title, audio, audio_file, body):
-    d = os.path.join(OUT, str(year))
+    d = os.path.join(OUT, "ro", str(year))
     os.makedirs(d, exist_ok=True)
     slug = slugify(title)
     path = os.path.join(d, f"{iso}--{slug}.md")

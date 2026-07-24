@@ -8,8 +8,10 @@ to the new **noulierusalim.ro** site (WordPress + Divi).
 - `csni_extract.py` — the extractor (stdlib only, no third-party deps).
 - `cache/` — raw source HTML, one file per fetched page. The offline safety net; the
   extractor never re-hits the server for a page already here.
-- `out/markdown/<year>/YYYY-MM-DD--slug.md` — one message per file (see frontmatter below).
-- `out/audio/<year>/yy.mm.dd.mp3` — recordings (recent years only). Git-ignored (large).
+- `out/markdown/<lang>/<year>/YYYY-MM-DD--slug.md` — one message per file, grouped by
+  language (`ro`/`en`/`fr`; see frontmatter below).
+- `out/audio/<lang>/<year>/yy.mm.dd-<lang>.mp3` — recordings, per language (`ro`/`en`/`fr`;
+  recent years only). Git-ignored (large).
 
 ## Commands
 
@@ -36,8 +38,9 @@ Failures are logged to `failures.log`; completion writes `CRAWL_DONE.txt`.
 - **Theme links**: `?pg=subcapitole&cap=X&sub=Y` → `[legatura_la_teme id_capitol="X"
   id_subcapitol="Y"]…[/legatura_la_teme]`, spanning across paragraphs. Maps 1:1 to the
   new site's `/teme/capitolul-X/subcapitolul-Y/`.
-- **Audio**: source `<cheie>.mp3` saved locally as `yy.mm.dd.mp3` (matches the new
-  site's `wp-content/uploads/` naming).
+- **Audio**: source `<cheie>.mp3` saved locally as `out/audio/ro/<year>/yy.mm.dd-ro.mp3`.
+  The `-ro` language suffix (en/fr carry `-en`/`-fr`) lets all archives share the new
+  site's one `wp-content/uploads/` folder without colliding.
 
 Frontmatter:
 ```yaml
@@ -86,4 +89,4 @@ pasteable SQL, never shell/mysqldump.
 **`db/out/README.md`** (wipe→import→mp3 sequence). The WP importer **skips existing
 posts, never updates** — so re-import = wipe first, then import. Sandbox full import
 verified rendering correctly (permalinks, body, italics, theme links, conditional audio).
-mp3s must be uploaded to `wp-content/uploads/` separately (git-ignored, `yy.mm.dd.mp3`).
+mp3s must be uploaded to `wp-content/uploads/` separately (git-ignored, `yy.mm.dd-ro.mp3`).

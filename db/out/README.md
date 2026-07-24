@@ -19,9 +19,11 @@ so use `.xml` if the importer complains ("missing/invalid WXR version").
 1. **Permalinks** → Settings → Permalinks → Custom Structure: `/%category%/%postname%/`
    → URLs become `/cuvantul/YYYY-MM-DD-<title>/` (the date is in the slug).
 2. **WordPress Importer** plugin installed & active (Tools → Import → WordPress).
-3. **Audio files**: upload all 844 mp3s to `wp-content/uploads/` (SFTP / host file
-   manager). They are git-ignored and NOT in the WXR — the audio blocks only
-   reference them by absolute URL. Naming: `yy.mm.dd.mp3` (e.g. `26.07.19.mp3`).
+3. **Audio files**: upload all 844 mp3s from `out/audio/ro/<year>/` to
+   `wp-content/uploads/` (SFTP / host file manager). They are git-ignored and NOT in
+   the WXR — the audio blocks only reference them by absolute URL. Naming:
+   `yy.mm.dd-ro.mp3` (e.g. `26.07.19-ro.mp3`). The `-ro` marks the language so the
+   Romanian files coexist with en (`-en`) and fr (`-fr`) in the one uploads folder.
 
 ## Reset → reload cycle (idempotent)
 
@@ -46,8 +48,8 @@ Notes:
 ## Regenerating from source
 
 ```bash
-# full RO file list (year folders only; en/ and fr/ are separate archives)
-find out/markdown -name '*.md' -not -path '*/en/*' -not -path '*/fr/*' | sort > db/out/all_ro_files.txt
+# full RO file list (en/ and fr/ are separate archives, not imported here)
+find out/markdown/ro -name '*.md' | sort > db/out/all_ro_files.txt
 
 # WXR (swap --site-url for the target; --slug-suffix date-prefix is the default)
 python3 db/md_to_wxr.py --file-list db/out/all_ro_files.txt \
